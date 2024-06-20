@@ -1,7 +1,7 @@
 ---
 title: "\"Direct Playback  Connecting FB Vids to TVs for 2024\""
-date: 2024-05-20T22:09:47.137Z
-updated: 2024-05-21T22:09:47.137Z
+date: 2024-06-10T02:26:06.195Z
+updated: 2024-06-11T02:26:06.195Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Direct Playback: Connecting FB Vids to TVs for 2024\""
 excerpt: "\"This Article Describes Direct Playback: Connecting FB Vids to TVs for 2024\""
 keywords: "\"FB Video Streaming,Direct TV Output,Real-Time Broadcast,Playback on TV,Convert FB Videos,Social Media TV Link,Live Stream TV Access\""
-thumbnail: https://www.lifewire.com/thmb/R4hO61lalLOqraKCRcJdmU6HWfQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/0010_21-best-teen-movies-on-netflix-5104880-b0e9832746854cabb4f33cafef96214b.jpg
+thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d9b87e9c40850a4f81b5f21f.jpg
 ---
 
 ## Direct Playback: Connecting FB Vids to TVs

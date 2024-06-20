@@ -1,7 +1,7 @@
 ---
 title: "\"Facebook Video Treasures - Top 5 List\""
-date: 2024-05-20T20:38:47.341Z
-updated: 2024-05-21T20:38:47.341Z
+date: 2024-06-10T02:26:01.702Z
+updated: 2024-06-11T02:26:01.702Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Facebook Video Treasures - Top 5 List\""
 excerpt: "\"This Article Describes Facebook Video Treasures - Top 5 List\""
 keywords: "Facebook Video Hidden Gems,Best FB Videos Collected,Top Fb Video Finds,Essential FB Video List,Prime FB Video Selection,Leading FB Video Treasures,Ultimate FB Video Guide"
-thumbnail: https://www.lifewire.com/thmb/TgfsZn-nOejfKyE4x2fYRF_534o=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/yahoo-logo-dfc499edd19d406494a61176de29453b.png
+thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc6188baf767c77fe55f4ad9e.png
 ---
 
 ## Facebook Video Treasures - Top 5 List

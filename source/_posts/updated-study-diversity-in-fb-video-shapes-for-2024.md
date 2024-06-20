@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Study  Diversity in FB Video Shapes for 2024\""
-date: 2024-05-20T21:37:21.605Z
-updated: 2024-05-21T21:37:21.605Z
+date: 2024-06-10T02:26:00.485Z
+updated: 2024-06-11T02:26:00.485Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Study: Diversity in FB Video Shapes for 2024\""
 excerpt: "\"This Article Describes [Updated] Study: Diversity in FB Video Shapes for 2024\""
 keywords: "Video Content Diversify,Shape Variety Study,Social Media Videos,Diverse FB Video Forms,Perception Analysis FB,Video Shape Trends,Interactive Video Research"
-thumbnail: https://www.lifewire.com/thmb/tbPESzzILzk9X04fO9qTcwgJkdY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/android-fotoo-0a616886a0824ebcb610688c8eb5a667.jpg
+thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de237a4feeb628da33c12d9648.jpg
 ---
 
 ## Study: Diversity in FB Video Shapes

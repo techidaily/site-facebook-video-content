@@ -1,7 +1,7 @@
 ---
 title: "How to Go Live on Facebook?"
-date: 2024-05-20T22:13:20.239Z
-updated: 2024-05-21T22:13:20.239Z
+date: 2024-06-10T02:25:58.308Z
+updated: 2024-06-11T02:25:58.308Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How to Go Live on Facebook?"
 excerpt: "This Article Describes How to Go Live on Facebook?"
 keywords: "Live Streaming FB Tips,FB Live Broadcast Guide,Start FB Live Now,Learn FB Live Tricks,Master FB Live Features,Engaging on FB Live,Techniques for FB Live Success"
-thumbnail: https://www.lifewire.com/thmb/ZyJlD6mN45XM86KjO968BS_pxbk=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/483595971-56a9feea5f9b58b7d00068b5.jpg
+thumbnail: https://thmb.techidaily.com/1b9c0ec4aac0a389de35bac2a472d37b33435d994c1a8448795d8b564ff658a3.jpg
 ---
 
 ## How to Go Live on Facebook?

@@ -1,7 +1,7 @@
 ---
 title: "[New] Fix Facebook Story Not Uploading Problem"
-date: 2024-05-20T22:08:39.462Z
-updated: 2024-05-21T22:08:39.462Z
+date: 2024-06-10T02:26:03.193Z
+updated: 2024-06-11T02:26:03.193Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Fix Facebook Story Not Uploading Problem"
 excerpt: "This Article Describes [New] Fix Facebook Story Not Uploading Problem"
 keywords: "FBStoryUploadError,FixFacebookStoryUpload,FixFBStoryUploadIssue,UnuploadingFBStory,ResolveFBStoryUpload,StopFBStoryNotLoading,CorrectFBStoryUploadFailure"
-thumbnail: https://www.lifewire.com/thmb/PtF89sPVGsFcCHgFGqq_voX3kVI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/patch-tuesday-2625783-d6bcf232b3c64fc5958037ad31299bd9.png
+thumbnail: https://thmb.techidaily.com/0e4e69a266c0e21cfaa72121cb274553aaa959ab8154e71b42e7a2317f1338de.png
 ---
 
 ## Fix Facebook Story Not Uploading Problem

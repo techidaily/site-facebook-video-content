@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Feature Music on Instant Stories"
-date: 2024-05-20T21:43:28.709Z
-updated: 2024-05-21T21:43:28.709Z
+date: 2024-06-10T02:26:03.232Z
+updated: 2024-06-11T02:26:03.232Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, How to Feature Music on Instant Stories"
 excerpt: "This Article Describes [New] In 2024, How to Feature Music on Instant Stories"
 keywords: "Music on InstaStories,Instagram Story Features,Song Showcasing in Stories,Featuring Audio Content,Integrating Songs Into IG,Music Videos for IG Stories,Promoting Tracks on Social Media"
-thumbnail: https://www.lifewire.com/thmb/FWDwuZy1CDGbqb0qwCy_mcmpESI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/best-sports-movies-creed-michael-b-jordan-cbca95120e5243edb7eca00403eaa626.jpg
+thumbnail: https://thmb.techidaily.com/efc3f590fc068b65cc8e4c4fda82884c66683db0be7b320fd391a90a34b6fb91.jpg
 ---
 
 ## How to Feature Music on Instant Stories

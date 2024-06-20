@@ -1,7 +1,7 @@
 ---
 title: "Finding the Perfect Video Dimensions on Facebook"
-date: 2024-05-20T20:53:19.033Z
-updated: 2024-05-21T20:53:19.033Z
+date: 2024-06-10T02:26:04.701Z
+updated: 2024-06-11T02:26:04.701Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Finding the Perfect Video Dimensions on Facebook"
 excerpt: "This Article Describes Finding the Perfect Video Dimensions on Facebook"
 keywords: "FB Video Sizing Guide,Optimal FB Video Length,Best FB Video Resolution,Adjust FB Video Aspect Ratio,Ideal FB Video Dimensions,Maximize FB Video Impact,Custom FB Video Size"
-thumbnail: https://www.lifewire.com/thmb/ReQPNO-ibbrLI7WMYu2BUkMpfrg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/router-99275904-5a8360cb1f4e130037c0aee3.jpg
+thumbnail: https://thmb.techidaily.com/fb4a67269b09db2a7f2f5849b8bae34d180258d63241c7d8da96fca41cce9da8.jpg
 ---
 
 ## Finding the Perfect Video Dimensions on Facebook

@@ -1,7 +1,7 @@
 ---
 title: "[New] Making MP3s From Your Facebook Videos with Ease for 2024"
-date: 2024-05-20T21:01:03.296Z
-updated: 2024-05-21T21:01:03.296Z
+date: 2024-06-10T02:25:58.281Z
+updated: 2024-06-11T02:25:58.281Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Making MP3s From Your Facebook Videos with Ease for 2024"
 excerpt: "This Article Describes [New] Making MP3s From Your Facebook Videos with Ease for 2024"
 keywords: "\"FB Video to MP3,Convert FB Videos,Easy MP3 Creation,YouTube-to-MP3,Social Media Audio,Facebook Video Extract,Quick MP3 Conversion\""
-thumbnail: https://www.lifewire.com/thmb/3Bke3hlqX0FGbXp2BrzfZHM5AKw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/is-discord-down-or-is-it-just-you-5025695-c342552e6c4c4383b284301c8b56d664.jpg
+thumbnail: https://thmb.techidaily.com/0f9975c7424be8ab80f0e3edfa04cf204d756fbbde35db8886dbe8cbc049b368.jpg
 ---
 
 ## Making MP3s From Your Facebook Videos with Ease

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Search People on Facebook Quickly (2 Ways Included)"
-date: 2024-05-20T21:06:04.025Z
-updated: 2024-05-21T21:06:04.025Z
+date: 2024-06-10T02:26:04.771Z
+updated: 2024-06-11T02:26:04.771Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, How to Search People on Facebook Quickly (2 Ways Included)"
 excerpt: "This Article Describes [New] In 2024, How to Search People on Facebook Quickly (2 Ways Included)"
 keywords: "Facebook Person Search Tips,Quick Facebook Name Lookup,Fast Find Friends on FB,Efficient Facebook People Search,FB Identify Contacts Swiftly,Instant Finder Friends on FB,Accelerated Friendsearch in FB"
-thumbnail: https://www.lifewire.com/thmb/NDRJDKRnbGaIn0aAuDiPaTuttRM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/vlogger_HeroImages_Getty-5a529982b39d0300376c3826.jpg
+thumbnail: https://thmb.techidaily.com/8952485f60295f3d1e3d2e7fb384d7f4849fc0ba1ac13c5b58f754ed696cbd0a.jpg
 ---
 
 ## Efficiently Explore Every Entry: Facebook Profile Hunt 101

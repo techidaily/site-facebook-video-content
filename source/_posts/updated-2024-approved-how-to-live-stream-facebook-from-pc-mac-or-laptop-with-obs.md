@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Live Stream Facebook From PC, Mac or Laptop with OBS\""
-date: 2024-05-20T21:04:52.077Z
-updated: 2024-05-21T21:04:52.077Z
+date: 2024-06-10T02:26:04.644Z
+updated: 2024-06-11T02:26:04.644Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: How to Live Stream Facebook From PC, Mac or Laptop with OBS\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: How to Live Stream Facebook From PC, Mac or Laptop with OBS\""
 keywords: "Facebook Live Streaming,OBS Live Broadcasting,PC/Mac/Laptop OBS Use,Live Stream Tech Guide,Facebook Video Streaming PC,Mac Live Stream with OBS,Laptop for Online Broadcasts"
-thumbnail: https://www.lifewire.com/thmb/RGG5Yrj4wygeHF_4EtUcyBLLzK8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2023-08-11at4.09.52PM-a2b7cc4dc04d49deac45f59296fd703f.jpg
+thumbnail: https://thmb.techidaily.com/e16b75fed413636ad54c914cb03e40ea47ab207cb6190aa0c6171995d867746d.jpg
 ---
 
 ## How to Live Stream Facebook From PC, Mac or Laptop with OBS

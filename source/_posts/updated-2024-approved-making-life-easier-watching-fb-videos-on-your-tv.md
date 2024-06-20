@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Making Life Easier  Watching FB Videos on Your TV\""
-date: 2024-05-20T20:49:12.938Z
-updated: 2024-05-21T20:49:12.938Z
+date: 2024-06-10T02:25:58.134Z
+updated: 2024-06-11T02:25:58.134Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Making Life Easier: Watching FB Videos on Your TV\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Making Life Easier: Watching FB Videos on Your TV\""
 keywords: "TVFBWatch,FBTVViewing,StreamFBEasy,TVFacebook,FBOnTvEase,ScreenFBStream,EasyFBTVShow"
-thumbnail: https://www.lifewire.com/thmb/is45Yw-eZ0hbBH1GVSPPw-e8Duo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-smart-tv-lifestyle-alt-5c89160046e0fb00013365c2.jpg
+thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879ccd1eca0b9ed1b9c559e12d9.jpg
 ---
 
 ## Making Life Easier: Watching FB Videos on Your TV

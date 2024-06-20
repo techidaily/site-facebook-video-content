@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, FB   A Resource for Video Discovery Enthusiasts\""
-date: 2024-05-20T22:22:08.792Z
-updated: 2024-05-21T22:22:08.792Z
+date: 2024-06-10T02:25:56.882Z
+updated: 2024-06-11T02:25:56.882Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, FB : A Resource for Video Discovery Enthusiasts\""
 excerpt: "\"This Article Describes [New] In 2024, FB : A Resource for Video Discovery Enthusiasts\""
 keywords: "FB Video Search,FB Discover Videos,FB Video Hub,FB Media Explore,FB Film Finder,FB Video Repository,FB Videostreaming"
-thumbnail: https://www.lifewire.com/thmb/K0DwKelWej40GlQ5GG81_hN0-Nk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-607477463-04c14d0af0554e4dbc78475df1409e5e.jpg
+thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201ddb10f4f23b159b9a8a8a69.jpg
 ---
 
 ## FB : A Resource for Video Discovery Enthusiasts

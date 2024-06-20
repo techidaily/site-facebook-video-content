@@ -1,7 +1,7 @@
 ---
 title: "Connecting TV Audiences to Facebook Live Shows"
-date: 2024-05-20T20:49:28.293Z
-updated: 2024-05-21T20:49:28.293Z
+date: 2024-06-10T02:25:57.618Z
+updated: 2024-06-11T02:25:57.618Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Connecting TV Audiences to Facebook Live Shows"
 excerpt: "This Article Describes Connecting TV Audiences to Facebook Live Shows"
 keywords: "\"TV-Live Streaming,FB Fan Engagement,Social Media Viewership,Livestream Show Promotion,TV Content Distribution,Live Shows on Facebook,Cross-Platform Audience Access\""
-thumbnail: https://www.lifewire.com/thmb/yVMmC6tCZRHR2am7ewQ_-YI7VsM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1391239642-072f579613f7404e9a0ea6ff66e70b74.jpg
+thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342cd4798dfe7202dea8939dfe.jpg
 ---
 
 ## Connecting TV Audiences to Facebook Live Shows

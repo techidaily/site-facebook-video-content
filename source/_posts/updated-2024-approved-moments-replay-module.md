@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Moments Replay Module\""
-date: 2024-05-20T22:15:36.320Z
-updated: 2024-05-21T22:15:36.320Z
+date: 2024-06-10T02:25:59.527Z
+updated: 2024-06-11T02:25:59.527Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Moments Replay Module\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Moments Replay Module\""
 keywords: "Moment Replay,Video Recap,Replay Footage,Memory Capture,Retrace Action,Playback Module,Screen Snapshot"
-thumbnail: https://www.lifewire.com/thmb/fwjxYQgD_kKyiPMDElCFrsJ-AUo=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/20tipsforsavingmoneyinyour20s-1f7fd5749e914e31b38747c400f07564.jpg
+thumbnail: https://thmb.techidaily.com/6f98ed833e99780ec633017bfd02ba19a6f592b2168edc5e24a71f77a22d913e.jpg
 ---
 
 ## Moments Replay Module

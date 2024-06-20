@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Ultimate Playlist to Share on FB Stories"
-date: 2024-05-20T20:51:45.329Z
-updated: 2024-05-21T20:51:45.329Z
+date: 2024-06-10T02:26:05.349Z
+updated: 2024-06-11T02:26:05.349Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, The Ultimate Playlist to Share on FB Stories"
 excerpt: "This Article Describes [New] In 2024, The Ultimate Playlist to Share on FB Stories"
 keywords: "Sharing FB Story List,Top Songs FB Story,Ultimate Music FB,Best Tunes for Screenshots,Popular Song Playlists,Shared Soundtracks FB,Trendy Tunes for Stories"
-thumbnail: https://www.lifewire.com/thmb/zj201Axi8jseO3Un9DsFf_rT4l8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-guest-mode-with-google-assistant-5112591-9-199dfa150c3a4f2cbaff3e8d93b358ef.jpg
+thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee536102fa45e6319038a39015f.jpg
 ---
 
 ## The Ultimate Playlist to Share on FB Stories

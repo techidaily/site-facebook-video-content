@@ -1,7 +1,7 @@
 ---
 title: "[New] Bridging Social Media & Television with Live Streaming"
-date: 2024-05-20T21:28:42.304Z
-updated: 2024-05-21T21:28:42.304Z
+date: 2024-06-10T02:26:06.148Z
+updated: 2024-06-11T02:26:06.148Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Bridging Social Media & Television with Live Streaming"
 excerpt: "This Article Describes [New] Bridging Social Media & Television with Live Streaming"
 keywords: "\"Social TV Live,Video Broadcasting,Real-Time Content Sharing,Cross-Media Engagement,Online Streaming Media,Interactive Viewership,Digital Broadcast Fusion\""
-thumbnail: https://www.lifewire.com/thmb/aaxHEgQKWsTUa3xjOYphr1B-IzA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-457316526-57deda085f9b58651650818c-5c62f2e346e0fb0001f2552f.jpg
+thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af9216aa863bdd663f250b5d16d.jpg
 ---
 
 ## Bridging Social Media & Television with Live Streaming

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Easy Steps to Locate Recently Viewed Videos by You on FB\""
-date: 2024-05-20T21:55:06.481Z
-updated: 2024-05-21T21:55:06.481Z
+date: 2024-06-10T02:25:59.931Z
+updated: 2024-06-11T02:25:59.931Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Easy Steps to Locate Recently Viewed Videos by You on FB\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Easy Steps to Locate Recently Viewed Videos by You on FB\""
 keywords: "Find FB Watched Videos,Video Search FB History,Track FB Viewed Content,Locate FB Watch List,Access Recent Video FB,Uncover FB Seen Media,Discover FB Viewing History"
-thumbnail: https://www.lifewire.com/thmb/xDM-B4zVSXt5n027L2C5oNwTDN8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AIrendering_CROPPED_Guillaume_GettyImages-1418477818-d0a9c5ce09584a1099f21a5f1f690a88.jpg
+thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304ad9ab12b451e3ff69d2619e.jpg
 ---
 
 ## Easy Steps to Locate Recently Viewed Videos by You on FB

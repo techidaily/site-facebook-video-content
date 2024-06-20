@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Resolve Non-Playing Facebook Video Issues (Android/iOS)\""
-date: 2024-05-20T21:10:49.930Z
-updated: 2024-05-21T21:10:49.930Z
+date: 2024-06-10T02:25:56.988Z
+updated: 2024-06-11T02:25:56.988Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Resolve Non-Playing Facebook Video Issues (Android/iOS)\""
 excerpt: "\"This Article Describes 2024 Approved: Resolve Non-Playing Facebook Video Issues (Android/iOS)\""
 keywords: "Fix FB Video Play,Stop Fb Video Issue,Resolve FB Video Errors,Android FB Video Fix,IOS Fb Video Problem,Unblock FB Video,Correct FB Video Play"
-thumbnail: https://www.lifewire.com/thmb/uGlcYv-L56dzHpQafRHSaTb_cq8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-527803604-ad6f389c89ff4be1b953a3c2cdc64c09.jpg
+thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c465cacef45307df647411ca.jpg
 ---
 
 ## Resolve Non-Playing Facebook Video Issues (Android/iOS)

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Getting It Just Right  The Art of Social Media Video Dimensions\""
-date: 2024-05-20T21:09:24.231Z
-updated: 2024-05-21T21:09:24.231Z
+date: 2024-06-10T02:26:05.620Z
+updated: 2024-06-11T02:26:05.620Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Getting It Just Right: The Art of Social Media Video Dimensions\""
 excerpt: "\"This Article Describes 2024 Approved: Getting It Just Right: The Art of Social Media Video Dimensions\""
 keywords: "\"Social Media Video Sizes,Optimal Video Dims (Social),Perfect Video Aspect Ratio,Social Vids Right Size,Ideal Video Width Height,Correct Video Length,Best Videowide: Social Media Art\""
-thumbnail: https://www.lifewire.com/thmb/2m05dVVztrBUitNNvZLnp-qDPy4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/artificialintelligenceledeimage-134b9fe3292242f199bc572445a0c5e2.jpg
+thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b625ba034a78a3512eb4d83268.jpg
 ---
 
 ## Getting It Just Right: The Art of Social Media Video Dimensions

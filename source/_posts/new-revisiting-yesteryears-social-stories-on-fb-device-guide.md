@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Revisiting Yesteryear's Social Stories on FB  Device Guide\""
-date: 2024-05-20T21:15:53.201Z
-updated: 2024-05-21T21:15:53.201Z
+date: 2024-06-10T02:25:57.296Z
+updated: 2024-06-11T02:25:57.296Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Revisiting Yesteryear's Social Stories on FB: Device Guide\""
 excerpt: "\"This Article Describes [New] Revisiting Yesteryear's Social Stories on FB: Device Guide\""
 keywords: "Facebook Story Tips,Social Media Update,Old FB Features,Memoir Posting Guide,Nostalgic Stories,FBSocial Updates,Timeless Facebook Guide"
-thumbnail: https://www.lifewire.com/thmb/hHvRn_o6AyGq97eyCxPfzUgw-Ok=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Pen-Signing-Paper-Tetra-Images-Getty-140193384-56a1c2d15f9b58b7d0c2595a.jpg
+thumbnail: https://thmb.techidaily.com/d6c8d5c25a5b3ae8109b2957c3f404be919cf133b41c5b6f6638a7ed5bc1223b.jpg
 ---
 
 ## Revisiting Yesteryear's Social Stories on FB: Device Guide

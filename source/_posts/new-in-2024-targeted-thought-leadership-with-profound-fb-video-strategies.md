@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Targeted Thought Leadership with Profound FB Video Strategies"
-date: 2024-05-20T21:59:22.515Z
-updated: 2024-05-21T21:59:22.515Z
+date: 2024-06-10T02:26:01.228Z
+updated: 2024-06-11T02:26:01.228Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Targeted Thought Leadership with Profound FB Video Strategies"
 excerpt: "This Article Describes [New] In 2024, Targeted Thought Leadership with Profound FB Video Strategies"
 keywords: "Thought Leadership Videos,Targeted Business Insights,Facebook Marketing Tactics,Profound Video Strategy,Engaging FB Content Creation,Influencer Video Outreach,Social Media Video Ideas"
-thumbnail: https://www.lifewire.com/thmb/5SN5dRiuZtacam6VZ9o8vqSqyG8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-556936833-5c621b84c9e77c0001d9315f.jpg
+thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc49ac8140b1c1038ab7e89004.jpg
 ---
 
 ## Targeted Thought Leadership with Profound FB Video Strategies

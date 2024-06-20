@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Medium Article Imagery Scales"
-date: 2024-05-20T21:46:48.730Z
-updated: 2024-05-21T21:46:48.730Z
+date: 2024-06-10T02:25:59.321Z
+updated: 2024-06-11T02:25:59.321Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Medium Article Imagery Scales"
 excerpt: "This Article Describes In 2024, Medium Article Imagery Scales"
 keywords: "Image Scaling Medium,Article Image Resize,Scale Images Wide,Imagery Enlargement,Visual Aspects Increase,Graphics Upgrade Size,Picture Dimension Growth"
-thumbnail: https://www.lifewire.com/thmb/vb8EXUrtW_UZX4cSF-dcsLm6zRU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-988417820-5b4bcb16c9e77c0037fc2245.jpg
+thumbnail: https://thmb.techidaily.com/80fee98e39755278bb461fd482dd243762bcc8eb6156836ba9860fa44be8739e.jpg
 ---
 
 ## Medium Article Imagery Scales

@@ -1,7 +1,7 @@
 ---
 title: "[New] Easy Extraction of Social Media Videos with Chrome Plugs for 2024"
-date: 2024-05-20T21:17:26.414Z
-updated: 2024-05-21T21:17:26.414Z
+date: 2024-06-10T02:26:03.364Z
+updated: 2024-06-11T02:26:03.364Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Easy Extraction of Social Media Videos with Chrome Plugs for 2024"
 excerpt: "This Article Describes [New] Easy Extraction of Social Media Videos with Chrome Plugs for 2024"
 keywords: "\"Social Video Extract,Chrome Video Tool,Easy Media Extract,Chrome Video Extract,Simple Media Grab,Online Video Cutter,Quick Media Plug-In\""
-thumbnail: https://www.lifewire.com/thmb/Wk0sCaqIKiS3xsggdQ99H21o1LU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/LG-ESPN-Plus2-5a613f28564249e38ef803888f21e257.jpg
+thumbnail: https://thmb.techidaily.com/0afe9beb0b64de5cc7a966e66ff258745b01178cdcf2e21c94344294b5560911.jpg
 ---
 
 ## Easy Extraction of Social Media Videos with Chrome Plugs

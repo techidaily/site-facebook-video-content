@@ -1,7 +1,7 @@
 ---
 title: "\"[New] What's The Best Orientation  Horizontal/Vertical on Facebook?\""
-date: 2024-05-20T20:39:25.214Z
-updated: 2024-05-21T20:39:25.214Z
+date: 2024-06-10T02:26:06.223Z
+updated: 2024-06-11T02:26:06.223Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] What's The Best Orientation: Horizontal/Vertical on Facebook?\""
 excerpt: "\"This Article Describes [New] What's The Best Orientation: Horizontal/Vertical on Facebook?\""
 keywords: "FB Orientation Tips,Post Layout Optimization,Vertical Vs. Horizontal FB,Enhance FB Imagery,Optimal FB Content Placement,Maximize Engagement on FB,FB Post Strategies"
-thumbnail: https://www.lifewire.com/thmb/aRH6vOV_0jBflE3kV0tZyaKc5sA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/computergirl-5a4c08d45b6e24003798be4a.jpg
+thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf3323b4c96e24f50d5adccd843.jpg
 ---
 
 ## What's The Best Orientation: Horizontal/Vertical on Facebook?

@@ -1,7 +1,7 @@
 ---
 title: "\"Master 10 Social-Media Movies\""
-date: 2024-05-20T21:10:28.139Z
-updated: 2024-05-21T21:10:28.139Z
+date: 2024-06-10T02:26:02.758Z
+updated: 2024-06-11T02:26:02.758Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Master 10 Social-Media Movies\""
 excerpt: "\"This Article Describes Master 10 Social-Media Movies\""
 keywords: "SocialMediaMovies,MovieTrends,FilmSocialMedia,PopCultureReels,EntertainmentVids,CinemaEngagement,MOVEiMsInspiration"
-thumbnail: https://www.lifewire.com/thmb/sPXzCSZ7OsfyIg4VwzEwTRNYrhU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-558946397-594822905f9b58d58ac71444.jpg
+thumbnail: https://thmb.techidaily.com/c625d72d0946f66f9247899cc6c4c66eb70d8cf37963b2732e636693601b56f7.jpg
 ---
 
 ## Master 10 Social-Media Movies

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Investigating FB Video Shape Variance"
-date: 2024-05-20T22:22:54.283Z
-updated: 2024-05-21T22:22:54.283Z
+date: 2024-06-10T02:26:02.085Z
+updated: 2024-06-11T02:26:02.085Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Investigating FB Video Shape Variance"
 excerpt: "This Article Describes In 2024, Investigating FB Video Shape Variance"
 keywords: "FB Video Variance Study,Video Shape Analysis FB,FB Video Quality Check,Shapes in FB Videos,Video Formats FB Research,Facebook Video Shape Test,Examining FB Video Design"
-thumbnail: https://www.lifewire.com/thmb/UrjQQFvusVB9PNcHD5UDh3sS0Vc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Phone-2-PDP-Glyph-41dfdb6657bc4204828c4686027dfa5c.jpg
+thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d279883606cc35ff29b3863a4d78b16e.jpg
 ---
 
 ## Investigating FB Video Shape Variance

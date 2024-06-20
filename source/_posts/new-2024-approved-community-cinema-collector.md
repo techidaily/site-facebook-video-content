@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Community Cinema Collector\""
-date: 2024-05-20T22:09:07.361Z
-updated: 2024-05-21T22:09:07.361Z
+date: 2024-06-10T02:26:04.284Z
+updated: 2024-06-11T02:26:04.284Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Community Cinema Collector\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Community Cinema Collector\""
 keywords: "Film Fan Club,Movie Memorabilia,Cinemagoer Community,Film Archive Enthusiast,Cinema History Aficionado,Movie Collector Circle,Classic Films Lover"
-thumbnail: https://www.lifewire.com/thmb/ik2TzfdHbMhMfL1m9s9Ist7Wp50=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/high-angle-blurred-view-of-pillars-in-world-map-shape-591407485-57d88e6a5f9b589b0a0a641b.jpg
+thumbnail: https://thmb.techidaily.com/029ba41f4072a625a12663e242fe0241f864e3cc7e4fb5de060add9d7faf8df5.jpg
 ---
 
 ## Community Cinema Collector
