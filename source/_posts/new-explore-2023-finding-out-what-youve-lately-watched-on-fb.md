@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Explore 2023  Finding Out What You've Lately Watched on Fb\""
-date: 2024-05-20T22:12:18.621Z
-updated: 2024-05-21T22:12:18.621Z
+date: 2024-06-26T19:10:59.582Z
+updated: 2024-06-27T19:10:59.582Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Explore 2023: Finding Out What You've Lately Watched on Fb\""
 excerpt: "\"This Article Describes [New] Explore 2023: Finding Out What You've Lately Watched on Fb\""
 keywords: "Fb Watch History 2023,Latest FB Videos,FB Recent Views Guide,Uncover FB Content 2023,FB Watch List Update,Facebook Viewing Insights 2023,What's New on Your Fb Screen"
-thumbnail: https://www.lifewire.com/thmb/9nxAVZKOxRuI6narBFkF2c9c9_E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-585151372-a659baf0c7b441b9b7e7896716b12784.jpg
+thumbnail: https://thmb.techidaily.com/d52ef143e5ac406fb5edcd5e28a24a2a1379f299efd751d4b382d0440e3e89ad.jpg
 ---
 
 ## Explore 2023: Finding Out What You've Lately Watched on Fb

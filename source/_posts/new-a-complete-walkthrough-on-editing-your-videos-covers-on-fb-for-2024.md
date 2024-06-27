@@ -1,7 +1,7 @@
 ---
 title: "[New] A Complete Walkthrough on Editing Your Videos' Covers on FB for 2024"
-date: 2024-05-20T22:27:17.827Z
-updated: 2024-05-21T22:27:17.827Z
+date: 2024-06-26T19:11:05.245Z
+updated: 2024-06-27T19:11:05.245Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes [New] A Complete Walkthrough on Editing Your Videos' Covers on FB for 2024"
 excerpt: "This Article Describes [New] A Complete Walkthrough on Editing Your Videos' Covers on FB for 2024"
 keywords: "Video Cover Edits FB Guide,FB Video Covers Update Tutorial,Master FB Video Cover Updates,Enhance Facebook Video Covers,Editing FB Videos' Covers Quickly,Learn FB Video Cover Images,Optimize FB Video Cover Designs"
-thumbnail: https://www.lifewire.com/thmb/_wwVT4o2gVZBhxBpU7jNydZ5EEY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/gettyimages-612441534-2000-915697f3325a4f2f9c1f2822c925a493.jpg
+thumbnail: https://thmb.techidaily.com/769d83492280fd0660acd0112190d1d990d0e4305860168c39e79719f29b2ea7.jpg
 ---
 
 ## A Complete Walkthrough on Editing Your Videos' Covers on FB
 
-# How to Create and Change Video Cover on Facebook
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create and Change Video Cover on Facebook ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -37,7 +35,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 
@@ -81,9 +79,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 **Step 3:**  You can type an update (optional) and then enter the video tags and video title
 
-**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
-
-![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
+**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover ![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
 
 **Step 5:**  Click the **Publish** button.
 
@@ -91,13 +87,9 @@ The uploaded videos would appear in your video library. In case you want to chan
 
 * Click the ‘Publishing Tools’ on the top of your FB Page
 * Click the ‘Video Library’ on the left
-* Check the box beside the video you want to edit
+* Check the box beside the video you want to edit ![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
 
-![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
-
-* In the Basic tab, choose Custom for selecting a new video cover
-
-![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
+* In the Basic tab, choose Custom for selecting a new video cover ![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -131,7 +123,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 
@@ -175,9 +167,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 **Step 3:**  You can type an update (optional) and then enter the video tags and video title
 
-**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
-
-![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
+**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover ![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
 
 **Step 5:**  Click the **Publish** button.
 
@@ -185,13 +175,9 @@ The uploaded videos would appear in your video library. In case you want to chan
 
 * Click the ‘Publishing Tools’ on the top of your FB Page
 * Click the ‘Video Library’ on the left
-* Check the box beside the video you want to edit
+* Check the box beside the video you want to edit ![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
 
-![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
-
-* In the Basic tab, choose Custom for selecting a new video cover
-
-![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
+* In the Basic tab, choose Custom for selecting a new video cover ![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -225,7 +211,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 
@@ -269,9 +255,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 **Step 3:**  You can type an update (optional) and then enter the video tags and video title
 
-**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
-
-![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
+**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover ![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
 
 **Step 5:**  Click the **Publish** button.
 
@@ -279,13 +263,9 @@ The uploaded videos would appear in your video library. In case you want to chan
 
 * Click the ‘Publishing Tools’ on the top of your FB Page
 * Click the ‘Video Library’ on the left
-* Check the box beside the video you want to edit
+* Check the box beside the video you want to edit ![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
 
-![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
-
-* In the Basic tab, choose Custom for selecting a new video cover
-
-![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
+* In the Basic tab, choose Custom for selecting a new video cover ![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -319,7 +299,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 
@@ -363,9 +343,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 **Step 3:**  You can type an update (optional) and then enter the video tags and video title
 
-**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
-
-![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
+**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover ![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
 
 **Step 5:**  Click the **Publish** button.
 
@@ -373,13 +351,9 @@ The uploaded videos would appear in your video library. In case you want to chan
 
 * Click the ‘Publishing Tools’ on the top of your FB Page
 * Click the ‘Video Library’ on the left
-* Check the box beside the video you want to edit
+* Check the box beside the video you want to edit ![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
 
-![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
-
-* In the Basic tab, choose Custom for selecting a new video cover
-
-![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
+* In the Basic tab, choose Custom for selecting a new video cover ![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 

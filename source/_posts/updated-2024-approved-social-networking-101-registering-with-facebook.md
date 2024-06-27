@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Social Networking 101  Registering with Facebook\""
-date: 2024-05-20T21:42:23.274Z
-updated: 2024-05-21T21:42:23.274Z
+date: 2024-06-26T19:11:06.996Z
+updated: 2024-06-27T19:11:06.996Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Social Networking 101: Registering with Facebook\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Social Networking 101: Registering with Facebook\""
 keywords: "\"Facebook Registration Guide,Basic Facebook Sign-Up,Learn Facebook Login,Joining Facebook Quickly,First Facebook Account Setup,Facebook User Registration,Mastering Facebook Create Account\""
-thumbnail: https://www.lifewire.com/thmb/LSRhv9V0PxzBAHOqiakqf0M89LI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1302402871-ea3debd2e3c64ec5a78a99e580b6a8d1.jpg
+thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a96b142f6b85654b12ef9f8e.jpg
 ---
 
 ## Social Networking 101: Registering with Facebook
 
-# How to Create a Facebook Account
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create a Facebook Account ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

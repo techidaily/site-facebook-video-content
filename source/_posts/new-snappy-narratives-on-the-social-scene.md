@@ -1,7 +1,7 @@
 ---
 title: "[New] Snappy Narratives on the Social Scene"
-date: 2024-05-20T22:18:57.504Z
-updated: 2024-05-21T22:18:57.504Z
+date: 2024-06-26T19:11:11.708Z
+updated: 2024-06-27T19:11:11.708Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Snappy Narratives on the Social Scene"
 excerpt: "This Article Describes [New] Snappy Narratives on the Social Scene"
 keywords: "Snappy Stories Socia,Social Media Tales,Quick Storytelling,Engaging Social Narr,Social Bites,Short Social Scenes,Dynamic Social Plot"
-thumbnail: https://www.lifewire.com/thmb/Y_fXqpvhyxw4rOeBd7HZnANUFdw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/image-twitchnerdhug-59e702d3af5d3a00108ee26e.jpg
+thumbnail: https://thmb.techidaily.com/0a7e98a47c507ce4d17e40879eab668bc44ad83b05fd8fefcba56a2f27460108.jpg
 ---
 
 ## Snappy Narratives on the Social Scene

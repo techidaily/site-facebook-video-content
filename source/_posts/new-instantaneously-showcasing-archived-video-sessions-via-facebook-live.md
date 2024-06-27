@@ -1,7 +1,7 @@
 ---
 title: "[New] Instantaneously Showcasing Archived Video Sessions via Facebook Live"
-date: 2024-05-20T22:03:41.445Z
-updated: 2024-05-21T22:03:41.445Z
+date: 2024-06-26T19:11:11.389Z
+updated: 2024-06-27T19:11:11.389Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Instantaneously Showcasing Archived Video Sessions via Facebook Live"
 excerpt: "This Article Describes [New] Instantaneously Showcasing Archived Video Sessions via Facebook Live"
 keywords: "Instant Video Upload,Facebook Archived Playback,Easy Live Session Sharing,Social Media Video History,Quick Archival Streaming,Instant FB Video Display,Live Content Backup Access"
-thumbnail: https://www.lifewire.com/thmb/JfTrm4WVuA4GLndGfEGPLDRQMAE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/AIrendering_CROPPED_Guillaume_GettyImages-1418477818-d0a9c5ce09584a1099f21a5f1f690a88.jpg
+thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4406254504ec111012f48674.jpg
 ---
 
 ## Instantaneously Showcasing Archived Video Sessions via Facebook Live

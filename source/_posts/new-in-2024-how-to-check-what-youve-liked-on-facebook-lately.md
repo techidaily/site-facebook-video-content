@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How To Check What You've Liked on Facebook Lately"
-date: 2024-05-20T22:18:08.060Z
-updated: 2024-05-21T22:18:08.060Z
+date: 2024-06-26T19:11:01.967Z
+updated: 2024-06-27T19:11:01.967Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, How To Check What You've Liked on Facebook Lately"
 excerpt: "This Article Describes [New] In 2024, How To Check What You've Liked on Facebook Lately"
 keywords: "Facebook Like History,Tracking FB Likes,View Past Likes FB,Recent Facebook Likes,Find Liked Content FB,Check FB Likes Status,Latest Liked FB Posts"
-thumbnail: https://www.lifewire.com/thmb/DyoHit2PNu7-aSHxtkhq-lAOR7c=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-459261809-357446c3aca34ee38c08d3aebe7502f3.jpg
+thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e970aa7acf9eb30479f71c91.jpg
 ---
 
 ## How To Check What You've Liked on Facebook Lately

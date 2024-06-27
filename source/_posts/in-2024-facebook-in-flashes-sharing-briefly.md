@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Facebook in Flashes  Sharing Briefly\""
-date: 2024-05-20T21:10:39.645Z
-updated: 2024-05-21T21:10:39.645Z
+date: 2024-06-26T19:10:59.764Z
+updated: 2024-06-27T19:10:59.764Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Facebook in Flashes: Sharing Briefly\""
 excerpt: "\"This Article Describes In 2024, Facebook in Flashes: Sharing Briefly\""
 keywords: "Facebook Flash Insights,Social Share Snapshots,Instant Post Highlights,Brief Content Broadcast,Quick Share Analysis,Ephemeral Sharing Trends,Transient Tweet Insights"
-thumbnail: https://www.lifewire.com/thmb/hKJTuEVzV6p-Fb2_eHm5RnTslKo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/oldkeyboard01-94cacfa0b7874199899336292b82207f.jpg
+thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d25c3ac4b8799745512b0ec6.jpg
 ---
 
 ## Facebook in Flashes: Sharing Briefly

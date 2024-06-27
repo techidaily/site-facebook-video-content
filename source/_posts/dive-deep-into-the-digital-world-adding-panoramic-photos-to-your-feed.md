@@ -1,7 +1,7 @@
 ---
 title: "\"Dive Deep Into the Digital World  Adding Panoramic Photos to Your Feed\""
-date: 2024-06-10T02:25:59.557Z
-updated: 2024-06-11T02:25:59.557Z
+date: 2024-06-26T19:11:10.242Z
+updated: 2024-06-27T19:11:10.242Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
 ## Dive Deep Into the Digital World: Adding Panoramic Photos to Your Feed
 
-# How to Post 360 Photos on iOS/Android to Facebook
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Post 360 Photos on iOS/Android to Facebook ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

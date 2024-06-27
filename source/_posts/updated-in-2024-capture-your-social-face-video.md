@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Capture Your Social Face Video"
-date: 2024-05-20T22:12:40.754Z
-updated: 2024-05-21T22:12:40.754Z
+date: 2024-06-26T19:10:57.839Z
+updated: 2024-06-27T19:10:57.839Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Capture Your Social Face Video"
 excerpt: "This Article Describes [Updated] In 2024, Capture Your Social Face Video"
 keywords: "\"Social Media Video,Facial Recording Tips,Personalized Video Content,Engage Through Selfies,Virtual Self Portraits,Interactive Online Profile,Face-Captured Videos\""
-thumbnail: https://www.lifewire.com/thmb/-ThKOyQrfyqXETlLY93kVTnH7wA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/SamsungTab-screenshot.-5af9ed596bf0690036f87481.jpg
+thumbnail: https://thmb.techidaily.com/e12cb801e0d6f6813ed277d29658e5821adadea3db742df23467e5bb2d5168a7.jpg
 ---
 
 ## Capture Your Social Face Video

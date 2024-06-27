@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Permissions for Posting Videos on FB"
-date: 2024-05-20T20:48:46.034Z
-updated: 2024-05-21T20:48:46.034Z
+date: 2024-06-26T19:11:01.855Z
+updated: 2024-06-27T19:11:01.855Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Permissions for Posting Videos on FB"
 excerpt: "This Article Describes [Updated] Permissions for Posting Videos on FB"
 keywords: "Video FB Sharing Perms,FB Video Post Rights,Share FB Video Access,FB Post Video Consent,Access FB for Video Upload,Facebook Video Posting Permission,FB Video Permissions Update"
-thumbnail: https://www.lifewire.com/thmb/Pb5zO1GNPyBGQRr3Uny72CPxxAc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/004-how-to-see-everyone-on-google-meet-5088410-3eeb6cb239b84b20a4eb9c000cf45dd7.jpg
+thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e985940c7f874a6ef2e9aec11a.jpg
 ---
 
 ## Permissions for Posting Videos on FB

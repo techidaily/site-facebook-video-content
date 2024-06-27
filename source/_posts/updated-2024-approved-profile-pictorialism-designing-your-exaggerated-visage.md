@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Profile Pictorialism  Designing Your Exaggerated Visage\""
-date: 2024-05-20T22:11:46.704Z
-updated: 2024-05-21T22:11:46.704Z
+date: 2024-06-26T19:11:00.039Z
+updated: 2024-06-27T19:11:00.039Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://www.lifewire.com/thmb/NVQV94uUNJgi-aiAltvEXSmbmok=/400x300/fi
 
 ## Profile Pictorialism: Designing Your Exaggerated Visage
 
-# Facebook Avatar: Create Your Own Cartoonish Character
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Facebook Avatar: Create Your Own Cartoonish Character ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

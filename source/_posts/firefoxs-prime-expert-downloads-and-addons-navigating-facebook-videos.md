@@ -1,7 +1,7 @@
 ---
 title: "\"Firefox's Prime  Expert Downloads & Addons Navigating Facebook Videos\""
-date: 2024-05-20T21:10:26.908Z
-updated: 2024-05-21T21:10:26.908Z
+date: 2024-06-26T19:11:03.840Z
+updated: 2024-06-27T19:11:03.840Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Firefox's Prime: Expert Downloads & Addons Navigating Facebook Videos\""
 excerpt: "\"This Article Describes Firefox's Prime: Expert Downloads & Addons Navigating Facebook Videos\""
 keywords: "Firefox Prime Addons,Facebook Video Downloader,YouTube Browser Extension,Firefox Video Adjustments,Secure Download Tool,Social Media Content Management,Integrated Network Enhancement"
-thumbnail: https://www.lifewire.com/thmb/HJ5yFY21dtVXO35VKLNAMeF-Ne8=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/PhiwathJittamas_GettyImages-1411973451_CROPPED-6da29e2c2807406bb9ac557cb2920e1d.jpg
+thumbnail: https://thmb.techidaily.com/c4666c711fc9c9a338b2d08e469c371e9c8d5fe0d21f3a3c14a777e4b40a0530.jpg
 ---
 
 ## Firefox's Prime: Expert Downloads & Addons Navigating Facebook Videos

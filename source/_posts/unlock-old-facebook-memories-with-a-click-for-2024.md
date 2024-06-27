@@ -1,7 +1,7 @@
 ---
 title: "Unlock Old Facebook Memories with a Click for 2024"
-date: 2024-05-20T22:06:32.548Z
-updated: 2024-05-21T22:06:32.548Z
+date: 2024-06-26T19:11:06.096Z
+updated: 2024-06-27T19:11:06.096Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes Unlock Old Facebook Memories with a Click for 2024"
 excerpt: "This Article Describes Unlock Old Facebook Memories with a Click for 2024"
 keywords: "Unlock FB Memories,Click to Recall FB Past,Access Old FB Content,Revisit Fb Old Posts,Unlock Memories on Facebook,Easily View Previous FB Activity,Click to Find Lost FB Moments"
-thumbnail: https://www.lifewire.com/thmb/-7I7qw8qf-KKeWnTjg9wwLwcd3E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Selfie-Stick-Tips-56a761cf5f9b58b7d0e9fa52.jpg
+thumbnail: https://thmb.techidaily.com/51471ca8a7054ce3eae075b674d92ea208c6509841b94168b4ee14b78abb841b.jpg
 ---
 
 ## Unlock Old Facebook Memories with a Click
 
-# How to See Old Stories on Facebook: Find Story Archive Easily
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to See Old Stories on Facebook: Find Story Archive Easily ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

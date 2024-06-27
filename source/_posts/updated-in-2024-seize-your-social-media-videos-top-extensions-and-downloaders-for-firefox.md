@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Seize Your Social Media Videos! Top Extensions and Downloaders for Firefox"
-date: 2024-05-20T22:09:28.223Z
-updated: 2024-05-21T22:09:28.223Z
+date: 2024-06-26T19:11:07.410Z
+updated: 2024-06-27T19:11:07.410Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Seize Your Social Media Videos! Top Extensions and Downloaders for Firefox"
 excerpt: "This Article Describes [Updated] In 2024, Seize Your Social Media Videos! Top Extensions and Downloaders for Firefox"
 keywords: "Video Downloader,Social Media Tools,Firefox Extensions,SEO Video,Download Firefox,Video Share,Top Video Apps"
-thumbnail: https://www.lifewire.com/thmb/BFplsHvF2W-tN_GPJVyxOAwi8YM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/E-reader-57b936e05f9b58cdfd3e07e1.jpg
+thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e4304dfa4fcbf005c1298bed966.jpg
 ---
 
 ## Seize Your Social Media Videos! Top Extensions and Downloaders for Firefox

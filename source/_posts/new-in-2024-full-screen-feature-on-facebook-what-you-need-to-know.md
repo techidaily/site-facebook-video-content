@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Full-Screen Feature on Facebook  What You Need to Know\""
-date: 2024-05-20T22:05:34.477Z
-updated: 2024-05-21T22:05:34.477Z
+date: 2024-06-26T19:11:05.022Z
+updated: 2024-06-27T19:11:05.022Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Full-Screen Feature on Facebook: What You Need to Know\""
 excerpt: "\"This Article Describes [New] In 2024, Full-Screen Feature on Facebook: What You Need to Know\""
 keywords: "FB Full Screen,Social Media Viewing,Advertising Format,Digital Display Mode,Interface Expansion,Facebook Experience,Content Engagement"
-thumbnail: https://www.lifewire.com/thmb/kzhXnto5YaKtx2YNWpCRYXSY7Jo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/watchdiscoveryplusonfiretv-80c6af19513042b381046dbca54d43d3.jpg
+thumbnail: https://thmb.techidaily.com/2d4ed2db997a07df0abbc5f08371a080eeac3562475afaa223146d9d0657f5f7.jpg
 ---
 
 ## Full-Screen Feature on Facebook: What You Need to Know

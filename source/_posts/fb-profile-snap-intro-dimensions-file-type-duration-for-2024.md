@@ -1,7 +1,7 @@
 ---
 title: "\"FB Profile Snap Intro  Dimensions, File Type, Duration for 2024\""
-date: 2024-05-20T20:44:21.649Z
-updated: 2024-05-21T20:44:21.649Z
+date: 2024-06-26T19:11:08.890Z
+updated: 2024-06-27T19:11:08.890Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes FB Profile Snap Intro: Dimensions, File Type, Duration for 2024\""
 excerpt: "\"This Article Describes FB Profile Snap Intro: Dimensions, File Type, Duration for 2024\""
 keywords: "FB Profile Snap Intruction,Profile Snap Overview,Social Media Snapshot,Snap Intro Dimensions,Image Format Snap,Snapshot Duration Length,Profile Picture Snap Guide"
-thumbnail: https://www.lifewire.com/thmb/U8AXWKvZg5t_dUxVMLSCJvEmZcc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/the-best-instagram-apps-to-boost-engagement-4584385-1-5c45f1d8c9e77c000141b9a3-a2c3c73f378d4638ac2c94996c5d32d6.jpg
+thumbnail: https://thmb.techidaily.com/51ce8e2d4e344c8b82645f25a39faba4287a1c5da16a59ee967932588d09ef10.jpg
 ---
 
 ## FB Profile Snap Intro: Dimensions, File Type, Duration

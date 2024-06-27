@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Digital Doppelganger Designs  Sketching an Animated Self\""
-date: 2024-05-20T21:58:59.988Z
-updated: 2024-05-21T21:58:59.988Z
+date: 2024-06-26T19:11:05.218Z
+updated: 2024-06-27T19:11:05.218Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [New] In 2024, Digital Doppelganger Designs: Sketching an Animated Self\""
 excerpt: "\"This Article Describes [New] In 2024, Digital Doppelganger Designs: Sketching an Animated Self\""
 keywords: "\"Anime Self Portrait,Digital Avatar Creation,Sketched Animated Identity,Virtual Character Design,Personalized Animation,Self-Portrait in Animation,Illustrated Digital Doppelganger\""
-thumbnail: https://www.lifewire.com/thmb/h57-lIQDvScITgWTh6KzTC1eTDc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Download-WhatsApp-For-Mac-Website-8424741-17919dc136494cc09a3924b885d17a6c.jpg
+thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30f3dde81226f486e6ab605fb.jpg
 ---
 
 ## Digital Doppelganger Designs: Sketching an Animated Self
 
-# Facebook Avatar: Create Your Own Cartoonish Character
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Facebook Avatar: Create Your Own Cartoonish Character ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
