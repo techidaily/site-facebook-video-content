@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Leading the Virtual Conversation with Social Media"
-date: 2024-05-20T22:00:25.762Z
-updated: 2024-05-21T22:00:25.762Z
+date: 2024-06-19T05:34:42.850Z
+updated: 2024-06-20T05:34:42.850Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Leading the Virtual Conversation with Social Media"
 excerpt: "This Article Describes [Updated] In 2024, Leading the Virtual Conversation with Social Media"
 keywords: "Virtual Leadership,Social Media Chat,Digital Communication,Online Engagement,Social Influence,Web Conversations,Platform Dialogue"
-thumbnail: https://www.lifewire.com/thmb/EXGWpSyhQVHE5qyXOS4fBPnp23o=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/5365WomanworkingonSpaceGrayMacBook-840cbcd31a35450fb53c51b287f6ea6d.jpg
+thumbnail: https://thmb.techidaily.com/aa9290eddc8ec2cc97b63ee765b598d95b8b81e9c2cca36d2d92b110af8ad1f5.jpg
 ---
 
 ## Leading the Virtual Conversation with Social Media

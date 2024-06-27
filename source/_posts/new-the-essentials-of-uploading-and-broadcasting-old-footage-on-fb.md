@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essentials of Uploading and Broadcasting Old Footage on FB"
-date: 2024-05-20T22:24:27.861Z
-updated: 2024-05-21T22:24:27.861Z
+date: 2024-06-19T05:34:44.600Z
+updated: 2024-06-20T05:34:44.600Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] The Essentials of Uploading and Broadcasting Old Footage on FB"
 excerpt: "This Article Describes [New] The Essentials of Uploading and Broadcasting Old Footage on FB"
 keywords: "Fb Video Upload Guide,Broadcast Classic Footage,FB Media Sharing Tips,Share Vintage Videos FB,Old Clips on Facebook,Archive & Stream Vids FB,Retro Film Broadcast FB"
-thumbnail: https://www.lifewire.com/thmb/Z9p2yelev5XjoupT3HWfYtADBRA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/saveps4gameplay-fe5d19b66a8e46bc8fec8350be2feadb.jpg
+thumbnail: https://thmb.techidaily.com/fdc25fa9e7d76ca87920564362f13d91c2db273783ec5bcb39c2377739cf581a.jpg
 ---
 
 ## The Essentials of Uploading and Broadcasting Old Footage on FB

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Discovering Your Lately Watched Fb Movies Made Simple"
-date: 2024-05-20T21:13:39.952Z
-updated: 2024-05-21T21:13:39.952Z
+date: 2024-06-19T05:34:42.561Z
+updated: 2024-06-20T05:34:42.561Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Discovering Your Lately Watched Fb Movies Made Simple"
 excerpt: "This Article Describes [Updated] In 2024, Discovering Your Lately Watched Fb Movies Made Simple"
 keywords: "FB Movie Insights,Streamlined FB Content,Easy FB Video Views,Simplified FB Film List,Accessible FB Watched Movies,Fb Video Tracking Simple,Clear FB Recent Films"
-thumbnail: https://www.lifewire.com/thmb/6hc5zn_zIHrjy6UzXp8_C9GmM70=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/SamsungGalaxyA555GandA355G-693d193230af475da9878cc17351f724.jpg
+thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163bbbccbbc666c03d517f249c.jpg
 ---
 
 ## Discovering Your Lately Watched Fb Movies Made Simple

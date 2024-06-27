@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How Does the Law Apply to Video Sharing on Facebook, In 2024"
-date: 2024-05-20T21:15:01.187Z
-updated: 2024-05-21T21:15:01.187Z
+date: 2024-06-19T05:34:47.365Z
+updated: 2024-06-20T05:34:47.365Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] How Does the Law Apply to Video Sharing on Facebook, In 2024"
 excerpt: "This Article Describes [Updated] How Does the Law Apply to Video Sharing on Facebook, In 2024"
 keywords: "FB Video Legality,Social Media Copyright,Online Video Law,Facebook Content Rules,Video Sharing Regulations,Platform Usage Laws,Intellectual Property OnFB"
-thumbnail: https://www.lifewire.com/thmb/dpIy1Vb0m2YNL1LlGPZga8opYUc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsungtvhomepage-58f0d708245a4140bb4bbad8ea0cfc26.jpg
+thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e09d897a36274e3de6aadbd39.jpg
 ---
 
 ## How Does the Law Apply to Video Sharing on Facebook?

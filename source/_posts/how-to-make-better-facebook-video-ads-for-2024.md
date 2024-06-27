@@ -1,7 +1,7 @@
 ---
 title: "How to Make Better Facebook Video Ads for 2024"
-date: 2024-06-10T02:27:25.757Z
-updated: 2024-06-11T02:27:25.757Z
+date: 2024-06-19T05:34:44.369Z
+updated: 2024-06-20T05:34:44.369Z
 tags:
   - ai video
   - ai facebook
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/aeb1adbf149584a341fb74f49144490d740789721
 
 #### 1. Capture Attention in the First Few Seconds
 
-![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
+![facebook video audience retention](https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Capture and Share  The Essentials for Posting Video in Every Direction on FB\""
-date: 2024-05-20T21:16:06.468Z
-updated: 2024-05-21T21:16:06.468Z
+date: 2024-06-19T05:34:43.619Z
+updated: 2024-06-20T05:34:43.619Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Capture and Share: The Essentials for Posting Video in Every Direction on FB\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Capture and Share: The Essentials for Posting Video in Every Direction on FB\""
 keywords: "Facebook Video Posting,Sharing Videos Online,Social Media Video Tips,Multidirectional Video FB,Essential Video Sharing,Video Content on Facebook,Posting FB Video Essentials"
-thumbnail: https://www.lifewire.com/thmb/zESouOEDMPD5pUPW8DH8E91-pZc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Pandoraapponphone_ManuelBurgos_iStockUnreleased_Getty-e453208541bf4204818c65c8a03cde42.jpg
+thumbnail: https://thmb.techidaily.com/4708f3ad86d66e7ad10dd3b75bdecccf20aa6cf32be5cc5adbe8d57734cb7714.jpg
 ---
 
 ## Capture and Share: The Essentials for Posting Video in Every Direction on FB

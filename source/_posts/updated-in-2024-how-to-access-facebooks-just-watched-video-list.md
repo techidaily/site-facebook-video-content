@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, How To Access Facebook’s Just-Watched Video List\""
-date: 2024-05-20T21:26:51.418Z
-updated: 2024-05-21T21:26:51.418Z
+date: 2024-06-19T05:34:43.404Z
+updated: 2024-06-20T05:34:43.404Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, How To Access Facebook’s Just-Watched Video List\""
 excerpt: "\"This Article Describes [Updated] In 2024, How To Access Facebook’s Just-Watched Video List\""
 keywords: "\"Watch Just-Viewed FB Videos,FB Just-Watched List Entry,Access Recent FB Viewings,Entering Facebook's Watched Vids,Navigate to FB Watched List,FB Video Watch History,Unlock Facebook's Recently Watched\""
-thumbnail: https://www.lifewire.com/thmb/EVPMwUvvJxpJdiKeU4q7SREScME=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/mothersday_NataliaCampbell_Getty-5a4baef6c7822d00371e56cd.jpg
+thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d920b7ae31f5d249d448106c6d.jpg
 ---
 
 ## How To Access Facebook’s Just-Watched Video List

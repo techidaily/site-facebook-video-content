@@ -1,7 +1,7 @@
 ---
 title: "\"[New] IPhone/Android  Integrating Playlists Into Your FB Music for 2024\""
-date: 2024-05-20T20:51:33.824Z
-updated: 2024-05-21T20:51:33.824Z
+date: 2024-06-19T05:34:47.333Z
+updated: 2024-06-20T05:34:47.333Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] IPhone/Android: Integrating Playlists Into Your FB Music for 2024\""
 excerpt: "\"This Article Describes [New] IPhone/Android: Integrating Playlists Into Your FB Music for 2024\""
 keywords: "\"Social Media Music Integration,IOS-Android Playlist Merge,Android Music Facebook Add,IPhone FB Music Sync,Cross Platform Music Playlists,Mobile Devices & Facebook Music,Unite Apple/Android Music Lists\""
-thumbnail: https://www.lifewire.com/thmb/StRC1gceN7hy3J92zKVQDdA6qG8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1316489017-cab6da86c84e4a379cb658ec51faf24a.jpg
+thumbnail: https://thmb.techidaily.com/bca79052c5cd9d97263eb9f9d9f77145f2fe6968554def245326bd7e9d126f27.jpg
 ---
 
 ## IPhone/Android: Integrating Playlists Into Your FB Music

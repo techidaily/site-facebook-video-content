@@ -1,7 +1,7 @@
 ---
 title: "\"Facebook Visual Posts  Aspect Ratio Considerations for 2024\""
-date: 2024-05-20T21:39:04.492Z
-updated: 2024-05-21T21:39:04.492Z
+date: 2024-06-19T05:34:40.493Z
+updated: 2024-06-20T05:34:40.493Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Facebook Visual Posts: Aspect Ratio Considerations for 2024\""
 excerpt: "\"This Article Describes Facebook Visual Posts: Aspect Ratio Considerations for 2024\""
 keywords: "FaceBook Posting,Visual Social Media,Content Aspect Ratio,Image Optimization FB,Post Width/Height Ratios,Snapchat vs Facebook Images,Video Length FB Guidelines"
-thumbnail: https://www.lifewire.com/thmb/hChEC-0UB0ou0mefNP4ASWlLbfo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/xblfeat-5c51f48446e0fb00014c3a59.jpg
+thumbnail: https://thmb.techidaily.com/bed3a8fbbe4c6c5bbdded3f73edc2505580ffc686720a91de941d4b85521ee34.jpg
 ---
 
 ## Facebook Visual Posts: Aspect Ratio Considerations

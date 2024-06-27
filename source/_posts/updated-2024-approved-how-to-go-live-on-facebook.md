@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Go Live on Facebook?\""
-date: 2024-05-20T20:54:26.435Z
-updated: 2024-05-21T20:54:26.435Z
+date: 2024-06-19T05:34:47.156Z
+updated: 2024-06-20T05:34:47.156Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: How to Go Live on Facebook?\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: How to Go Live on Facebook?\""
 keywords: "Live Streaming FB Tips,FB Live Broadcast Guide,Start FB Live Now,Learn FB Live Tricks,Master FB Live Features,Engaging on FB Live,Techniques for FB Live Success"
-thumbnail: https://www.lifewire.com/thmb/OurPjQE2YCfiIu-X08KXq2COIIU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Apple-Self-Service-Repair-iPhone-6617e65293a04de7916169bea41d286f.jpg
+thumbnail: https://thmb.techidaily.com/cbb1e3102bf892cff8d3ec0a8653b920867c497d12f1be8e2ab6e11d350e85ee.jpg
 ---
 
 ## How to Go Live on Facebook?

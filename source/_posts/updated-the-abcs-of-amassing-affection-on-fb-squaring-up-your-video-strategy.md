@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The ABC's of Amassing Affection on FB  Squaring Up Your Video Strategy\""
-date: 2024-05-20T21:49:38.800Z
-updated: 2024-05-21T21:49:38.800Z
+date: 2024-06-19T05:34:46.556Z
+updated: 2024-06-20T05:34:46.556Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] The ABC's of Amassing Affection on FB: Squaring Up Your Video Strategy\""
 excerpt: "\"This Article Describes [Updated] The ABC's of Amassing Affection on FB: Squaring Up Your Video Strategy\""
 keywords: "Love on Facebook,FB Relationship Growth,Video Boost in Social Media,Engaging Fb Videos,Interactive FB Content,Stronger Fb Connections,Effective Video Planning,Love on FB,Fb Relationship,Video Boost Social Media,Engaging Videos,Interactive FB,Stronger Connections"
-thumbnail: https://www.lifewire.com/thmb/EIcWtL1mbjgCQwl6s00JSD8qVnI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/what-is-project-xcloud-4796426-d7a90d6136d64a819292085e1962e8f6.jpg
+thumbnail: https://thmb.techidaily.com/c44e4e5c600145f0a206a8e58618f5b19fc163e0bfe904b409f7e84863affb55.jpg
 ---
 
 ## The ABC's of Amassing Affection on FB: Squaring Up Your Video Strategy

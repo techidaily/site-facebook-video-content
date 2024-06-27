@@ -1,7 +1,7 @@
 ---
 title: "[Updated] What to Do When You Spot Your Own Face During a Call, In 2024"
-date: 2024-05-20T22:19:48.980Z
-updated: 2024-05-21T22:19:48.980Z
+date: 2024-06-19T05:34:47.905Z
+updated: 2024-06-20T05:34:47.905Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] What to Do When You Spot Your Own Face During a Call, In 2024"
 excerpt: "This Article Describes [Updated] What to Do When You Spot Your Own Face During a Call, In 2024"
 keywords: "\"Finding Self-Image in Calls,Dealing with Mirror Reflection,Coping with Unwanted Photo,Selfie Mishap on Phone,Face Recognition During Call,Handling Visual Confusion,Avoiding Echoed Selfies\""
-thumbnail: https://www.lifewire.com/thmb/oM1F6FMEMZ0Riy1ckp-E8xI__eI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Signal-vs-WhatsApp-511d663c232b4478bbf7c44e7d7e5641.jpg
+thumbnail: https://thmb.techidaily.com/d6473782f31868e794fc3ab8460fc67b139be82f000417effd74e9124ff9dff3.jpg
 ---
 
 ## What to Do When You Spot Your Own Face During a Call?

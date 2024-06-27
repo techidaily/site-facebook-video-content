@@ -1,7 +1,7 @@
 ---
 title: "Navigating Vertical vs Horizontal on Facebook Videos for 2024"
-date: 2024-05-20T22:12:23.939Z
-updated: 2024-05-21T22:12:23.939Z
+date: 2024-06-19T05:34:42.297Z
+updated: 2024-06-20T05:34:42.297Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Navigating Vertical vs Horizontal on Facebook Videos for 2024"
 excerpt: "This Article Describes Navigating Vertical vs Horizontal on Facebook Videos for 2024"
 keywords: "FB Video Placement Strategy,Vertical/Horizontal Content,Social Media Video Format,Engaging Facebook Videos,Audience Retention Techniques,Effective Video Posting Tactics,Optimizing Facebook Video Reach"
-thumbnail: https://www.lifewire.com/thmb/bjZxZn45LwMCB0qvKH0VZrRmXy0=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/BriannaWu-14c3c26e5b9e4a3d93ae8ba9724581fe.jpeg
+thumbnail: https://thmb.techidaily.com/826e213581d156558e6f234936866c0f136b901791e5cc9453b472a1e6024dd2.jpeg
 ---
 
 ## Navigating Vertical vs Horizontal on Facebook Videos

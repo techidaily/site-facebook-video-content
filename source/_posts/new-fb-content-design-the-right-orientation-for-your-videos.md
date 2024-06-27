@@ -1,7 +1,7 @@
 ---
 title: "\"[New] FB Content Design  The Right Orientation for Your Videos\""
-date: 2024-05-20T21:13:08.085Z
-updated: 2024-05-21T21:13:08.085Z
+date: 2024-06-19T05:34:43.064Z
+updated: 2024-06-20T05:34:43.064Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] FB Content Design: The Right Orientation for Your Videos\""
 excerpt: "\"This Article Describes [New] FB Content Design: The Right Orientation for Your Videos\""
 keywords: "Video Orientation,FB Content Design,Effective Video Layout,Engaging FB Videos,Optimal Video Stance,FB Video Aesthetics,Thoughtful Video Placement"
-thumbnail: https://www.lifewire.com/thmb/Dp9islCb9GD3RtQaIU23WoKYMSs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_best-lgbt-movies-on-netflix-right-now-5069913-92c9bcd3792548908be32c420bc4fa27.jpg
+thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997cdcaec1704f07c09aed014e.jpg
 ---
 
 ## FB Content Design: The Right Orientation for Your Videos

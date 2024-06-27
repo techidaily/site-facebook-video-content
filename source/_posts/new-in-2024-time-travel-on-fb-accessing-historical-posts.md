@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Time Travel on FB  Accessing Historical Posts\""
-date: 2024-05-20T20:41:22.420Z
-updated: 2024-05-21T20:41:22.420Z
+date: 2024-06-19T05:34:44.629Z
+updated: 2024-06-20T05:34:44.629Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Time Travel on FB: Accessing Historical Posts\""
 excerpt: "\"This Article Describes [New] In 2024, Time Travel on FB: Accessing Historical Posts\""
 keywords: "Time Travel FB History,FB Past Content View,Archive FB Timeline,Facebook Retro Posts,Historical FB Profiles,Revisiting FB Pages,Nostalgic FB Browsing"
-thumbnail: https://www.lifewire.com/thmb/iWtxzOACOnG_uyFFcUmFDT7X-Co=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Vendoo-cofounder-Josh-75719038e6f2495b8047a5297bc9d046.png
+thumbnail: https://thmb.techidaily.com/4114f7cfe0acd398f6e6dc6c01ce0be957bdf6a2654636b72d1c325e241fdeaf.png
 ---
 
 ## Time Travel on FB: Accessing Historical Posts

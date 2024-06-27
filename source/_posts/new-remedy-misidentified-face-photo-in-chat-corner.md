@@ -1,7 +1,7 @@
 ---
 title: "[New] Remedy Misidentified Face Photo in Chat Corner"
-date: 2024-05-20T21:38:01.981Z
-updated: 2024-05-21T21:38:01.981Z
+date: 2024-06-19T05:34:44.089Z
+updated: 2024-06-20T05:34:44.089Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Remedy Misidentified Face Photo in Chat Corner"
 excerpt: "This Article Describes [New] Remedy Misidentified Face Photo in Chat Corner"
 keywords: "\"Mistaken Face Identification,Chat Corner Errors,Correcting Photo Mix-Ups,Rectify Image Confusion,Remedy Photo Mislabel,Fix Chat Picture Wrong,Address Photo Inaccuracies\""
-thumbnail: https://www.lifewire.com/thmb/oj9f0wuX7XGgnL3sQwetCIX5y6c=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-fix-it-when-pngs-wont-open-in-windows-11-41107f6a55db4318b6c2b64437de5b75.jpg
+thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1cb979a99a698fecfb5d28b74.jpg
 ---
 
 ## Remedy Misidentified Face Photo in Chat Corner
