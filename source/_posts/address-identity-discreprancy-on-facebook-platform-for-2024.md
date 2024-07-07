@@ -1,7 +1,7 @@
 ---
 title: "Address Identity Discreprancy on Facebook Platform for 2024"
-date: 2024-05-20T20:52:04.831Z
-updated: 2024-05-21T20:52:04.831Z
+date: 2024-07-06T15:29:04.970Z
+updated: 2024-07-07T15:29:04.970Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Address Identity Discreprancy on Facebook Platform for 2024"
 excerpt: "This Article Describes Address Identity Discreprancy on Facebook Platform for 2024"
 keywords: "FB ID Mismatch,Social Media Name Error,Profile Credential Inconsistency,Account Alias Difference,Username Discrepancy,Facebook Identity Misalignment,Platform Alias Conflict"
-thumbnail: https://www.lifewire.com/thmb/Ku_-_mUSA_-pqx1qUkcNNrkX0ic=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Gmail-Logo-57e3e0b75f9b586c35507780.png
+thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b650978462e7e0c6bc450abb26.png
 ---
 
 ## Address Identity Discreprancy on Facebook Platform

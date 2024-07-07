@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Broadcasting with a History  LIVE Transmission of Pre-Recorded Videos\""
-date: 2024-05-20T22:24:01.791Z
-updated: 2024-05-21T22:24:01.791Z
+date: 2024-07-06T15:29:04.571Z
+updated: 2024-07-07T15:29:04.571Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Broadcasting with a History: LIVE Transmission of Pre-Recorded Videos\""
 excerpt: "\"This Article Describes [New] Broadcasting with a History: LIVE Transmission of Pre-Recorded Videos\""
 keywords: "\"Live Broadcast,Video Pre-Recording,Historic Media Transmission,Real-Time Video Stream,Historical Broadcasting,Recorded Video LIVE,Media History Transmission\""
-thumbnail: https://www.lifewire.com/thmb/XTn22vUEhR1g5hO3UkHHYfR8z14=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tesla-bot-f6353f76ae214924916445da1da620ca.png
+thumbnail: https://thmb.techidaily.com/13887af25c31ebc0af7fa01bee84ac625b343ea776763c2dea469f5e646eb4f7.png
 ---
 
 ## Broadcasting with a History: LIVE Transmission of Pre-Recorded Videos

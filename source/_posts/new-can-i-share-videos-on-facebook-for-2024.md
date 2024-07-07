@@ -1,7 +1,7 @@
 ---
 title: "[New] Can I Share Videos on Facebook for 2024"
-date: 2024-05-20T22:16:56.799Z
-updated: 2024-05-21T22:16:56.799Z
+date: 2024-07-06T15:29:01.001Z
+updated: 2024-07-07T15:29:01.001Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Can I Share Videos on Facebook for 2024"
 excerpt: "This Article Describes [New] Can I Share Videos on Facebook for 2024"
 keywords: "Facebook Video Sharing,Posting on FB Videos,Legal FB Video Upload,Sharing Media on FB,FB Video Content Rules,Social Media Video FB,Accepted FB Video Content"
-thumbnail: https://www.lifewire.com/thmb/HEBDZLC1jMr1OKZ2CcKnILwP_lk=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sonyplaystation5-dc53869451d7416cbb32881a35c3fc32.jpg
+thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056bf2dd14982465e8c7b5b6a1.jpg
 ---
 
 ## Can I Share Videos on Facebook?

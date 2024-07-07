@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating to Group's Shared Content in Messenger"
-date: 2024-05-20T21:40:26.975Z
-updated: 2024-05-21T21:40:26.975Z
+date: 2024-07-06T15:29:02.364Z
+updated: 2024-07-07T15:29:02.364Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Navigating to Group's Shared Content in Messenger"
 excerpt: "This Article Describes [New] Navigating to Group's Shared Content in Messenger"
 keywords: "Group Chat Messaging,Shared Message Inbox,Messenger Group Access,Community Message Hub,Unified Group Conversations,Messenger Content Sharing,Collaborative Messaging Tools"
-thumbnail: https://www.lifewire.com/thmb/izBIha32HgabjptVJirtpKdPFJM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/youtubekids-30ac14dece6546eb98e32e3e18e447f8.jpg
+thumbnail: https://thmb.techidaily.com/57ebcefbd038d5518117756c100dd6989f85e0e6cff4615a7e12084a4473983a.jpg
 ---
 
 ## Navigating to Group's Shared Content in Messenger

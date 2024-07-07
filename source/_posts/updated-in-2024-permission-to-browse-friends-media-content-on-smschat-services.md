@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Permission to Browse Friends' Media Content on SMS/Chat Services"
-date: 2024-05-20T21:03:35.622Z
-updated: 2024-05-21T21:03:35.622Z
+date: 2024-07-06T15:29:03.996Z
+updated: 2024-07-07T15:29:03.996Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Permission to Browse Friends' Media Content on SMS/Chat Services"
 excerpt: "This Article Describes [Updated] In 2024, Permission to Browse Friends' Media Content on SMS/Chat Services"
 keywords: "Browse Media Permission,Social Chat Access,Friends' Media Viewing,SMS Media Sharing,Media Browsing via Text,Chat Content Permitting,Peer Media Consumption"
-thumbnail: https://www.lifewire.com/thmb/e5cu46OtU-Tpdp1ycswZCJHCE2s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/psvr2-headset-controllers-45d5e11f5c364b2faff3a67d9e13861c.jpg
+thumbnail: https://thmb.techidaily.com/b11cfa6cab7ceb94681fcab83e62d05efa3e76c07b0a1fd703161df853374929.jpg
 ---
 
 ## Permission to Browse Friends' Media Content on SMS/Chat Services

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The New Short-Form FB Story\""
-date: 2024-05-20T20:46:04.885Z
-updated: 2024-05-21T20:46:04.885Z
+date: 2024-07-06T15:29:06.003Z
+updated: 2024-07-07T15:29:06.003Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] The New Short-Form FB Story\""
 excerpt: "\"This Article Describes [New] The New Short-Form FB Story\""
 keywords: "\"FB Story Now,Short FB Stories,FB Video Clip,Brief FB Content,Facebook Micro-Stories,Quick FB Narratives,Miniature FB Videos\""
-thumbnail: https://www.lifewire.com/thmb/erzKASgx244zh90-Q9CR1bmJcrQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/anthem-speaker-set-menu-examples-aaa-58f8bed43df78ca159779250.jpg
+thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391dec23043dea2f82d9170e773.jpg
 ---
 
 ## The New Short-Form FB Story

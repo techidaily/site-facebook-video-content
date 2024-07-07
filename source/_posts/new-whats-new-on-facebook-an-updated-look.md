@@ -1,7 +1,7 @@
 ---
 title: "\"[New] What's New on Facebook - An Updated Look\""
-date: 2024-05-20T21:44:36.708Z
-updated: 2024-05-21T21:44:36.708Z
+date: 2024-07-06T15:29:04.816Z
+updated: 2024-07-07T15:29:04.816Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] What's New on Facebook - An Updated Look\""
 excerpt: "\"This Article Describes [New] What's New on Facebook - An Updated Look\""
 keywords: "Facebook Update News,Facebook Latest Design,Facebook Redesign Highlights,New Facebook Layout,Facebook UI Changes,Facebook Visual Upgrade,Facebook Interface Revamp"
-thumbnail: https://www.lifewire.com/thmb/IKQDGD4jr_8XMZiSV32ufCsH_pg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-607327027-314e9ff56efd4c958e6f2e1cf5c39447.jpg
+thumbnail: https://thmb.techidaily.com/a8b16314a41e8185a53e16911a8cd83652896b6771ffcd18a8d5ccdaa894f672.jpg
 ---
 
 ## What's New on Facebook - An Updated Look
@@ -67,7 +67,7 @@ thumbnail: https://www.lifewire.com/thmb/IKQDGD4jr_8XMZiSV32ufCsH_pg=/400x300/fi
 
  News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
 
-![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
+![facebook homepage](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
 #### The Timeline
 
@@ -75,7 +75,7 @@ thumbnail: https://www.lifewire.com/thmb/IKQDGD4jr_8XMZiSV32ufCsH_pg=/400x300/fi
 
  In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
 
-![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
+![facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 ## How Facebook usage is diversified?
 
@@ -151,7 +151,7 @@ Follow @Shanoon Cox
 
  News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
 
-![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
+![facebook homepage](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
 #### The Timeline
 
@@ -159,7 +159,7 @@ Follow @Shanoon Cox
 
  In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
 
-![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
+![facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 ## How Facebook usage is diversified?
 
@@ -235,7 +235,7 @@ Follow @Shanoon Cox
 
  News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
 
-![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
+![facebook homepage](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
 #### The Timeline
 
@@ -243,7 +243,7 @@ Follow @Shanoon Cox
 
  In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
 
-![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
+![facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 ## How Facebook usage is diversified?
 
@@ -319,7 +319,7 @@ Follow @Shanoon Cox
 
  News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
 
-![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
+![facebook homepage](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
 #### The Timeline
 
@@ -327,7 +327,7 @@ Follow @Shanoon Cox
 
  In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
 
-![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
+![facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 ## How Facebook usage is diversified?
 
