@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Dive Into the Digital Ocean  Unveiling Facebook's Video Depth\""
-date: 2024-05-20T21:00:16.351Z
-updated: 2024-05-21T21:00:16.351Z
+date: 2024-07-23T20:17:17.801Z
+updated: 2024-07-24T20:17:17.801Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Dive Into the Digital Ocean: Unveiling Facebook's Video Depth\""
 excerpt: "\"This Article Describes In 2024, Dive Into the Digital Ocean: Unveiling Facebook's Video Depth\""
 keywords: "Deep Dive SEO,FB Video Trends,Social Media Videos,Online Content Strategy,Digital Ocean SEO,Video Marketing Tips,Facebook Video Insight"
-thumbnail: https://www.lifewire.com/thmb/QWj6wQyTLgXhzxbd2FDkmSrQiNY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/work-from-home-final-cb19dcdff01545d693d7ecb1f9f9c9b2.jpg
+thumbnail: https://thmb.techidaily.com/07e687f8419c4806cb630c22e1fb9dad31142326727645ceb99c557de0c60728.jpg
 ---
 
 ## Dive Into the Digital Ocean: Unveiling Facebook's Video Depth
@@ -43,6 +43,9 @@ Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
 
 Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### Finding Saved Facebook Videos on PC
 
 Following is a step-by-step guide for finding saved Facebook videos on your PC.
@@ -63,6 +66,9 @@ Here, log in to your Facebook account.
 
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
 
 **Step 4: Click on Saved**
@@ -101,12 +107,18 @@ In the Menu, scroll down to see the "Saved" tab. Click on it.
 
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
 
 **Step 5: Filter the Items**
 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
 
 **Step 6: Watch the Video**
@@ -149,14 +161,23 @@ From the dropdown menu, click on “Activity Log.”
 
 On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
 
 **Step 6: Select “Videos you’ve watched”**
 
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -169,6 +190,9 @@ Open the Facebook app and log in if you are not already logged in from your home
 
 On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
 
 **Step 3: Go to Your Profile**
@@ -185,14 +209,23 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
@@ -203,6 +236,9 @@ Videos are a very effective way of expressing yourself. If you wish to upload yo
 
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Facebook is such an all-rounded and well-thought-out application that it has everything and anything you require. It has so many useful features that assist you in expanding your social circle and easily interacting with friends and family.
@@ -245,12 +281,18 @@ From your browser, access Facebook by going to the [website](https://www.faceboo
 
 Here, log in to your Facebook account.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
 
 **Step 3: Search for the "Saved” tab.**
 
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
 
 **Step 4: Click on Saved**
@@ -263,6 +305,10 @@ On the right of these, you will see a filter icon where you can choose a specifi
 
 All the videos will be available, and you can watch whichever you want!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Finding Saved Facebook Videos on Mobile
 
 Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
@@ -283,6 +329,9 @@ From the News Feed, click on the three bars at the bottom right corner of the sc
 
 In the Menu, scroll down to see the "Saved" tab. Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
 
 **Step 4: Click on “See All”**
@@ -295,6 +344,9 @@ In order to view the saved video quickly, click on “See All” under the Most 
 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
 
 **Step 6: Watch the Video**
@@ -357,6 +409,10 @@ Open the Facebook app and log in if you are not already logged in from your home
 
 On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
 
 **Step 3: Go to Your Profile**
@@ -373,6 +429,9 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
@@ -381,10 +440,16 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 From the list of activities, tap on “Videos you’ve watched.”
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Side note
 
 Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
@@ -427,6 +492,9 @@ Following is a step-by-step guide for finding saved Facebook videos on your PC.
 
 From your browser, access Facebook by going to the [website](https://www.facebook.com/).
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
 
 **Step 2: Log in to Your Account**
@@ -439,6 +507,9 @@ Here, log in to your Facebook account.
 
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
 
 **Step 4: Click on Saved**
@@ -451,6 +522,9 @@ On the right of these, you will see a filter icon where you can choose a specifi
 
 All the videos will be available, and you can watch whichever you want!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Finding Saved Facebook Videos on Mobile
 
 Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
@@ -471,12 +545,18 @@ From the News Feed, click on the three bars at the bottom right corner of the sc
 
 In the Menu, scroll down to see the "Saved" tab. Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
 
 **Step 4: Click on “See All”**
 
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
 
 **Step 5: Filter the Items**
@@ -491,12 +571,24 @@ Scroll through the videos to find the one you want.
 
 The steps given above will lead you to your Saved videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. How to Find Videos on Facebook You Recently Watched?
 
 Suppose you were watching a video that you wanted to save, but somehow it got displaced, and you cannot find it again. In that case, you can go to Facebook's recently watched videos.
 
 Here, we will help you find the Recently Watched Videos on PC and phone.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### Finding Recently Watched Videos on Computer
 
 To find Facebook videos that you have watched recently on the computer, follow the steps given below.
@@ -525,12 +617,24 @@ From the dropdown menu, click on “Activity Log.”
 
 On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
 
 **Step 6: Select “Videos you’ve watched”**
 
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
 ### Finding Recently Watched Videos on Phone
@@ -545,6 +649,9 @@ Open the Facebook app and log in if you are not already logged in from your home
 
 On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
 
 **Step 3: Go to Your Profile**
@@ -561,6 +668,9 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
@@ -573,12 +683,18 @@ From the list of activities, tap on “Videos you’ve watched.”
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## Side note
 
 Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
 
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Facebook is such an all-rounded and well-thought-out application that it has everything and anything you require. It has so many useful features that assist you in expanding your social circle and easily interacting with friends and family.
@@ -603,6 +719,9 @@ Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
 
 Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
 
 Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
@@ -639,6 +758,9 @@ On the right of these, you will see a filter icon where you can choose a specifi
 
 All the videos will be available, and you can watch whichever you want!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Finding Saved Facebook Videos on Mobile
 
 Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
@@ -653,6 +775,9 @@ From your home screen or apps list, open the Facebook app.
 
 From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
 
 **Step 3: Go to Saved**
@@ -665,12 +790,18 @@ In the Menu, scroll down to see the "Saved" tab. Click on it.
 
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
 
 **Step 5: Filter the Items**
 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
 
 **Step 6: Watch the Video**
@@ -703,6 +834,9 @@ On the top right corner of the screen, you will see your name; click on it to go
 
 Under your profile, on the right, you will see three dots. Click on them to access the dropdown menu.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
 
 **Step 4: Go to Activity Log**
@@ -713,14 +847,23 @@ From the dropdown menu, click on “Activity Log.”
 
 On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
 
 **Step 6: Select “Videos you’ve watched”**
 
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -749,8 +892,15 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
@@ -767,6 +917,9 @@ Videos are a very effective way of expressing yourself. If you wish to upload yo
 
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Facebook is such an all-rounded and well-thought-out application that it has everything and anything you require. It has so many useful features that assist you in expanding your social circle and easily interacting with friends and family.
@@ -800,3 +953,46 @@ We hope it helps!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-premier-mp4-broadcast-suite/"><u>[New] 2024 Approved  Premier MP4 Broadcast Suite</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-pro-gopro-filming-and-live-sharing-best-practices-for-facebookperiscope/"><u>[New] 2024 Approved  Pro Gopro Filming and Live Sharing  Best Practices for Facebook/Periscope</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-social-media-sensation-top-eight-videos/"><u>[New] 2024 Approved  Social Media Sensation  Top Eight Videos</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-foremost-5-animated-logos-for-interactive-channels-for-2024/"><u>[New] Foremost 5 Animated Logos for Interactive Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-crafting-visual-stories-for-successful-fb-covers/"><u>[New] In 2024, Crafting Visual Stories for Successful FB Covers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-outsmarting-the-obtrusive-fb-video-ads/"><u>[New] In 2024, Outsmarting the Obtrusive FB Video Ads</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-peeking-into-apeaksofts-2023-screen-recording-features/"><u>[New] In 2024, Peeking Into Apeaksoft’s 2023 Screen Recording Features</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-pinterest-pin-square-advice/"><u>[New] In 2024, Pinterest Pin Square Advice</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-ten-titles-that-triumph-top-8-apps-to-gain-facebook-likeability/"><u>[New] In 2024, Ten Titles That Triumph  Top 8 Apps to Gain Facebook Likeability</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-premier-zero-cost-facebook-videoimage-craftsman-for-2024/"><u>[New] Premier Zero-Cost Facebook Video/Image Craftsman for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-professional-framing-adding-bb-and-letterbox-overlays-to-fb-videos-for-2024/"><u>[New] Professional Framing  Adding BB and Letterbox Overlays to FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-seamless-social-integration-twitter-and-facebook-connections-for-2024/"><u>[New] Seamless Social Integration  Twitter & Facebook Connections for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-tailoring-hashtags-for-impactful-fb-brand-presence-for-2024/"><u>[New] Tailoring Hashtags for Impactful FB Brand Presence for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-optimal-viewing-experience-for-facebook-video-playback/"><u>[Updated] 2024 Approved  Optimal Viewing Experience for Facebook Video Playback</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-perfecting-the-chorus-of-visual-content-on-facebook-through-music/"><u>[Updated] 2024 Approved  Perfecting the Chorus of Visual Content on Facebook Through Music</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-seamless-integration-facebook-livestream-and-roku-connected-tv/"><u>[Updated] 2024 Approved  Seamless Integration  Facebook Livestream & Roku Connected TV</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-seamless-video-recording-on-facebook-with-top-5-tools/"><u>[Updated] 2024 Approved  Seamless Video Recording on Facebook with Top 5 Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-snag-soundwaves-from-fb-topics/"><u>[Updated] 2024 Approved  Snag Soundwaves From Fb Topics</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1716068792123-updated-in-2024-best-5-chrome-os-clipping-utilities-ranked/"><u>[Updated] In 2024, Best 5 Chrome OS Clipping Utilities, Ranked!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-myvideocapture-social-media-video-download/"><u>[Updated] In 2024, MyVideoCapture  Social Media Video Download</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-online-fb-music-collection-now/"><u>[Updated] In 2024, Online FB Music Collection Now</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-overcoming-obstacles-to-display-videos-prominently/"><u>[Updated] In 2024, Overcoming Obstacles to Display Videos Prominently</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-premium-fb-videograbber-suite-high-quality-downloads-fast-and-secure/"><u>[Updated] In 2024, Premium FB Videograbber Suite  High-Quality Downloads, Fast & Secure</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-innovation-hub-explore-over-120-creative-title-concepts-to-personalize-your-storytelling/"><u>[Updated] In 2024, Snapchat Innovation Hub  Explore over 120 Creative Title Concepts to Personalize Your Storytelling</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-strategic-application-of-hashtags-in-fb-advertising/"><u>[Updated] In 2024, Strategic Application of Hashtags in FB Advertising</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-striking-the-perfect-balance-in-profile-videos/"><u>[Updated] In 2024, Striking the Perfect Balance in Profile Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-optimizing-social-media-interaction-with-automatic-youtube-video-playback-for-2024/"><u>[Updated] Optimizing Social Media Interaction with Automatic Youtube Video Playback for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-premium-free-fb-imagemotion-graphics-builder-for-2024/"><u>[Updated] Premium Free FB Image/Motion Graphics Builder for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-secrets-of-facebooks-2023-full-screen-video-settings-for-2024/"><u>[Updated] Secrets of Facebook's 2023 Full Screen Video Settings for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-learn-how-to-convert-audio-clips-into-written-text-with-microsoft-words-speech-recognition-features/"><u>2024 Approved  Learn How To Convert Audio Clips Into Written Text with Microsoft Word's Speech Recognition Features</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-reimagining-home-entertainment-with-lgs-bp550-update/"><u>2024 Approved  Reimagining Home Entertainment with LG's BP550 Update</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/best-video-editing-software-for-mac-similar-to-pinnacle-studio-for-2024/"><u>Best Video Editing Software for Mac Similar to Pinnacle Studio for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-3d-lut-filters-a-photo-editing-essential/"><u>In 2024, Mastering 3D LUT Filters  A Photo Editing Essential</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-video-vanguard-take-your-everyday-clips-to-the-next-level/"><u>New In 2024, Video Vanguard Take Your Everyday Clips to the Next Level</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/skyrocket-traffic-with-the-top-12-youtube-growth-methods-for-2024/"><u>Skyrocket Traffic with the Top 12 YouTube Growth Methods for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-virtual-quest-a-jaunt-vr-exploration-for-2024/"><u>The Virtual Quest  A Jaunt VR Exploration for 2024</u></a></li>
+</ul></div>

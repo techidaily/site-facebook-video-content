@@ -1,7 +1,7 @@
 ---
 title: "In 2024, What’s Fresh with Facebook? Latest Info Here"
-date: 2024-05-20T20:52:38.806Z
-updated: 2024-05-21T20:52:38.806Z
+date: 2024-07-23T19:53:21.845Z
+updated: 2024-07-24T19:53:21.845Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, What’s Fresh with Facebook? Latest Info Here"
 excerpt: "This Article Describes In 2024, What’s Fresh with Facebook? Latest Info Here"
 keywords: "Fresh FB News,Facebook Updates,New FB Insights,FB Latest Trends,Social Media Freshness,Facebook Content Update,Innovations on FB"
-thumbnail: https://www.lifewire.com/thmb/u2Gk5SIyZoqPXLsqzqAbZDApNQ4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Apple-October-Event-9e259cdbd48343218331134b19c07ec5.jpg
+thumbnail: https://thmb.techidaily.com/91b7cfb4d96e2456602f29985eb790b38dbd8c0fc22d4f4a877755c3058adea9.jpg
 ---
 
 ## What’s Fresh with Facebook? Latest Info Here
@@ -25,6 +25,9 @@ thumbnail: https://www.lifewire.com/thmb/u2Gk5SIyZoqPXLsqzqAbZDApNQ4=/400x300/fi
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## What is Facebook
 
  Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
@@ -67,6 +70,9 @@ thumbnail: https://www.lifewire.com/thmb/u2Gk5SIyZoqPXLsqzqAbZDApNQ4=/400x300/fi
 
  News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
 #### The Timeline
@@ -91,6 +97,204 @@ thumbnail: https://www.lifewire.com/thmb/u2Gk5SIyZoqPXLsqzqAbZDApNQ4=/400x300/fi
 * Share your feelings for your friends and tag them to pictures which suit their personality
 * Play games and enhance your circle
 
+## How Does Facebook Sharing Work?
+
+ Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
+
+ The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## What is Facebook
+
+ Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
+
+ Facebook is available in 37 different languages which truly reflect its respect towards diversity and it also supports various translation applications if you want to improve existing translation. Being the largest social media network was probably not enough for Facebook and hence the three key public features of Facebook which it has launched are classified as follows:
+
+**Marketplace:** It allows you to discover, buy and sell items in your community. You can post and respond to all sorts of ads of your region.
+
+**Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
+
+**Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
+
+## Common Facebook Terms which you should know
+
+ If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
+
+**Status Update:** These are text based posts that can describe your mood, thoughts or anything which you want to share with your Facebook friends.
+
+**Timeline:** This is like a page dedicated to you (As good as your profile). You can share information including your pictures, basic information like your favorite books, entertainment shows, celebrity etc.
+
+**News Feed:** You can term it as combination of status and timeline of your friends. News Feed shows you updates from your friends and recent posts from the Facebook pages that you follow. This is where you spend your most of the time!
+
+**Like:** If you enjoyed and want to reach on the profiles of your friends then you choose to Like or Dislike the post.
+
+**Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
+
+**Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
+
+## Exploring Facebook
+
+ Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
+
+#### The homepage
+
+ As soon as sign in to your Facebook account, you would be redirected to the News Feed. It means your homepage consists of information and images which your friends have shared. It consists of Menu at the very left which contains quick hyperlinks to Events, fun apps and groups that you are part of.
+
+ On the top right, there is a panel which shows notifications, new friends requests and chat messages. This whole section is termed as recent activity panel.
+
+ On the very top you would see a blank space reading like ‘What’s on your mind?’ This is the publisher space where you can update status or add pictures and videos that you would like to share.
+
+ News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
+
+#### The Timeline
+
+ The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
+
+ In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
+
+![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
+
+## How Facebook usage is diversified?
+
+ There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
+
+ Things which you can do with Facebook are not limited to below:
+
+* Allows you to login into different portals as websites have integrated Facebook for the login mechanism which means that with similar login credentials you can operate on different websites.
+* Provides a platform to connect with your idols and celebs
+* Gives you ample of space to share your thoughts and pictures to keep everybody updated
+* Chat unlimited with your online friends
+* Encourage your friends to join informative groups and events
+* Share your feelings for your friends and tag them to pictures which suit their personality
+* Play games and enhance your circle
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+## How Does Facebook Sharing Work?
+
+ Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
+
+ The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+## What is Facebook
+
+ Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
+
+ Facebook is available in 37 different languages which truly reflect its respect towards diversity and it also supports various translation applications if you want to improve existing translation. Being the largest social media network was probably not enough for Facebook and hence the three key public features of Facebook which it has launched are classified as follows:
+
+**Marketplace:** It allows you to discover, buy and sell items in your community. You can post and respond to all sorts of ads of your region.
+
+**Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
+
+**Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Common Facebook Terms which you should know
+
+ If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
+
+**Status Update:** These are text based posts that can describe your mood, thoughts or anything which you want to share with your Facebook friends.
+
+**Timeline:** This is like a page dedicated to you (As good as your profile). You can share information including your pictures, basic information like your favorite books, entertainment shows, celebrity etc.
+
+**News Feed:** You can term it as combination of status and timeline of your friends. News Feed shows you updates from your friends and recent posts from the Facebook pages that you follow. This is where you spend your most of the time!
+
+**Like:** If you enjoyed and want to reach on the profiles of your friends then you choose to Like or Dislike the post.
+
+**Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
+
+**Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
+## Exploring Facebook
+
+ Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
+
+#### The homepage
+
+ As soon as sign in to your Facebook account, you would be redirected to the News Feed. It means your homepage consists of information and images which your friends have shared. It consists of Menu at the very left which contains quick hyperlinks to Events, fun apps and groups that you are part of.
+
+ On the top right, there is a panel which shows notifications, new friends requests and chat messages. This whole section is termed as recent activity panel.
+
+ On the very top you would see a blank space reading like ‘What’s on your mind?’ This is the publisher space where you can update status or add pictures and videos that you would like to share.
+
+ News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
+
+#### The Timeline
+
+ The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
+
+ In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
+
+## How Facebook usage is diversified?
+
+ There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
+
+ Things which you can do with Facebook are not limited to below:
+
+* Allows you to login into different portals as websites have integrated Facebook for the login mechanism which means that with similar login credentials you can operate on different websites.
+* Provides a platform to connect with your idols and celebs
+* Gives you ample of space to share your thoughts and pictures to keep everybody updated
+* Chat unlimited with your online friends
+* Encourage your friends to join informative groups and events
+* Share your feelings for your friends and tag them to pictures which suit their personality
+* Play games and enhance your circle
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How Does Facebook Sharing Work?
 
  Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
@@ -121,6 +325,9 @@ Follow @Shanoon Cox
 
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Common Facebook Terms which you should know
 
  If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
@@ -161,6 +368,9 @@ Follow @Shanoon Cox
 
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Facebook usage is diversified?
 
  There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
@@ -181,174 +391,9 @@ Follow @Shanoon Cox
 
  The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-## What is Facebook
-
- Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
-
- Facebook is available in 37 different languages which truly reflect its respect towards diversity and it also supports various translation applications if you want to improve existing translation. Being the largest social media network was probably not enough for Facebook and hence the three key public features of Facebook which it has launched are classified as follows:
-
-**Marketplace:** It allows you to discover, buy and sell items in your community. You can post and respond to all sorts of ads of your region.
-
-**Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
-
-**Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
-
-## Common Facebook Terms which you should know
-
- If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
-
-**Status Update:** These are text based posts that can describe your mood, thoughts or anything which you want to share with your Facebook friends.
-
-**Timeline:** This is like a page dedicated to you (As good as your profile). You can share information including your pictures, basic information like your favorite books, entertainment shows, celebrity etc.
-
-**News Feed:** You can term it as combination of status and timeline of your friends. News Feed shows you updates from your friends and recent posts from the Facebook pages that you follow. This is where you spend your most of the time!
-
-**Like:** If you enjoyed and want to reach on the profiles of your friends then you choose to Like or Dislike the post.
-
-**Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
-
-**Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
-
-## Exploring Facebook
-
- Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
-
-#### The homepage
-
- As soon as sign in to your Facebook account, you would be redirected to the News Feed. It means your homepage consists of information and images which your friends have shared. It consists of Menu at the very left which contains quick hyperlinks to Events, fun apps and groups that you are part of.
-
- On the top right, there is a panel which shows notifications, new friends requests and chat messages. This whole section is termed as recent activity panel.
-
- On the very top you would see a blank space reading like ‘What’s on your mind?’ This is the publisher space where you can update status or add pictures and videos that you would like to share.
-
- News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
-
-![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
-
-#### The Timeline
-
- The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
-
- In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
-
-![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
-
-## How Facebook usage is diversified?
-
- There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
-
- Things which you can do with Facebook are not limited to below:
-
-* Allows you to login into different portals as websites have integrated Facebook for the login mechanism which means that with similar login credentials you can operate on different websites.
-* Provides a platform to connect with your idols and celebs
-* Gives you ample of space to share your thoughts and pictures to keep everybody updated
-* Chat unlimited with your online friends
-* Encourage your friends to join informative groups and events
-* Share your feelings for your friends and tag them to pictures which suit their personality
-* Play games and enhance your circle
-
-## How Does Facebook Sharing Work?
-
- Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
-
- The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-## What is Facebook
-
- Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
-
- Facebook is available in 37 different languages which truly reflect its respect towards diversity and it also supports various translation applications if you want to improve existing translation. Being the largest social media network was probably not enough for Facebook and hence the three key public features of Facebook which it has launched are classified as follows:
-
-**Marketplace:** It allows you to discover, buy and sell items in your community. You can post and respond to all sorts of ads of your region.
-
-**Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
-
-**Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
-
-## Common Facebook Terms which you should know
-
- If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
-
-**Status Update:** These are text based posts that can describe your mood, thoughts or anything which you want to share with your Facebook friends.
-
-**Timeline:** This is like a page dedicated to you (As good as your profile). You can share information including your pictures, basic information like your favorite books, entertainment shows, celebrity etc.
-
-**News Feed:** You can term it as combination of status and timeline of your friends. News Feed shows you updates from your friends and recent posts from the Facebook pages that you follow. This is where you spend your most of the time!
-
-**Like:** If you enjoyed and want to reach on the profiles of your friends then you choose to Like or Dislike the post.
-
-**Tag:** It is like marking your friends who hold relevance to the pictures or status that you are uploading on your timeline. These then appears on the timeline of your friends and in newsfeed of other friends.
-
-**Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
-
-## Exploring Facebook
-
- Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
-
-#### The homepage
-
- As soon as sign in to your Facebook account, you would be redirected to the News Feed. It means your homepage consists of information and images which your friends have shared. It consists of Menu at the very left which contains quick hyperlinks to Events, fun apps and groups that you are part of.
-
- On the top right, there is a panel which shows notifications, new friends requests and chat messages. This whole section is termed as recent activity panel.
-
- On the very top you would see a blank space reading like ‘What’s on your mind?’ This is the publisher space where you can update status or add pictures and videos that you would like to share.
-
- News Feed as we discussed above is what your friends are sharing for you to see. Right panel which read as trending Stories highlights the posts which other are reading and you can click on those hyperlinks for detailed story if you are interested in them.
-
-![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
-
-#### The Timeline
-
- The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
-
- In short, timeline shows everything which forms part of your profile and also the activities which your friends might have posted on your timeline.
-
-![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
-
-## How Facebook usage is diversified?
-
- There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
-
- Things which you can do with Facebook are not limited to below:
-
-* Allows you to login into different portals as websites have integrated Facebook for the login mechanism which means that with similar login credentials you can operate on different websites.
-* Provides a platform to connect with your idols and celebs
-* Gives you ample of space to share your thoughts and pictures to keep everybody updated
-* Chat unlimited with your online friends
-* Encourage your friends to join informative groups and events
-* Share your feelings for your friends and tag them to pictures which suit their personality
-* Play games and enhance your circle
-
-## How Does Facebook Sharing Work?
-
- Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
-
- The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -380,3 +425,61 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-breaking-down-the-barriers-to-knowing-your-fans/"><u>[New] 2024 Approved  Breaking Down the Barriers to Knowing Your Fans</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-steps-for-unlocking-stuck-obs-fullscreen-mode/"><u>[New] 2024 Approved  Steps for Unlocking Stuck OBS Fullscreen Mode</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unveiling-streams-comprehensive-guide-to-facebook-video-harvesting/"><u>[New] 2024 Approved  Unveiling Streams  Comprehensive Guide to Facebook Video Harvesting</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unveiling-the-hidden-fixes-for-fb-video-upload-woes/"><u>[New] 2024 Approved  Unveiling the Hidden Fixes for Fb Video Upload Woes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-boosting-traffic-elevating-your-pages-popularity-metric/"><u>[New] Boosting Traffic  Elevating Your Page's Popularity Metric</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-examining-youtubes-highlighted-comment-mechanics/"><u>[Updated] 2024 Approved  Examining YouTube's Highlighted Comment Mechanics</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-a-step-by-step-guide-to-creating-unique-facebook-video-content/"><u>[Updated] A Step-by-Step Guide to Creating Unique Facebook Video Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-bring-your-gopro-adventures-online-facebookperiscope-livestream-setup/"><u>[Updated] Bring Your Gopro Adventures Online  Facebook/Periscope Livestream Setup</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-broadcast-your-previous-video-a-guide-to-live-streaming-on-facebook/"><u>[Updated] Broadcast Your Previous Video  A Guide to Live-Streaming on Facebook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-masterful-techniques-to-alter-facial-gender-in-instagram-snapchat-and-facebook-pictures/"><u>[Updated] In 2024, Masterful Techniques to Alter Facial Gender in Instagram, Snapchat & Facebook Pictures</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unraveling-the-process-of-gaining-facebooks-blue-badge/"><u>[Updated] In 2024, Unraveling the Process of Gaining Facebook's Blue Badge</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unveiling-facebooks-video-ratio-options-and-tweaks/"><u>[Updated] In 2024, Unveiling Facebook's Video Ratio Options & Tweaks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-rokus-potential-with-facebook-live-streaming-for-2024/"><u>[Updated] Unlocking Roku's Potential with Facebook Live Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-avoidance-techniques-no-more-fb-vlogs/"><u>2024 Approved  Avoidance Techniques  No More FB Vlogs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-sourcing-free-frame-videos-without-a-dollar-drop/"><u>2024 Approved  Sourcing Free Frame Videos Without a Dollar Drop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/amplify-your-business-through-effective-use-of-top-15-fb-analyzers-for-2024/"><u>Amplify Your Business Through Effective Use of Top 15 FB Analyzers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/android-sdk-update-essential-tools-for-fb-video-extraction-for-2024/"><u>Android SDK Update  Essential Tools for FB Video Extraction for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/bridging-the-gap-between-tiktok-and-facebook-sharing/"><u>Bridging the Gap Between TikTok & Facebook Sharing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/building-a-robust-360-video-broadcast-framework-for-fb/"><u>Building a Robust 360 Video Broadcast Framework for FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/building-your-own-whatsapp-collaborative-space/"><u>Building Your Own WhatsApp Collaborative Space</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/capturing-moments-expert-tips-on-downloading-social-media-lives-for-2024/"><u>Capturing Moments  Expert Tips on Downloading Social Media Lives for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/chromes-favorite-video-clippers-from-facebook-for-2024/"><u>Chromes' Favorite Video Clippers From Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/crafting-compelling-stories-unveiling-the-secrets-to-winning-facebook-bios/"><u>Crafting Compelling Stories  Unveiling the Secrets to Winning Facebook Bios</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/decoding-inverse-visual-queries-on-facebook-platforms/"><u>Decoding Inverse Visual Queries on Facebook Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/digital-rights-unexpected-content-take-downs/"><u>Digital Rights  Unexpected Content Take-Downs</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/discover-the-5-premier-voice-recording-gadgets-optimized-for-mp3-files-for-2024/"><u>Discover the 5 Premier Voice Recording Gadgets Optimized for MP3 Files for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/driving-virality-on-the-worlds-largest-network/"><u>Driving Virality on the World’s Largest Network</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-instagram-clips-incorporating-borders-effectively-for-2024/"><u>Elevate Instagram Clips  Incorporating Borders Effectively for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enabling-full-use-of-the-control-key-in-windows-11/"><u>Enabling Full Use of the Control Key in Windows 11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebooks-most-noteworthy-tweaks-for-todays-users/"><u>Facebook's Most Noteworthy Tweaks for Today’s Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fix-intermittent-media-on-chrome-browser/"><u>Fix Intermittent Media on Chrome Browser</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-nokia-c300-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/free-fb-links-breeze-through-the-process/"><u>Free FB Links, Breeze Through the Process</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/from-captured-moments-to-digital-fame-broadcasting-with-gopro-and-social-platforms/"><u>From Captured Moments to Digital Fame  Broadcasting with GoPro & Social Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-account-takeover-restoring-access-in-the-new-year/"><u>In 2024, Account Takeover? Restoring Access in the New Year</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-all-access-fb-melodic-streaming/"><u>In 2024, All-Access FB Melodic Streaming</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-android-freedom-the-most-popular-top-10-fb-video-extraction-tools/"><u>In 2024, Android Freedom  The Most Popular Top 10 FB Video Extraction Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-audience-engagement-excellence-spreading-stories-on-facebook/"><u>In 2024, Audience Engagement Excellence  Spreading Stories on Facebook</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-how-to-change-aspect-ratio-in-imovie/"><u>In 2024, How to Change Aspect Ratio in iMovie</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-phantom-3-face-off-apparition-4-unveiled/"><u>In 2024, Phantom 3 Face-Off  Apparition 4 Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-rapid-rise-to-affiliate-hit-the-pivotal-10000-view-mark/"><u>In 2024, Rapid Rise to Affiliate  Hit the Pivotal 10,000 View Mark</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-3-key-copywriting-frameworks-for-social-media-promotion/"><u>Mastering 3 Key Copywriting Frameworks for Social Media Promotion</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mystery-behind-missing-facebook-video-suggests/"><u>Mystery Behind Missing Facebook Video Suggests</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-the-complexities-of-facebook-slideshow-tools/"><u>Navigating the Complexities of Facebook Slideshow Tools</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-transforming-videos-into-timeless-photos-10-essential-conversion-tools/"><u>New In 2024, Transforming Videos Into Timeless Photos 10 Essential Conversion Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/real-time-engagement-proven-strategies-for-facebook-video-screen-sharing/"><u>Real-Time Engagement  Proven Strategies for Facebook Video Screen Sharing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-se-2022-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone SE (2022) Data From iOS iTunes | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unlocking-the-secrets-of-silent-video-suggestions-in-feed/"><u>Unlocking the Secrets of Silent Video Suggestions in Feed</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-expert-edits-syncing-soundscapes-with-instagram-tv-videos/"><u>Updated 2024 Approved Expert Edits Syncing Soundscapes with Instagram TV Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/upgrading-your-mp4s-integrating-premium-srt-sound/"><u>Upgrading Your MP4s  Integrating Premium SRT Sound</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/your-favorite-top-10-youtube-and-facebooks-music-gems/"><u>Your Favorite Top 10  YouTube & Facebook's Music Gems</u></a></li>
+</ul></div>

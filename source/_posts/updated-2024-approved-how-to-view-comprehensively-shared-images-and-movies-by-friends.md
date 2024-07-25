@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How To View Comprehensively Shared Images and Movies by Friends?\""
-date: 2024-05-20T22:26:15.014Z
-updated: 2024-05-21T22:26:15.014Z
+date: 2024-07-24T00:47:33.878Z
+updated: 2024-07-25T00:47:33.878Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: How To View Comprehensively Shared Images and Movies by Friends?\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: How To View Comprehensively Shared Images and Movies by Friends?\""
 keywords: "\"Share Image Insight,Watch Friends' Media,Access Shared Photos,See Friends Videos,Comprehensive Shared Views,Group Media Exploration,Peer-to-Peer Film Browsing\""
-thumbnail: https://www.lifewire.com/thmb/hxXMxDKqxngPDng-AdjJYVIRzVc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/streamfreesportsonline-5b1994178023b900364a81e5.jpg
+thumbnail: https://thmb.techidaily.com/c3ba901f926249b24c063d003163e0cc5d148f0772ca21d903055c2189241e19.jpg
 ---
 
 ## How To View Comprehensively Shared Images and Movies by Friends?
@@ -43,6 +43,9 @@ Part 3: [Get All Shared Photos And Videos on Messenger Mobile App](#step3)
 
 Part 4: [Create Your Own Videos and Share to Your Friends on Facebook Messenger](#step4)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: All You Need to Know About Facebook Messenger
 
 The world of instant messaging has transformed since the advent of Messenger. In August, 2011 the facebook chat was replaced by Messenger but you can use Messenger even when you don’t have a facebook account. The app can be used on web, desktop and mobile apps, including Android and Apple, which makes it compatible with the Apple watch.
@@ -87,6 +90,9 @@ But, do not worry if you find it challenging to navigate the messenger website j
 
 You can do that with any contact. This way, you will be able to see videos and photos even when you have misplaced them on the phone. You can forward them to other contacts from there as well.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Part 3: Get All Shared Photos And Videos on Messenger Mobile App
 
 No worries if you are an android user and can not find how to view your shares videos and photos with a particular contact. Often we share a video or a picture with someone but find it tedious to look through the whole chat to locate that video.
@@ -105,6 +111,123 @@ Messenger allows you to access that within seconds. All you need to do is follow
 
 If you are an iPhone or iPad user, then you can follow the same method given above to see the multimedia shared with a contact.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 4: Create Your Own Videos and Share to Your Friends on Facebook Messenger App
+
+Are you a fan of creating exciting videos or mini clips? If yes, then let us introduce you to a fantastic video-creating app that is Wondershare Filmora. Wondershare Filmora is an excellent app for professionals as well as amateurs who are still navigating their way around video editing.
+
+With a wide variety of editing styles and numerous filters, Wondershare Filmora fuels your creativity with easy to use interface and editing tools. The best part about the software is that you don’t need to be an expert to use those editing tools. With some simple tools, you can remove backgrounds from videos, add effects, filters, text to your videos, and much more.
+
+Once you have created your videos, then you can share the video on the Messenger app. You can improve your videos or make some fun and goofy new ones by getting their app. And if you ever feel like rewatching those videos again, then you can look into the View Photos and Videos in the Messenger app.
+
+For content creators and those interested in video editing, Filmora can be the perfect tool to start. You can combine clips together seamlessly and share them with your followers.
+
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Finding your old multimedia from messenger’s chats is not a problem anymore. You can find all your multimedia files in a single folder in Messenger, so don’t shy away from sending more of those.
+
+Especially with the Wondershare Filmora app, you can create numerous new videos and share them with your friends and family through the Facebook Messenger App. With Filmora, you can complete creative freedom, and you can try out the newest filters, effects, and much more!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Have you ever faced the problem where you have been using an app for quite a while but will suddenly discover an old feature that we didn’t notice before until you needed it. That is exactly what the View Videos and Photos in Messenger did to us recently.
+
+When looking for a picture or video you sent in the messenger app, you would scour through the chat, look for the media between the messages and in the end close the app in frustration. But, who knew it was easy all along. You can locate all your facebook messenger videos and photos in just a few easy steps.
+
+This article will show you how you can locate all your media files in Facebook messenger mobile app, desktop app, and webpage.
+
+#### In this article
+
+Part 1: [All You Need to Know About Facebook Messenger](#step1)
+
+Part 2: [How Can You View All Photos And Videos on Desktop App](#step2)
+
+Part 3: [Get All Shared Photos And Videos on Messenger Mobile App](#step3)
+
+Part 4: [Create Your Own Videos and Share to Your Friends on Facebook Messenger](#step4)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: All You Need to Know About Facebook Messenger
+
+The world of instant messaging has transformed since the advent of Messenger. In August, 2011 the facebook chat was replaced by Messenger but you can use Messenger even when you don’t have a facebook account. The app can be used on web, desktop and mobile apps, including Android and Apple, which makes it compatible with the Apple watch.
+
+Essentially, Messenger is a texting app that allows you to text a person one-on-one or chat in a group. Upon all that messenger allows you to use emojis that reflect your emotions. But, the best part is how you can easily share videos, pictures and documents in Messenger.
+
+Facebook Messenger comes with an array of great features including reacting on messages and media, read receipts, time stamps on messages, customizing your chat style etc.
+
+Amongst all the fantastic features of Facebook Messenger, it collects all the media files you share in a chat and stores them in a single folder. This allows you to quickly view all the files that you have shared in a chat. This is what makes this app a fan favorite.
+
+For all those unfamiliar with the last feature, we will guide you in detail on how you can access photos and videos in your messenger chat.
+
+## Part 2: How Can You View All Photos And Videos on Desktop App
+
+One always faces some kind of trouble when we are navigating another version of the same app. The case gets particularly sensitive when some essential or memorable pictures and videos are involved.
+
+We all love chatting on the messenger app, but sometimes it is impossible to find all the media that you shared in the chatbox. The images and videos are often lost in between with all the text messages.
+
+Messenger has just the solution to that, and we are here to guide you. If you own the messenger desktop app, then follow the steps below:
+
+1. Open the Messenger app on your Desktop.
+2. Select the contact you want to access the media of.
+3. Next, when the chatbox for that contact opens, click on the three dots in the upper right corner.
+4. Select Video Media and Files.
+
+Here you can view all the media files that are arranged according to their date.
+
+And, you are done. You can now use the above steps to access multimedia in any chat.
+
+## Finding Photos And Videos on Messenger Website
+
+While the Desktop app is excellent to use when you are not using messenger on your phone, most of us just go to the messenger site and chat away. Sometimes it’s just easier to chat on your browser and not open any apps.
+
+But, do not worry if you find it challenging to navigate the messenger website just because it is your first time or you don’t know anything about it besides how to chat. We can help you with that, especially if you can not locate pictures and videos through the website. Follow the easy and simple steps below, and you will find the media files in no time.
+
+1. Open your messenger app and log in with your user ID and password.
+2. Click on the names of your friends on your left to open a chatbox.
+3. When you open the conversation, click on the three small dots on the top right corner to open the information about a conversation.
+4. Then click on **Shared Media**to access all the pictures and videos that you have sent to this particular contact.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![click on Shared Media](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-1.png)
+
+You can do that with any contact. This way, you will be able to see videos and photos even when you have misplaced them on the phone. You can forward them to other contacts from there as well.
+
+## Part 3: Get All Shared Photos And Videos on Messenger Mobile App
+
+No worries if you are an android user and can not find how to view your shares videos and photos with a particular contact. Often we share a video or a picture with someone but find it tedious to look through the whole chat to locate that video.
+
+Messenger allows you to access that within seconds. All you need to do is follow the steps below if you are using the Messenger android app:
+
+1. Open the messenger app on your phone.
+2. Choose the contact you want to view pictures and videos of from the chats.
+3. Once you have opened a chat, tap on the information icon beside the person’s name in the chat.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![tap on the information icon](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-2.png)
+
+1. Now, click on **View Photos and Videos** to view all the photos and videos shared with the contact.
+
+![click on View Photos and Videos](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-3.png)
+
+If you are an iPhone or iPad user, then you can follow the same method given above to see the multimedia shared with a contact.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: Create Your Own Videos and Share to Your Friends on Facebook Messenger App
 
 Are you a fan of creating exciting videos or mini clips? If yes, then let us introduce you to a fantastic video-creating app that is Wondershare Filmora. Wondershare Filmora is an excellent app for professionals as well as amateurs who are still navigating their way around video editing.
@@ -141,6 +264,10 @@ Part 3: [Get All Shared Photos And Videos on Messenger Mobile App](#step3)
 
 Part 4: [Create Your Own Videos and Share to Your Friends on Facebook Messenger](#step4)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Part 1: All You Need to Know About Facebook Messenger
 
 The world of instant messaging has transformed since the advent of Messenger. In August, 2011 the facebook chat was replaced by Messenger but you can use Messenger even when you don’t have a facebook account. The app can be used on web, desktop and mobile apps, including Android and Apple, which makes it compatible with the Apple watch.
@@ -181,10 +308,16 @@ But, do not worry if you find it challenging to navigate the messenger website j
 3. When you open the conversation, click on the three small dots on the top right corner to open the information about a conversation.
 4. Then click on **Shared Media**to access all the pictures and videos that you have sent to this particular contact.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on Shared Media](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-1.png)
 
 You can do that with any contact. This way, you will be able to see videos and photos even when you have misplaced them on the phone. You can forward them to other contacts from there as well.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Get All Shared Photos And Videos on Messenger Mobile App
 
 No worries if you are an android user and can not find how to view your shares videos and photos with a particular contact. Often we share a video or a picture with someone but find it tedious to look through the whole chat to locate that video.
@@ -195,6 +328,9 @@ Messenger allows you to access that within seconds. All you need to do is follow
 2. Choose the contact you want to view pictures and videos of from the chats.
 3. Once you have opened a chat, tap on the information icon beside the person’s name in the chat.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![tap on the information icon](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-2.png)
 
 1. Now, click on **View Photos and Videos** to view all the photos and videos shared with the contact.
@@ -213,6 +349,10 @@ Once you have created your videos, then you can share the video on the Messenger
 
 For content creators and those interested in video editing, Filmora can be the perfect tool to start. You can combine clips together seamlessly and share them with your followers.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Finding your old multimedia from messenger’s chats is not a problem anymore. You can find all your multimedia files in a single folder in Messenger, so don’t shy away from sending more of those.
@@ -239,6 +379,9 @@ Part 3: [Get All Shared Photos And Videos on Messenger Mobile App](#step3)
 
 Part 4: [Create Your Own Videos and Share to Your Friends on Facebook Messenger](#step4)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Part 1: All You Need to Know About Facebook Messenger
 
 The world of instant messaging has transformed since the advent of Messenger. In August, 2011 the facebook chat was replaced by Messenger but you can use Messenger even when you don’t have a facebook account. The app can be used on web, desktop and mobile apps, including Android and Apple, which makes it compatible with the Apple watch.
@@ -268,6 +411,9 @@ Here you can view all the media files that are arranged according to their date.
 
 And, you are done. You can now use the above steps to access multimedia in any chat.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Finding Photos And Videos on Messenger Website
 
 While the Desktop app is excellent to use when you are not using messenger on your phone, most of us just go to the messenger site and chat away. Sometimes it’s just easier to chat on your browser and not open any apps.
@@ -297,6 +443,9 @@ Messenger allows you to access that within seconds. All you need to do is follow
 
 1. Now, click on **View Photos and Videos** to view all the photos and videos shared with the contact.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on View Photos and Videos](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-3.png)
 
 If you are an iPhone or iPad user, then you can follow the same method given above to see the multimedia shared with a contact.
@@ -311,104 +460,9 @@ Once you have created your videos, then you can share the video on the Messenger
 
 For content creators and those interested in video editing, Filmora can be the perfect tool to start. You can combine clips together seamlessly and share them with your followers.
 
-## Conclusion
-
-Finding your old multimedia from messenger’s chats is not a problem anymore. You can find all your multimedia files in a single folder in Messenger, so don’t shy away from sending more of those.
-
-Especially with the Wondershare Filmora app, you can create numerous new videos and share them with your friends and family through the Facebook Messenger App. With Filmora, you can complete creative freedom, and you can try out the newest filters, effects, and much more!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Have you ever faced the problem where you have been using an app for quite a while but will suddenly discover an old feature that we didn’t notice before until you needed it. That is exactly what the View Videos and Photos in Messenger did to us recently.
-
-When looking for a picture or video you sent in the messenger app, you would scour through the chat, look for the media between the messages and in the end close the app in frustration. But, who knew it was easy all along. You can locate all your facebook messenger videos and photos in just a few easy steps.
-
-This article will show you how you can locate all your media files in Facebook messenger mobile app, desktop app, and webpage.
-
-#### In this article
-
-Part 1: [All You Need to Know About Facebook Messenger](#step1)
-
-Part 2: [How Can You View All Photos And Videos on Desktop App](#step2)
-
-Part 3: [Get All Shared Photos And Videos on Messenger Mobile App](#step3)
-
-Part 4: [Create Your Own Videos and Share to Your Friends on Facebook Messenger](#step4)
-
-## Part 1: All You Need to Know About Facebook Messenger
-
-The world of instant messaging has transformed since the advent of Messenger. In August, 2011 the facebook chat was replaced by Messenger but you can use Messenger even when you don’t have a facebook account. The app can be used on web, desktop and mobile apps, including Android and Apple, which makes it compatible with the Apple watch.
-
-Essentially, Messenger is a texting app that allows you to text a person one-on-one or chat in a group. Upon all that messenger allows you to use emojis that reflect your emotions. But, the best part is how you can easily share videos, pictures and documents in Messenger.
-
-Facebook Messenger comes with an array of great features including reacting on messages and media, read receipts, time stamps on messages, customizing your chat style etc.
-
-Amongst all the fantastic features of Facebook Messenger, it collects all the media files you share in a chat and stores them in a single folder. This allows you to quickly view all the files that you have shared in a chat. This is what makes this app a fan favorite.
-
-For all those unfamiliar with the last feature, we will guide you in detail on how you can access photos and videos in your messenger chat.
-
-## Part 2: How Can You View All Photos And Videos on Desktop App
-
-One always faces some kind of trouble when we are navigating another version of the same app. The case gets particularly sensitive when some essential or memorable pictures and videos are involved.
-
-We all love chatting on the messenger app, but sometimes it is impossible to find all the media that you shared in the chatbox. The images and videos are often lost in between with all the text messages.
-
-Messenger has just the solution to that, and we are here to guide you. If you own the messenger desktop app, then follow the steps below:
-
-1. Open the Messenger app on your Desktop.
-2. Select the contact you want to access the media of.
-3. Next, when the chatbox for that contact opens, click on the three dots in the upper right corner.
-4. Select Video Media and Files.
-
-Here you can view all the media files that are arranged according to their date.
-
-And, you are done. You can now use the above steps to access multimedia in any chat.
-
-## Finding Photos And Videos on Messenger Website
-
-While the Desktop app is excellent to use when you are not using messenger on your phone, most of us just go to the messenger site and chat away. Sometimes it’s just easier to chat on your browser and not open any apps.
-
-But, do not worry if you find it challenging to navigate the messenger website just because it is your first time or you don’t know anything about it besides how to chat. We can help you with that, especially if you can not locate pictures and videos through the website. Follow the easy and simple steps below, and you will find the media files in no time.
-
-1. Open your messenger app and log in with your user ID and password.
-2. Click on the names of your friends on your left to open a chatbox.
-3. When you open the conversation, click on the three small dots on the top right corner to open the information about a conversation.
-4. Then click on **Shared Media**to access all the pictures and videos that you have sent to this particular contact.
-
-![click on Shared Media](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-1.png)
-
-You can do that with any contact. This way, you will be able to see videos and photos even when you have misplaced them on the phone. You can forward them to other contacts from there as well.
-
-## Part 3: Get All Shared Photos And Videos on Messenger Mobile App
-
-No worries if you are an android user and can not find how to view your shares videos and photos with a particular contact. Often we share a video or a picture with someone but find it tedious to look through the whole chat to locate that video.
-
-Messenger allows you to access that within seconds. All you need to do is follow the steps below if you are using the Messenger android app:
-
-1. Open the messenger app on your phone.
-2. Choose the contact you want to view pictures and videos of from the chats.
-3. Once you have opened a chat, tap on the information icon beside the person’s name in the chat.
-
-![tap on the information icon](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-2.png)
-
-1. Now, click on **View Photos and Videos** to view all the photos and videos shared with the contact.
-
-![click on View Photos and Videos](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-3.png)
-
-If you are an iPhone or iPad user, then you can follow the same method given above to see the multimedia shared with a contact.
-
-## Part 4: Create Your Own Videos and Share to Your Friends on Facebook Messenger App
-
-Are you a fan of creating exciting videos or mini clips? If yes, then let us introduce you to a fantastic video-creating app that is Wondershare Filmora. Wondershare Filmora is an excellent app for professionals as well as amateurs who are still navigating their way around video editing.
-
-With a wide variety of editing styles and numerous filters, Wondershare Filmora fuels your creativity with easy to use interface and editing tools. The best part about the software is that you don’t need to be an expert to use those editing tools. With some simple tools, you can remove backgrounds from videos, add effects, filters, text to your videos, and much more.
-
-Once you have created your videos, then you can share the video on the Messenger app. You can improve your videos or make some fun and goofy new ones by getting their app. And if you ever feel like rewatching those videos again, then you can look into the View Photos and Videos in the Messenger app.
-
-For content creators and those interested in video editing, Filmora can be the perfect tool to start. You can combine clips together seamlessly and share them with your followers.
-
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Finding your old multimedia from messenger’s chats is not a problem anymore. You can find all your multimedia files in a single folder in Messenger, so don’t shy away from sending more of those.
@@ -440,3 +494,76 @@ Especially with the Wondershare Filmora app, you can create numerous new videos 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-avoid-video-ads-strategies-to-keep-ads-at-bay/"><u>[New] 2024 Approved  Avoid Video Ads  Strategies to Keep Ads at Bay</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-clearing-up-false-facade-in-virtual-conversations-fb/"><u>[New] 2024 Approved  Clearing Up False Facade in Virtual Conversations FB</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-clipcraft-designer/"><u>[New] 2024 Approved  ClipCraft Designer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-coping-with-unexpected-account-suspension-on-copyright-claims/"><u>[New] 2024 Approved  Coping with Unexpected Account Suspension on Copyright Claims</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-creative-loss-unexpectedly-banished-vid/"><u>[New] 2024 Approved  Creative Loss  Unexpectedly Banished Vid</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-cure-for-the-vanished-watch-video-icon-2023-edition/"><u>[New] 2024 Approved  Cure for the Vanished Watch Video Icon, 2023 Edition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-exploring-the-mystery-of-the-blue-video-symbol-on-fb-messages/"><u>[New] 2024 Approved  Exploring the Mystery of the Blue Video Symbol on FB Messages</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-verification-how-to-get-the-blue-verified-badge-easily/"><u>[New] 2024 Approved  Facebook Verification  How to Get the Blue Verified Badge (Easily)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebooks-premier-video-extraction-tools-for-iphone-and-ipad/"><u>[New] 2024 Approved  Facebook's Premier Video Extraction Tools for iPhone & iPad</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facilitating-instant-sharing-tiktok-videos-on-facebook/"><u>[New] 2024 Approved  Facilitating Instant Sharing  TikTok Videos on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-filming-in-circle-iphone-techniques-for-facebook-integration/"><u>[New] 2024 Approved  Filming in Circle  IPhone Techniques for Facebook Integration</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-top-farm-games-for-social-play-with-peers/"><u>[New] 2024 Approved  Top Farm Games for Social Play with Peers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-automating-youtube-playback-in-social-networks-a-focus-on-facebook-for-2024/"><u>[New] Automating Youtube Playback in Social Networks  A Focus on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-best-bits-of-bulb-tech-top-17-choices-for-2024/"><u>[New] Best Bits of Bulb Tech - Top 17 Choices for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-discovering-the-roots-of-visual-content-through-reverse-scans-fb-for-2024/"><u>[New] Discovering the Roots of Visual Content Through Reverse Scans (FB) for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-chats-to-files-the-methodical-approach-to-downloading-fb-video-for-2024/"><u>[New] From Chats to Files  The Methodical Approach to Downloading FB Video for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-achieve-xbox-broadcast-excellence-on-facebook/"><u>[New] In 2024, Achieve Xbox Broadcast Excellence on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-capture-facebook-videos-like-a-pro-select-the-best-firefox-addons-and-downloaders/"><u>[New] In 2024, Capture Facebook Videos Like a Pro  Select the Best Firefox Addons & Downloaders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-clandestine-fb-live-observer/"><u>[New] In 2024, Clandestine FB Live Observer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-concepts-behind-striking-fb-video-promos/"><u>[New] In 2024, Concepts Behind Striking FB Video Promos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-cut-the-cord-download-fb-videos-on-pc-and-mobile/"><u>[New] In 2024, Cut the Cord - Download FB Videos on PC & Mobile</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-cutting-edge-video-sharing-from-facebook-to-whatsapp/"><u>[New] In 2024, Cutting-Edge Video Sharing From Facebook to WhatsApp</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-future-of-fb-ads-predictions/"><u>[New] In 2024, Future of FB Ads  Predictions</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-integrating-end-screen-elements-with-vimeo/"><u>[New] In 2024, Integrating End Screen Elements with Vimeo</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-instant-transmission-tweets-as-vids-on-whatsapp-for-2024/"><u>[New] Instant Transmission  Tweets as Vids on WhatsApp for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-learn-to-perfectly-format-text-on-discord-with-simplicity-for-2024/"><u>[New] Learn To Perfectly Format Text on Discord with Simplicity for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-secure-and-seamless-file-sharing-with-20-preferred-no-fee-services/"><u>[New] Secure & Seamless File Sharing with 20 Preferred No-Fee Services</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-turn-any-youtube-experience-into-a-fun-animated-gif-on-devices/"><u>[New] Turn Any YouTube Experience Into a Fun, Animated GIF on Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-elite-8-films-on-facebook/"><u>[Updated] 2024 Approved  Elite 8 Films on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-enhancing-tv-experience-watching-fb-content-seamlessly/"><u>[Updated] 2024 Approved  Enhancing TV Experience  Watching Fb Content Seamlessly</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facebooks-ultimate-add-ons-for-the-tech-enthusiast/"><u>[Updated] 2024 Approved  Facebook's Ultimate Add-Ons for the Tech Enthusiast</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fb-stream-to-sound-an-audio-conversion-tool/"><u>[Updated] 2024 Approved  FB Stream to Sound  An Audio Conversion Tool</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-viral-views-vault-the-daily-top-10-watched-videos/"><u>[Updated] 2024 Approved  Viral Views Vault  The Daily Top 10 Watched Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-boost-your-fb-presence-timing-and-tools-for-freely-for-2024/"><u>[Updated] Boost Your FB Presence  Timing and Tools for Freely for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-break-free-the-chuckles-the-most-hilarious-facebook-detainment-stories-for-2024/"><u>[Updated] Break Free the Chuckles  The Most Hilarious Facebook Detainment Stories for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-catching-facebooks-favorite-visual-stories-for-2024/"><u>[Updated] Catching Facebook's Favorite Visual Stories for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-crafting-conversation-spaces-on-messenger-app-for-2024/"><u>[Updated] Crafting Conversation Spaces on Messenger App for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-essential-empowerment-packages-top-trending-products-for-todays-entrepreneur-for-2024/"><u>[Updated] Essential Empowerment Packages  Top Trending Products for Today's Entrepreneur for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-accessible-file-transformation-facebook-videos-to-hdmp4-at-no-cost/"><u>[Updated] In 2024, Accessible File Transformation  Facebook Videos to HD/MP4 at No Cost</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-become-a-social-butterfly-engage-in-fb-live-on-your-roku-box/"><u>[Updated] In 2024, Become a Social Butterfly  Engage in FB Live on Your Roku Box</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-best-practice-mp4-director-to-fb/"><u>[Updated] In 2024, Best Practice MP4 Director to FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-can-i-browse-through-my-contacts-shared-material-in-messaging/"><u>[Updated] In 2024, Can I Browse Through My Contacts' Shared Material in Messaging?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-cross-platform-soundtrack-strategy-for-facebook-profiles/"><u>[Updated] In 2024, Cross-Platform Soundtrack Strategy for Facebook Profiles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-direct-video-streaming-sending-fb-vids-straight-into-whatsapp/"><u>[Updated] In 2024, Direct Video Streaming  Sending FB Vids Straight Into WhatsApp</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-escape-the-permanent-suspension-top-fb-jailbreak-tips/"><u>[Updated] In 2024, Escape the Permanent Suspension  Top FB Jailbreak Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-lg-27uhd68-screen-revolution-understanding-4k-sync-technology/"><u>[Updated] LG 27UHD68 Screen Revolution  Understanding 4K Sync Technology</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-snap-up-your-fb-urls-top-8-free-and-online-exporters-of-the-year/"><u>[Updated] Snap up Your FB URLs  Top 8 Free & Online Exporters of the Year</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-superior-obs-configurations-budget-edition/"><u>[Updated] Superior OBS Configurations - Budget Edition</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-swiftly-switch-srt-and-text-files-with-this-easy-guide-for-2024/"><u>[Updated] Swiftly Switch SRT and Text Files with This Easy Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>2024 Approved  Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-webcam-mastery-creating-videos-on-macbook/"><u>2024 Approved  Webcam Mastery  Creating Videos on MacBook</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-expert-picks-convert-mp3-audio-to-written-format/"><u>2024 Approved Expert Picks Convert MP3 Audio to Written Format</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-poco-c50-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Poco C50</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/analyzing-androids-best-editor-is-pickup-at-the-peak-of-performance-in-2024/"><u>Analyzing Android's Best Editor  Is PickUp at the Peak of Performance, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/avoid-washout-3-essential-tips-for-iphone-hd-video-enhancement-in-premiere-pro-for-2024/"><u>Avoid Washout  3 Essential Tips for iPhone HD Video Enhancement in Premiere Pro for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/ensuring-seamless-gameplay-fixing-civ5-glitches/"><u>Ensuring Seamless Gameplay: Fixing CIV5 Glitches</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-samsung-galaxy-f15-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Samsung Galaxy F15 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-realme-c33-2023-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Realme C33 2023 Phones with/without a PC</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-bridging-the-web-with-instagram-a-url-tutorial/"><u>In 2024, Bridging the Web with Instagram  A URL Tutorial</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-examining-the-potential-of-4-second-subscriptions/"><u>In 2024, Examining the Potential of 4-Second Subscriptions</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-apple-iphone-14-pro-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the Apple iPhone 14 Pro Without Previous Owner?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-innovative-illusions-snapchat-filters-leading-the-way/"><u>In 2024, Innovative Illusions  Snapchat Filters Leading the Way</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/in-2024-key-findings-top-ogg-conversion-tools/"><u>In 2024, Key Findings Top OGG Conversion Tools</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-top-best-5-free-mpeg-video-joiners/"><u>New 2024 Approved Top Best 5 Free MPEG Video Joiners</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/polytunehub-syncing-audio-across-scenes-in-adobe-premiere-pro-with-precision-new-2023-features-for-2024/"><u>PolyTuneHub Syncing Audio Across Scenes in Adobe Premiere Pro with Precision New 2023 Features for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/unbiased-avs-video-editor-review-is-it-right-for-you-in-2024/"><u>Unbiased AVS Video Editor Review Is It Right for You, In 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-crafting-auditory-landscapes-the-artistic-synergy-between-film-edits-and-pianissimo-passages/"><u>Updated Crafting Auditory Landscapes The Artistic Synergy Between Film Edits and Pianissimo Passages</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-free-and-paid-3d-animation-software-a-comprehensive-review/"><u>Updated In 2024, Free and Paid 3D Animation Software A Comprehensive Review</u></a></li>
+</ul></div>

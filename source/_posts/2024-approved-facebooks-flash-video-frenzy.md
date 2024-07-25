@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Facebook's Flash Video Frenzy\""
-date: 2024-05-20T22:29:25.798Z
-updated: 2024-05-21T22:29:25.798Z
+date: 2024-07-24T00:57:21.704Z
+updated: 2024-07-25T00:57:21.704Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Facebook's Flash Video Frenzy\""
 excerpt: "\"This Article Describes 2024 Approved: Facebook's Flash Video Frenzy\""
 keywords: "\"FB Video Trends,Social Media Playback,Flash Video Growth,Digital Video Sharing,Facebook Streaming,Online Video Popularity,Ad-Supported Videos\""
-thumbnail: https://www.lifewire.com/thmb/Gs5sJSrH44HI93nu2uClFWSimlI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1833719522-ae350c6ed04a449e8fc03206518c02c3.jpg
+thumbnail: https://thmb.techidaily.com/b461869fdc65b7a58affdd23329a3336b55cdb42a5e0550c353e9047546c19d2.jpg
 ---
 
 ## Facebook's Flash Video Frenzy
@@ -25,6 +25,9 @@ Facebook short videos use a similar format as reels, where content creators can 
 
 This article explains how to view these short videos on Facebook and create them. In order to find out more, keep reading!!!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Watch Facebook Short Videos?
 
 Watching Facebook short videos is a relatively easier process, but we will guide you through a step-by-step process to achieve this since this is a new feature.
@@ -33,14 +36,30 @@ Watching Facebook short videos is a relatively easier process, but we will guide
 
 The first step is very basic. All you got to do is open your Facebook App.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### Step 2: Scroll Down
 
 Once your app is up and running, scroll down. After about 3 to 4 posts, you will see a template that saysAltAlt short videos with several videos present.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ### Step 3: Tap on the Video
 
 Once you see the video, tap on it. This should play a short video. Scroll down to see more of the similar sort of short videos.
@@ -51,6 +70,9 @@ Once you see the video, tap on it. This should play a short video. Scroll down t
 
 The Facebook short videos are a new feature, so we will tell you how to enable them if you want them. If it annoys you, we will add steps on how you can disable it.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Enabling Facebook Short Stories
 
 If you have tried the steps described above and still cannot see the short videos on your Facebook feed, we will help you see them.
@@ -59,6 +81,9 @@ If you have tried the steps described above and still cannot see the short video
 
 Click on the Play Store and search Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![Launch Playstore](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-4.jpg)
 
 **Step 2: Update Facebook**
@@ -75,6 +100,9 @@ The next step is to go to your settings and search for Facebook in the apps.
 
 Tap on Facebook and view its space; tapAltAlt on clear data.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Select Clear Data](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-6.jpg)
 
 **Step 5: Give Facebook all the Permissions**
@@ -95,6 +123,9 @@ Once your device has restarted, launch Facebook and log in.
 
 This process lets Facebook reboot and brings the newer updates through, so sit back and enjoy the short videos on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Disabling Facebook Short Stories
 
 If you feel that the Facebook short stories are annoying and causing problems, you can follow the steps to do something about that.
@@ -109,6 +140,9 @@ The first step is simple. YouAltAlt open your Facebook app.
 
 Once your app has launched, scroll down to the short videos section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-9.jpg)
 
 **Step 3: Tap on three dots**
@@ -125,6 +159,9 @@ Once you tap on the three dots, a pop-up will appear. This pops up will ask if y
 
 The short video on Facebook is an integrated feature into the application’s user interface, making it impossible to disable it. You can, however, hide it from your newsfeed for the time that you are scrolling through your feed.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## How to Create Short Videos?
 
 Seeing several different videos may make you want to make your own as well. Perhaps a content creator might give you the motivation to become one yourself. To take the first steps towards this, we will help you create your own short videos in 2 ways.
@@ -137,6 +174,9 @@ You can use the in-built feature in Facebook to actively make the short video in
 
 Launch your Facebook app by tapping on it.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-12.jpg)
 
 **Step 2: Scroll Down to Short Videos**
@@ -159,12 +199,19 @@ You can record a 45-second video and add music by tapping the music icon on the 
 
 Once you have recorded the video, you can add music later onAltAlt. You can add any text you want to the video as well.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Edit the video](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-15.jpg)
 
 **Step 6: Tap Next**
 
 Once you have successfully edited the video to your liking, tap on next.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![Click on next](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-16.jpg)
 
 **Step 7: Post the Video**
@@ -187,12 +234,19 @@ The first step is to launch it on your laptop or PC and get to work.
 
 Import the media files you want to add to the short video on Facebook. It can be pictures that you want to add music in the background or add transitions to the video you have recorded.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Import Files](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-18.jpg)
 
 **Step 3: Drag and Drop the Footage**\>
 
 After selecting the files, you drag and drop them down on the timeline in the sequence you want them to play in.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![Drag and Drop footage](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-19.jpg)
 
 **Step 4: Edit the Footage**\>
@@ -276,3 +330,44 @@ Although the young generation has shifted to Instagram and Snapchat, the previou
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-accessing-vintage-facebook-content-tips-for-all-devices/"><u>[New] Accessing Vintage Facebook Content  Tips for All Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-artful-approaches-to-elevating-your-fb-ad-reach/"><u>[New] Artful Approaches to Elevating Your FB Ad Reach</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-capture-chat-tunes-on-social-platforms/"><u>[New] Capture Chat Tunes on Social Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-clear-cuts-for-chilling-youtube-content-no-more-silent-lapses/"><u>[New] Clear Cuts for Chilling YouTube Content – No More Silent Lapses</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-cut-down-on-effort-schedule-fb-posts-for-free/"><u>[New] Cut Down on Effort  Schedule Fb Posts for Free</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-sweet-snack-snapshot-review-deep-insight-for-2024/"><u>[New] Sweet Snack Snapshot Review Deep Insight for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023-techniques-for-harvesting-fb-status-video-content/"><u>[Updated] 2023 Techniques for Harvesting FB Status Video Content</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-beginners-pathway-to-effective-discostreaming/"><u>[Updated] 2024 Approved  Beginner's Pathway to Effective DiscoStreaming</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-a-comprehensive-guide-to-facebooks-full-screen-feature/"><u>[Updated] A Comprehensive Guide to Facebook's Full Screen Feature</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-dive-into-digital-friendship-start-your-facebook-journey/"><u>[Updated] Dive Into Digital Friendship  Start Your Facebook Journey</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-from-casual-gamer-to-pro-elevating-your-minecraft-recordings-with-a-mac-for-2024/"><u>[Updated] From Casual Gamer to Pro  Elevating Your Minecraft Recordings with a Mac for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-universal-method-for-recording-your-preferred-youtube-stream-no-matter-the-device-for-2024/"><u>[Updated] Universal Method for Recording Your Preferred YouTube Stream, No Matter the Device for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-a-beginners-pathway-for-live-streaming-pre-recorded-content/"><u>2024 Approved  A Beginner's Pathway for Live Streaming Pre-Recorded Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-a-guide-to-crafting-a-captivating-fb-memory-reel/"><u>2024 Approved  A Guide to Crafting a Captivating FB Memory Reel</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-achieve-mastery-in-tracking-fbs-recently-seen-videos/"><u>2024 Approved  Achieve Mastery in Tracking Fb’s Recently Seen Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-building-brand-persona-writing-killer-bios-for-facebook-profiles/"><u>2024 Approved  Building Brand Persona  Writing Killer Bios for Facebook Profiles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-cutting-edge-ad-strategies-for-peak-performance-on-facebook/"><u>2024 Approved  Cutting-Edge Ad Strategies for Peak Performance on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-elevating-your-marketing-game-making-impactful-fb-videos/"><u>2024 Approved  Elevating Your Marketing Game  Making Impactful FB Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/android-developers-choice-premier-tools-for-extracting-fb-videos-for-2024/"><u>Android Developer's Choice  Premier Tools for Extracting FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/can-i-browse-through-all-my-contacts-shared-videos-and-photos-for-2024/"><u>Can I Browse Through All My Contact's Shared Videos & Photos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/clandestine-glimpse-at-fb-flashbacks-for-2024/"><u>Clandestine Glimpse at Fb Flashbacks for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-vivo-y200-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Vivo Y200 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-realme-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Realme Contacts  An Easy Method Explained.</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-vivo-v27e-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-beginners-pathway-to-livestreaming-on-facebook-and-mobile-devices/"><u>In 2024, Beginner's Pathway to Livestreaming on Facebook and Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-charting-the-path-to-previous-imagery-a-facebook-centric-guide/"><u>In 2024, Charting the Path to Previous Imagery  A Facebook-Centric Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-cut-down-on-effort-schedule-fb-posts-for-free/"><u>In 2024, Cut Down on Effort  Schedule Fb Posts for Free</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-wander-in-wealthy-web-words-worlds/"><u>In 2024, Wander in Wealthy Web Words Worlds</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagrams-best-practices-for-sensational-video-loops/"><u>Instagram's Best Practices for Sensational Video Loops</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-top-10-timecode-conversion-tools-online-ios-and-android/"><u>New Top 10 Timecode Conversion Tools Online, iOS, and Android</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/optimal-budget-free-fb-videopicture-engineer/"><u>Optimal Budget-Free FB Video/Picture Engineer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/revolutionizing-tv-viewership-with-streamed-fb-events/"><u>Revolutionizing TV Viewership with Streamed FB Events</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/seamless-streams-expert-guide-to-facebook-screen-sharing/"><u>Seamless Streams  Expert Guide to Facebook Screen Sharing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/stay-on-top-the-essential-guide-to-fbs-latest-video-tracks/"><u>Stay on Top  The Essential Guide to FB's Latest Video Tracks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-sony-by-drfone-android/"><u>Three Ways to Sim Unlock Sony</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unleashing-potential-making-the-most-of-facebook-each-day/"><u>Unleashing Potential  Making the Most of Facebook Each Day</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unveiling-the-process-of-hd-video-extraction-on-fb/"><u>Unveiling the Process of HD Video Extraction on FB</u></a></li>
+</ul></div>

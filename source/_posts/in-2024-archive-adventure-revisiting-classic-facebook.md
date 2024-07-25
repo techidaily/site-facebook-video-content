@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Archive Adventure  Revisiting Classic Facebook\""
-date: 2024-06-19T05:35:25.427Z
-updated: 2024-06-20T05:35:25.427Z
+date: 2024-07-24T01:06:33.163Z
+updated: 2024-07-25T01:06:33.163Z
 tags:
   - ai video
   - ai facebook
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/482b0b9f60bdf46ea3aa9192b63978daf29cfbcce
 
 # How to See Old Stories on Facebook: Find Story Archive Easily
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -37,12 +40,27 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -71,10 +89,16 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 **Step 3:** Then Select “Archive” from the given options.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
@@ -99,6 +123,9 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Features:**
@@ -141,6 +168,10 @@ Also, Try using Wondershare Filmora for getting high-quality video editing featu
 
 Happy editing!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -157,3 +188,44 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-firefoxs-social-media-edge-top-downloader-extensions-and-addons-for-fb-content/"><u>[New] FireFox's Social Media Edge  Top Downloader Extensions and Addons for FB Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-advanced-techniques-in-fbx-game-filming/"><u>[New] In 2024, Advanced Techniques in FBX Game Filming</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-the-best-practices-for-fb-video-advertising/"><u>[New] Navigating the Best Practices for FB Video Advertising</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-the-social-landsayer-how-to-spark-fb-engagement/"><u>[New] Navigating the Social Landsayer  How to Spark FB Engagement</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-capturing-the-essence-streamlined-guide-to-phonescreen-recording-on-snapchat-for-2024/"><u>[Updated] Capturing the Essence  Streamlined Guide to Phonescreen Recording on Snapchat for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-commanding-youtube-realm-through-strategic-creator-studio-utilization-for-2024/"><u>[Updated] Commanding YouTube Realm Through Strategic Creator Studio Utilization for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-creating-illusionary-settings-with-instagrams-chroma-key-for-2024/"><u>[Updated] Creating Illusionary Settings with Instagram’s Chroma Key for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-driving-revenue-with-well-crafted-youtube-channel-trailers-for-2024/"><u>[Updated] Driving Revenue with Well-Crafted YouTube Channel Trailers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-silent-screens-to-captivating-media-instantly-create-captions-on-fb/"><u>[Updated] From Silent Screens to Captivating Media  Instantly Create Captions on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-amplify-facebook-stories-with-music-elements/"><u>[Updated] How to Amplify Facebook Stories with Music Elements</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-experts-guide-to-recording-mp4-videos/"><u>[Updated] In 2024, Expert's Guide to Recording MP4 Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-maximize-your-mobile-top-10-free-image-enhancement-tools-for-2024/"><u>[Updated] Maximize Your Mobile  Top 10 Free Image Enhancement Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-methodical-guide-to-unmute-your-social-network-videos/"><u>[Updated] Methodical Guide to Unmute Your Social Network Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-a-full-exploration-of-speech-to-text-features-within-gdoc/"><u>2024 Approved  A Full Exploration of Speech-to-Text Features Within GDoc</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebooks-secrets-to-impressive-cover-video-setup/"><u>2024 Approved  Facebook's Secrets to Impressive Cover Video Setup</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fix-hidden-suggested-youtube-and-facebook-videos-explained/"><u>2024 Approved  Fix  Hidden Suggested YouTube & Facebook Videos Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-from-the-shooting-range-to-streaming-real-time-dslr-and-pcmac-connection/"><u>2024 Approved  From the Shooting Range to Streaming Real-Time  DSLR & PC/Mac Connection</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastering-360-fb-live-broadcasts/"><u>2024 Approved  Mastering 360 FB Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigating-the-landscape-of-online-storytelling-with-reels/"><u>2024 Approved  Navigating the Landscape of Online Storytelling with Reels</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-record-and-save-every-sound-on-pc-exclusive-x-recorder/"><u>2024 Approved  Record & Save Every Sound on PC - Exclusive X-Recorder</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-picture-perfection-compreenhensive-facetune-review/"><u>2024 Approved  Unlock Picture Perfection  Compreenhensive Facetune Review</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-glitch-video-editing-made-easy-best-tools-for-windows-mac-and-online/"><u>2024 Approved Glitch Video Editing Made Easy Best Tools for Windows, Mac, and Online</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/enthralling-your-eyes-six-ingenious-methods-for-capturing-netflix-vids-on-a-mac/"><u>Enthralling Your Eyes  Six Ingenious Methods for Capturing Netflix Vids on a Mac</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-rights-instant-video-ownership-takedown-questions-for-2024/"><u>FB Rights  Instant Video Ownership Takedown Questions for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/from-ordinary-to-outstanding-unveiling-the-secrets-of-engaging-biographies-for-2024/"><u>From Ordinary to Outstanding  Unveiling the Secrets of Engaging Biographies for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-nokia-c300-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Nokia C300 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-4-ways-to-watch-facebook-live-on-tv/"><u>In 2024, 4 Ways To Watch Facebook Live On TV</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebook-decoding-the-new-era-of-bite-sized-videos/"><u>In 2024, Facebook   Decoding the New Era of Bite-Sized Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-harnessing-the-power-of-imagery-for-engaging-fb-slideshows/"><u>In 2024, Harnessing the Power of Imagery for Engaging FB Slideshows</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-initiating-virtual-gatherings-in-messenger/"><u>In 2024, Initiating Virtual Gatherings in Messenger</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-insiders-choice-the-best-fb-video-tools/"><u>In 2024, Insider's Choice  The Best FB Video Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-the-log-4-strategies-to-document-facebook-discussions/"><u>In 2024, Mastering the Log  4 Strategies to Document Facebook Discussions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-myspace-profileshot-guide-size-codec-timing/"><u>In 2024, MySpace Profileshot Guide  Size, Codec, Timing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-produce-fb-profile-visuals/"><u>In 2024, Produce FB Profile Visuals</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-social-medias-shadowy-side-spotting-fake-likes-for-2024/"><u>Navigating Social Media's Shadowy Side  Spotting Fake Likes for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-top-strategies-for-transforming-podcast-audio-into-mp3-format/"><u>New Top Strategies for Transforming Podcast Audio Into MP3 Format</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/sony-bdp-s3700-overhaul-a-new-perspective-review/"><u>Sony BDP-S3700 Overhaul  A New Perspective Review</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-best-tools-to-resize-video-aspect-ratios-for-2024/"><u>Updated Best Tools to Resize Video Aspect Ratios for 2024</u></a></li>
+</ul></div>

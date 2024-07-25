@@ -1,7 +1,7 @@
 ---
 title: "[New] Turbocharge Your FB Search Game for 2024"
-date: 2024-05-20T21:38:44.870Z
-updated: 2024-05-21T21:38:44.870Z
+date: 2024-07-23T22:17:52.686Z
+updated: 2024-07-24T22:17:52.686Z
 tags:
   - ai video
   - ai facebook
@@ -12,13 +12,16 @@ categories:
 description: "This Article Describes [New] Turbocharge Your FB Search Game for 2024"
 excerpt: "This Article Describes [New] Turbocharge Your FB Search Game for 2024"
 keywords: "Boost Facebook SEO,Enhance Fb Discovery,Improve Social Findability,Optimize for Fb Ranking,Elevate FB Search Visibility,Advance Your Fb Index,Maximize Fb Content Reach"
-thumbnail: https://www.lifewire.com/thmb/x5hFLtVYVUkR-_nqhbxS_f11j5E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/netgear-default-password-list-2619154-b581fdcf136848d29e944638cd2ad444.png
+thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe2bd45f2ec6f3eb305fb3d58.png
 ---
 
 ## Turbocharge Your FB Search Game
 
 # How to Search People on Facebook Quickly (2 Ways Included)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -34,8 +37,14 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to search people on Facebook
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
@@ -46,6 +55,9 @@ On the header tool icons, click on your name and you are directed to your Facebo
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
@@ -62,6 +74,121 @@ On the left panel, you can find several names matching your search filter. You j
 
 ## Part 2: How to search people using Search Is Back
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
+### 1\. Open and Select
+
+On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
+![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
+
+### 2\. Input your Interest
+
+In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+### 3\. Add People as Friends
+
+Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
+
+**Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
+
+Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
+
+## Conclusion
+
+In the fast-paced world, where people are constantly running, it has become very difficult to keep in touch with anyone. Facebook not only helps you to connect with people but also find many old connections that lost at some point of time due to the hectic schedule that people are into or shift of place or for any other reasons. Searching for people is not easy on Facebook but if you know the right ways to search, then you surely can find the right person.
+
+If you want to make Facebook videos, try to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to beautify your videos with powerful features. [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) also comes for making product and brand video on social media.
+
+[](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+There are many people who connect with their family and friends on Facebook. It is [one of the most popular and largest social platforms on the web](https://zephoria.com/top-15-valuable-facebook-statistics/). Facebook is checked by millions of people each and every day that makes it incredibly a powerful tool for searching your lost contacts.
+
+Whether high school chums, family, friends, family or old colleagues at any location, Facebook can search for people instantly. However, Facebook is limited when you need to input your friend’s exact name to find them.
+
+Here are two ways to search people on Facebook. The second option also helps you to learn a new way to search for people. Let’s explore.
+
+* [**Part 1: How to search people on Facebook**](#part1)
+* [**Part 2: How to search people using Search Is Back**](#part2)
+
+## Part 1: How to search people on Facebook
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 1: Log in to Facebook
+
+Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### Step 2: Check your list of Friends on Facebook
+
+On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
+
+![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
+
+### Step 3: Friends Finder Page
+
+To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
+
+![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
+### Step 4: Friends Search
+
+On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
+### Step 5: Check the results
+
+On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
+
+## Part 2: How to search people using Search Is Back
+
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
@@ -72,6 +199,9 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ### 3\. Add People as Friends
 
 Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
@@ -82,6 +212,9 @@ Once you have filled in all the filters in the page, you can hit Find People but
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 In the fast-paced world, where people are constantly running, it has become very difficult to keep in touch with anyone. Facebook not only helps you to connect with people but also find many old connections that lost at some point of time due to the hectic schedule that people are into or shift of place or for any other reasons. Searching for people is not easy on Facebook but if you know the right ways to search, then you surely can find the right person.
@@ -125,14 +258,23 @@ Open Facebook on your computer – Firstly, open a web browser and get to the Fa
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
@@ -141,18 +283,33 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## Part 2: How to search people using Search Is Back
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### 3\. Add People as Friends
 
 Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
@@ -163,6 +320,9 @@ Once you have filled in all the filters in the page, you can hit Find People but
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In the fast-paced world, where people are constantly running, it has become very difficult to keep in touch with anyone. Facebook not only helps you to connect with people but also find many old connections that lost at some point of time due to the hectic schedule that people are into or shift of place or for any other reasons. Searching for people is not easy on Facebook but if you know the right ways to search, then you surely can find the right person.
@@ -196,18 +356,30 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to search people on Facebook
 
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 2: Check your list of Friends on Facebook
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
@@ -222,12 +394,22 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: How to search people using Search Is Back
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
 ### 2\. Input your Interest
@@ -244,6 +426,9 @@ Once you have filled in all the filters in the page, you can hit Find People but
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 In the fast-paced world, where people are constantly running, it has become very difficult to keep in touch with anyone. Facebook not only helps you to connect with people but also find many old connections that lost at some point of time due to the hectic schedule that people are into or shift of place or for any other reasons. Searching for people is not easy on Facebook but if you know the right ways to search, then you surely can find the right person.
@@ -254,87 +439,9 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-There are many people who connect with their family and friends on Facebook. It is [one of the most popular and largest social platforms on the web](https://zephoria.com/top-15-valuable-facebook-statistics/). Facebook is checked by millions of people each and every day that makes it incredibly a powerful tool for searching your lost contacts.
-
-Whether high school chums, family, friends, family or old colleagues at any location, Facebook can search for people instantly. However, Facebook is limited when you need to input your friend’s exact name to find them.
-
-Here are two ways to search people on Facebook. The second option also helps you to learn a new way to search for people. Let’s explore.
-
-* [**Part 1: How to search people on Facebook**](#part1)
-* [**Part 2: How to search people using Search Is Back**](#part2)
-
-## Part 1: How to search people on Facebook
-
-### Step 1: Log in to Facebook
-
-Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
-
-### Step 2: Check your list of Friends on Facebook
-
-On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
-
-![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
-
-### Step 3: Friends Finder Page
-
-To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
-
-![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
-
-### Step 4: Friends Search
-
-On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
-
-### Step 5: Check the results
-
-On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
-
-## Part 2: How to search people using Search Is Back
-
-### 1\. Open and Select
-
-On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
-
-![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
-
-### 2\. Input your Interest
-
-In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-### 3\. Add People as Friends
-
-Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
-
-![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
-
-**Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
-
-Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
-
-## Conclusion
-
-In the fast-paced world, where people are constantly running, it has become very difficult to keep in touch with anyone. Facebook not only helps you to connect with people but also find many old connections that lost at some point of time due to the hectic schedule that people are into or shift of place or for any other reasons. Searching for people is not easy on Facebook but if you know the right ways to search, then you surely can find the right person.
-
-If you want to make Facebook videos, try to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to beautify your videos with powerful features. [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) also comes for making product and brand video on social media.
-
-[](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -368,3 +475,46 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-insights-into-a-common-symbol-the-blue-emoji-in-fb-chat/"><u>[New] 2024 Approved  Insights Into a Common Symbol  The Blue Emoji in FB Chat</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-launch-fb-video-campaigns-utilize-the-gratis-creation-kit/"><u>[New] 2024 Approved  Launch FB Video Campaigns  Utilize the Gratis Creation Kit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigating-the-world-of-social-networking-facebook-basics/"><u>[New] 2024 Approved  Navigating the World of Social Networking  Facebook Basics</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-gamers-sound-showdown-the-top-5-headset-list-for-2024/"><u>[New] Gamers' Sound Showdown  The Top 5 Headset List for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-craft-engaging-narratives-for-facebook-reels-for-2024/"><u>[New] How to Craft Engaging Narratives for Facebook Reels for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-humor-in-captivity-top-20-memes-from-jail-to-joys-of-online-life-for-2024/"><u>[New] Humor in Captivity  Top 20 Memes From Jail to Joys of Online Life for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-innovate-content-dissemination-youtube-to-facebook-methods/"><u>[New] In 2024, Innovate Content Dissemination  YouTube-to-Facebook Methods</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-maximizing-engagement-with-dual-screen-broadcasting-techniques-in-facebook/"><u>[New] In 2024, Maximizing Engagement with Dual-Screen Broadcasting Techniques in Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-facebook-for-video-sharing-tips/"><u>[New] In 2024, Navigating Facebook for Video Sharing Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-fb-video-aspects-ratios-explained/"><u>[New] In 2024, Navigating FB Video Aspects  Ratios Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-facebook-live-step-by-step-downloads-guide-for-2024/"><u>[New] Mastering Facebook Live  Step-by-Step Downloads Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-monetization-a-beginners-guide-to-facebook-revenue-for-2024/"><u>[New] Mastering Monetization  A Beginner’s Guide to Facebook Revenue for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-the-world-of-fbs-virtual-video-landscape-for-2024/"><u>[New] Navigating the World of FB's Virtual Video Landscape for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-through-social-streams-securing-your-status-videos-for-2024/"><u>[New] Navigating Through Social Streams  Securing Your Status Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-make-better-facebook-video-ads/"><u>[Updated] 2024 Approved  How to Make Better Facebook Video Ads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-interactive-photography-sharing-immersive-360-photos-via-mobile-devices/"><u>[Updated] 2024 Approved  Interactive Photography  Sharing Immersive 360 Photos via Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-iphoneandroid-integrating-playlists-into-your-fb-music/"><u>[Updated] 2024 Approved  IPhone/Android  Integrating Playlists Into Your FB Music</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-compelling-list-of-prime-no-price-recording-tools-pc-for-2024/"><u>[Updated] Compelling List of Prime No-Price Recording Tools, PC for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-dialing-up-the-drama-captivating-tiktok-intros-via-mac/"><u>[Updated] In 2024, Dialing Up the Drama  Captivating TikTok Intros via Mac</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-efficient-srt-to-sub-conversion-strategies/"><u>[Updated] In 2024, Efficient SRT to SUB Conversion Strategies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-instant-insights-switching-up-your-facebook-profile-coverage-easily/"><u>[Updated] In 2024, Instant Insights  Switching Up Your Facebook Profile Coverage Easily</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-leverage-your-xbox-gameplay-for-virtual-engagement-on-fb/"><u>[Updated] In 2024, Leverage Your Xbox Gameplay for Virtual Engagement on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-the-exchange-of-fb-vids-on-whatsapp/"><u>[Updated] In 2024, Mastering the Exchange of FB Vids on WhatsApp</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-maximize-story-exposure-with-linked-fb-profile/"><u>[Updated] In 2024, Maximize Story Exposure with Linked FB Profile</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-streamline-your-video-production-ipad-time-lapse/"><u>[Updated] In 2024, Streamline Your Video Production  IPad Time-Lapse</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximize-your-videos-with-top-youtube-rippers/"><u>[Updated] Maximize Your Videos with Top YouTube Rippers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-reviving-the-reluctant-connection-of-your-obs-capture-device/"><u>2024 Approved  Reviving the Reluctant Connection of Your OBS Capture Device</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-ultimate-blueprint-for-your-mobile-youtube-businesspersonal-platform/"><u>2024 Approved  The Ultimate Blueprint for Your Mobile YouTube Business/Personal Platform</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-basic-to-exceptional-gopro-filming-techniques/"><u>From Basic to Exceptional  Gopro Filming Techniques</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-13-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 13 Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-essential-steps-for-clear-quality-iphone-recordings/"><u>In 2024, Essential Steps for Clear, Quality iPhone Recordings</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-80-pro-straight-screen-edition-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 80 Pro Straight Screen Edition to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-v29-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Vivo V29</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-rethink-your-youtube-videos-with-these-non-youtube-edits/"><u>In 2024, Rethink Your YouTube Videos with These Non-Youtube Edits</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/make-the-most-of-your-xbox-games-on-steam-via-glossi/"><u>Make the Most of Your Xbox Games on Steam via GlosSI</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-facebook-video-cover-design-secrets-for-maximum-impact/"><u>New 2024 Approved Facebook Video Cover Design Secrets for Maximum Impact</u></a></li>
+<li><a href="https://network-issues.techidaily.com/unveil-the-future-of-graphics-geforce-210-drivers-for-win10/"><u>Unveil the Future of Graphics: GeForce 210 Drivers for Win10</u></a></li>
+</ul></div>

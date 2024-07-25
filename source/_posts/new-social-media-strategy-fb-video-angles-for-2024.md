@@ -1,7 +1,7 @@
 ---
 title: "[New] Social Media Strategy – FB Video Angles for 2024"
-date: 2024-05-20T21:10:12.933Z
-updated: 2024-05-21T21:10:12.933Z
+date: 2024-07-23T20:48:29.524Z
+updated: 2024-07-24T20:48:29.524Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Social Media Strategy – FB Video Angles for 2024"
 excerpt: "This Article Describes [New] Social Media Strategy – FB Video Angles for 2024"
 keywords: "Social Media Videos,Facebook Content Strategy,Engaging FB Posts,Effective FB Campaigns,Video Marketing Tactics,Promoting Through FB,Innovative FB Angles"
-thumbnail: https://www.lifewire.com/thmb/cnjnkPWdIA12GDaeFz62_nExYhg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/title-b16094ee6f3340328084b9e5cc01426f.jpg
+thumbnail: https://thmb.techidaily.com/214585cc6f04e9f51b09b50240658d386b443c6b610883b05f292e6c6a7a4335.jpg
 ---
 
 ## Social Media Strategy – FB Video Angles
@@ -25,6 +25,9 @@ If you want to take a close-up of someone, you should use the portrait orientati
 
 This is because different social media platforms support different orientations, as shown in the image below.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![Different Video Aspect Ratios on Mobile Devices](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-1.jpg)
 
 So, for your Facebook videos, the ideal aspect ratio is 2:3\. However, let’s take a closer look and see what works best for you; horizontal video or vertical Facebook video?
@@ -81,6 +84,9 @@ Other aspect ratios that Facebook supports are given below in the image.
 
 ![Supported Aspect Ratios for Facebook Ads](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3\. Bonus Tip! How to Make Horizontal or Vertical Video Using Wondershare Filmora
 
 Now that you have an idea of what aspect ratios are and how you can set Facebook videos’ orientation, it is time for you to use one of the best video editing tools, Wondershare Filmora!
@@ -93,12 +99,21 @@ Go to the [official website](https://tools.techidaily.com/wondershare/filmora/do
 
 ![Wondshare Filmora Website](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Step 2: Add the Video to Timeline
 
 Import the video whose orientation you want to adjust to Filmora. It will appear in the Library. Drag and drop it on the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Add the Video to Timeline](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3: Go to “Crop and Zoom”
 
 Right-click on the video clip and click on the “Crop and Zoom” option. A pop-up will appear consisting of five different options: Custom, 16:9, 4:3, 1:1, and 9:16.
@@ -109,6 +124,9 @@ If your video is vertical, then the 9:16 aspect ratio will be checked. In order 
 
 The preview window will show you how the final video looks like.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 4: Click on “OK”
 
 Once you are done with the cropping, click on “OK.”
@@ -117,6 +135,125 @@ You can also use other features Filmora offers to make your video more engaging 
 
 Try out the different features of Filmora and make your videos unique!
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Facebook is one of the largest social media platforms where people tend to share everything and anything. However, while sharing videos, you may face an issue with the orientation of the Facebook video.
+
+You may be wanting a horizontal or a vertical video but are unsure of what to do. Well, we have given you all the details you will need to solve your problem. You can either record the video in portrait or landscape originally or edit the recorded videos later on using Wondershare Filmora.
+
+Moreover, luckily for us, Facebook has updated itself and now supports all kinds of aspect ratios. So, most of your work has already been made easy.
+
+So, go ahead and start sharing your vertical or horizontal Facebook videos!
+
+Part 2: [Size Aspect Ratio for Facebook Vertical or Horizontal Videos](#step2)
+
+Part 3: [Bonus Tip! How to Make Horizontal or Vertical Video Using Wondershare Filmora.](#step3)
+
+## Part 1\. Choose Vertical Video or Horizontal Video for Facebook?
+
+Initially, Facebook had a platform that supported horizontal videos. Facebook displayed the vertical videos in squares, which led to a cropped video display. Users had to click on the video in order to watch it.
+
+Snapchat pioneered the concept of vertical videos. Eventually, the rest of the social media apps followed suit, especially after introducing the Story feature.
+
+Back in 2015, after analyzing the data and seeing that more people engage with vertical videos, Facebook updated the app such that vertical videos fit well in the News Feed. This not only worked out well for the users but also advertisers and publishers.
+
+However, you may be wondering why Facebook didn’t switch completely to vertical videos like Snapchat. Well, this is because horizontal videos have their benefits as well. So, let’s look at different situations in which vertical or horizontal videos come in handy.
+
+### When to Make a Horizontal Facebook Video?
+
+The reason why horizontal videos are in for the running is because our eyes have a horizontal alignment. So naturally, the horizontal view is more appealing for us.
+
+The horizontal frame works best if you record things of daily life, such as making a video of multiple people or videos with different dynamics and motion.
+
+Furthermore, you should go for horizontal videos if you plan on watching them on TVs or monitors as they have a horizontal orientation.
+
+So, if you want to share a video of your group of friends on Facebook, make a horizontal video. Since Facebook did not completely shift to vertical videos, horizontal videos still work without ruining the outlook of your Feed.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+### When to Make a Vertical Facebook Video?
+
+The reason that vertical videos have become so popular is because of the shape of our smartphones. Since our smartphones have a vertical orientation, thus vertical videos are more feasible. This is because users hold their phones upright 94% of the time.
+
+So, in order to engage the maximum audience, it is best to upload a vertical Facebook video. Since Facebook supports vertical videos, it becomes super easy to attract users’ attention.
+
+Moreover, an analysis of the stats shows that vertical videos give you more value for your money than horizontal videos. In addition to this, a study also found that the completion rates of vertical videos were 4% higher than horizontal videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2\. Size Aspect Ratio for Facebook Vertical or Horizontal Videos
+
+When talking about the orientation of a video, an important concept that one must know is the Size Aspect Ratio.
+
+In simple words, the size aspect ratio describes an image or video’s shape. It is written as a formula of width to height. For example, a square has a 1:1 size aspect ratio.
+
+So, while making a Facebook video or during the post-production editing phase, you can adjust the size aspect ratio as per your requirement.
+
+If you want to upload a vertical video on Facebook, then 9:16 is the perfect aspect ratio. Due to the upright positions of our phones, the 9:16 ratio works ideally for all the users.
+
+However, if you want to upload a horizontal video on Facebook, you can use a 16:9 or a 1:1 aspect ratio.
+
+Other aspect ratios that Facebook supports are given below in the image.
+
+![Supported Aspect Ratios for Facebook Ads](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Part 3\. Bonus Tip! How to Make Horizontal or Vertical Video Using Wondershare Filmora
+
+Now that you have an idea of what aspect ratios are and how you can set Facebook videos’ orientation, it is time for you to use one of the best video editing tools, Wondershare Filmora!
+
+Use Wondershare Filmora for your post-production editing and adjust your video’s orientation for Facebook. We have given a complete set of instructions to ease your process.
+
+### Step 1: Get Wondershare Filmora
+
+Go to the [official website](https://tools.techidaily.com/wondershare/filmora/download/) and get Wondershare Filmora.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Wondshare Filmora Website](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-3.jpg)
+
+### Step 2: Add the Video to Timeline
+
+Import the video whose orientation you want to adjust to Filmora. It will appear in the Library. Drag and drop it on the timeline.
+
+![Add the Video to Timeline](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+### Step 3: Go to “Crop and Zoom”
+
+Right-click on the video clip and click on the “Crop and Zoom” option. A pop-up will appear consisting of five different options: Custom, 16:9, 4:3, 1:1, and 9:16.
+
+If your video is vertical, then the 9:16 aspect ratio will be checked. In order to change the vertical video into a horizontal one, check the 16:9 box. However, if your video is horizontal, you can change the aspect ratio to vertical, i.e., 9:16.
+
+![Crop and Zoom Option](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-5.jpg)
+
+The preview window will show you how the final video looks like.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
+### Step 4: Click on “OK”
+
+Once you are done with the cropping, click on “OK.”
+
+You can also use other features Filmora offers to make your video more engaging and attractive. You can apply transitions, effects, add subtitles, and much more.
+
+Try out the different features of Filmora and make your videos unique!
+
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Facebook is one of the largest social media platforms where people tend to share everything and anything. However, while sharing videos, you may face an issue with the orientation of the Facebook video.
@@ -159,6 +296,9 @@ So, in order to engage the maximum audience, it is best to upload a vertical Fac
 
 Moreover, an analysis of the stats shows that vertical videos give you more value for your money than horizontal videos. In addition to this, a study also found that the completion rates of vertical videos were 4% higher than horizontal videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2\. Size Aspect Ratio for Facebook Vertical or Horizontal Videos
 
 When talking about the orientation of a video, an important concept that one must know is the Size Aspect Ratio.
@@ -173,8 +313,14 @@ However, if you want to upload a horizontal video on Facebook, you can use a 16:
 
 Other aspect ratios that Facebook supports are given below in the image.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![Supported Aspect Ratios for Facebook Ads](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Part 3\. Bonus Tip! How to Make Horizontal or Vertical Video Using Wondershare Filmora
 
 Now that you have an idea of what aspect ratios are and how you can set Facebook videos’ orientation, it is time for you to use one of the best video editing tools, Wondershare Filmora!
@@ -185,6 +331,9 @@ Use Wondershare Filmora for your post-production editing and adjust your video�
 
 Go to the [official website](https://tools.techidaily.com/wondershare/filmora/download/) and get Wondershare Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Wondshare Filmora Website](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-3.jpg)
 
 ### Step 2: Add the Video to Timeline
@@ -193,16 +342,34 @@ Import the video whose orientation you want to adjust to Filmora. It will appear
 
 ![Add the Video to Timeline](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 3: Go to “Crop and Zoom”
 
 Right-click on the video clip and click on the “Crop and Zoom” option. A pop-up will appear consisting of five different options: Custom, 16:9, 4:3, 1:1, and 9:16.
 
 If your video is vertical, then the 9:16 aspect ratio will be checked. In order to change the vertical video into a horizontal one, check the 16:9 box. However, if your video is horizontal, you can change the aspect ratio to vertical, i.e., 9:16.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Crop and Zoom Option](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-5.jpg)
 
 The preview window will show you how the final video looks like.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 4: Click on “OK”
 
 Once you are done with the cropping, click on “OK.”
@@ -235,6 +402,9 @@ Back in 2015, after analyzing the data and seeing that more people engage with v
 
 However, you may be wondering why Facebook didn’t switch completely to vertical videos like Snapchat. Well, this is because horizontal videos have their benefits as well. So, let’s look at different situations in which vertical or horizontal videos come in handy.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### When to Make a Horizontal Facebook Video?
 
 The reason why horizontal videos are in for the running is because our eyes have a horizontal alignment. So naturally, the horizontal view is more appealing for us.
@@ -267,6 +437,9 @@ However, if you want to upload a horizontal video on Facebook, you can use a 16:
 
 Other aspect ratios that Facebook supports are given below in the image.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Supported Aspect Ratios for Facebook Ads](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-2.jpg)
 
 ## Part 3\. Bonus Tip! How to Make Horizontal or Vertical Video Using Wondershare Filmora
@@ -285,6 +458,9 @@ Go to the [official website](https://tools.techidaily.com/wondershare/filmora/do
 
 Import the video whose orientation you want to adjust to Filmora. It will appear in the Library. Drag and drop it on the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Add the Video to Timeline](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-4.jpg)
 
 ### Step 3: Go to “Crop and Zoom”
@@ -293,6 +469,9 @@ Right-click on the video clip and click on the “Crop and Zoom” option. A pop
 
 If your video is vertical, then the 9:16 aspect ratio will be checked. In order to change the vertical video into a horizontal one, check the 16:9 box. However, if your video is horizontal, you can change the aspect ratio to vertical, i.e., 9:16.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Crop and Zoom Option](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-5.jpg)
 
 The preview window will show you how the final video looks like.
@@ -305,100 +484,9 @@ You can also use other features Filmora offers to make your video more engaging 
 
 Try out the different features of Filmora and make your videos unique!
 
-## Conclusion
-
-Facebook is one of the largest social media platforms where people tend to share everything and anything. However, while sharing videos, you may face an issue with the orientation of the Facebook video.
-
-You may be wanting a horizontal or a vertical video but are unsure of what to do. Well, we have given you all the details you will need to solve your problem. You can either record the video in portrait or landscape originally or edit the recorded videos later on using Wondershare Filmora.
-
-Moreover, luckily for us, Facebook has updated itself and now supports all kinds of aspect ratios. So, most of your work has already been made easy.
-
-So, go ahead and start sharing your vertical or horizontal Facebook videos!
-
-Part 2: [Size Aspect Ratio for Facebook Vertical or Horizontal Videos](#step2)
-
-Part 3: [Bonus Tip! How to Make Horizontal or Vertical Video Using Wondershare Filmora.](#step3)
-
-## Part 1\. Choose Vertical Video or Horizontal Video for Facebook?
-
-Initially, Facebook had a platform that supported horizontal videos. Facebook displayed the vertical videos in squares, which led to a cropped video display. Users had to click on the video in order to watch it.
-
-Snapchat pioneered the concept of vertical videos. Eventually, the rest of the social media apps followed suit, especially after introducing the Story feature.
-
-Back in 2015, after analyzing the data and seeing that more people engage with vertical videos, Facebook updated the app such that vertical videos fit well in the News Feed. This not only worked out well for the users but also advertisers and publishers.
-
-However, you may be wondering why Facebook didn’t switch completely to vertical videos like Snapchat. Well, this is because horizontal videos have their benefits as well. So, let’s look at different situations in which vertical or horizontal videos come in handy.
-
-### When to Make a Horizontal Facebook Video?
-
-The reason why horizontal videos are in for the running is because our eyes have a horizontal alignment. So naturally, the horizontal view is more appealing for us.
-
-The horizontal frame works best if you record things of daily life, such as making a video of multiple people or videos with different dynamics and motion.
-
-Furthermore, you should go for horizontal videos if you plan on watching them on TVs or monitors as they have a horizontal orientation.
-
-So, if you want to share a video of your group of friends on Facebook, make a horizontal video. Since Facebook did not completely shift to vertical videos, horizontal videos still work without ruining the outlook of your Feed.
-
-### When to Make a Vertical Facebook Video?
-
-The reason that vertical videos have become so popular is because of the shape of our smartphones. Since our smartphones have a vertical orientation, thus vertical videos are more feasible. This is because users hold their phones upright 94% of the time.
-
-So, in order to engage the maximum audience, it is best to upload a vertical Facebook video. Since Facebook supports vertical videos, it becomes super easy to attract users’ attention.
-
-Moreover, an analysis of the stats shows that vertical videos give you more value for your money than horizontal videos. In addition to this, a study also found that the completion rates of vertical videos were 4% higher than horizontal videos.
-
-## Part 2\. Size Aspect Ratio for Facebook Vertical or Horizontal Videos
-
-When talking about the orientation of a video, an important concept that one must know is the Size Aspect Ratio.
-
-In simple words, the size aspect ratio describes an image or video’s shape. It is written as a formula of width to height. For example, a square has a 1:1 size aspect ratio.
-
-So, while making a Facebook video or during the post-production editing phase, you can adjust the size aspect ratio as per your requirement.
-
-If you want to upload a vertical video on Facebook, then 9:16 is the perfect aspect ratio. Due to the upright positions of our phones, the 9:16 ratio works ideally for all the users.
-
-However, if you want to upload a horizontal video on Facebook, you can use a 16:9 or a 1:1 aspect ratio.
-
-Other aspect ratios that Facebook supports are given below in the image.
-
-![Supported Aspect Ratios for Facebook Ads](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-2.jpg)
-
-## Part 3\. Bonus Tip! How to Make Horizontal or Vertical Video Using Wondershare Filmora
-
-Now that you have an idea of what aspect ratios are and how you can set Facebook videos’ orientation, it is time for you to use one of the best video editing tools, Wondershare Filmora!
-
-Use Wondershare Filmora for your post-production editing and adjust your video’s orientation for Facebook. We have given a complete set of instructions to ease your process.
-
-### Step 1: Get Wondershare Filmora
-
-Go to the [official website](https://tools.techidaily.com/wondershare/filmora/download/) and get Wondershare Filmora.
-
-![Wondshare Filmora Website](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-3.jpg)
-
-### Step 2: Add the Video to Timeline
-
-Import the video whose orientation you want to adjust to Filmora. It will appear in the Library. Drag and drop it on the timeline.
-
-![Add the Video to Timeline](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-4.jpg)
-
-### Step 3: Go to “Crop and Zoom”
-
-Right-click on the video clip and click on the “Crop and Zoom” option. A pop-up will appear consisting of five different options: Custom, 16:9, 4:3, 1:1, and 9:16.
-
-If your video is vertical, then the 9:16 aspect ratio will be checked. In order to change the vertical video into a horizontal one, check the 16:9 box. However, if your video is horizontal, you can change the aspect ratio to vertical, i.e., 9:16.
-
-![Crop and Zoom Option](https://images.wondershare.com/filmora/article-images/2021/is-facebook-videos-vertical-or-horizontal-5.jpg)
-
-The preview window will show you how the final video looks like.
-
-### Step 4: Click on “OK”
-
-Once you are done with the cropping, click on “OK.”
-
-You can also use other features Filmora offers to make your video more engaging and attractive. You can apply transitions, effects, add subtitles, and much more.
-
-Try out the different features of Filmora and make your videos unique!
-
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Facebook is one of the largest social media platforms where people tend to share everything and anything. However, while sharing videos, you may face an issue with the orientation of the Facebook video.
@@ -432,3 +520,57 @@ So, go ahead and start sharing your vertical or horizontal Facebook videos!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-mastering-wirecast-for-facebook-live-broadcasts/"><u>[New] 2024 Approved  Mastering Wirecast for Facebook Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-micro-movies-on-facebook-galore/"><u>[New] 2024 Approved  Micro-Movies on Facebook Galore</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-revolutionize-your-facebook-experience-with-auto-play-videos/"><u>[New] 2024 Approved  Revolutionize Your Facebook Experience with Auto-Play Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-social-media-influencers-secret-creating-captivating-facebook-biographies/"><u>[New] 2024 Approved  Social Media Influencers' Secret  Creating Captivating Facebook Biographies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-step-by-step-iphone-360-degrees-and-fb-sharing/"><u>[New] 2024 Approved  Step-by-Step  IPhone, 360 Degrees, & FB Sharing</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-enhancing-video-impact-with-tiktok-voiceovers-for-2024/"><u>[New] Enhancing Video Impact with TikTok Voiceovers for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-android-without-a-wire-heres-your-free-games-list/"><u>[New] In 2024, Android Without A Wire? Here's Your Free Games List</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-launch-your-own-whatsapp-collaborative-spaces/"><u>[New] In 2024, Launch Your Own WhatsApp Collaborative Spaces</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-mastering-youtube-on-facebook-the-art-of-video-creation/"><u>[New] In 2024, Mastering YouTube on Facebook  The Art of Video Creation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-music-on-the-move-top-10-vids-dominating-fb-feed/"><u>[New] In 2024, Music on the Move  Top 10 Vids Dominating FB Feed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-quick-and-easy-the-5-best-tools-for-facebook-live-videos/"><u>[New] In 2024, Quick & Easy  The 5 Best Tools for Facebook Live Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-resolve-androidios-issues-with-fb-video-playback/"><u>[New] In 2024, Resolve Android/iOS Issues with FB Video Playback</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-simple-guide-transforming-fb-videos-into-720p1080p-mp4-format-free/"><u>[New] In 2024, Simple Guide  Transforming FB Videos Into 720P/1080p MP4 Format (Free)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-streamlined-coordination-the-best-facebook-timetellers-ranked/"><u>[New] In 2024, Streamlined Coordination  The Best Facebook Timetellers Ranked</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-essentials-of-whatsapp-room-setup/"><u>[New] In 2024, The Essentials of WhatsApp Room Setup</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-innovations-enhancers-that-excite/"><u>[New] Instagram Innovations  Enhancers that Excite</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-learn-fb-live-mastering-2023-streaming-for-2024/"><u>[New] Learn FB Live  Mastering 2023 Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-facebook-video-auto-play-for-2024/"><u>[New] Mastering Facebook Video Auto-Play for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-the-art-of-creating-alluring-fb-video-ads-for-2024/"><u>[New] Mastering the Art of Creating Alluring FB Video Ads for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-wizardry-flipping-your-video-narrative/"><u>[New] Snapchat Wizardry  Flipping Your Video Narrative</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-stay-ahead-in-the-stream-top-5-video-capture-platforms-reviewed-for-2024/"><u>[New] Stay Ahead in the Stream  Top 5 Video Capture Platforms Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-streamlining-and-maximizing-your-ad-reach-a-compree-guide-to-fb-instream-ad-setup-for-2024/"><u>[New] Streamlining & Maximizing Your Ad Reach  A Compree Guide to FB Instream Ad Setup for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-ensure-video-success-on-twitter-understand-the-aspect-ratio/"><u>[Updated] 2024 Approved  Ensure Video Success on Twitter  Understand the Aspect Ratio</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-lighten-your-sentence-with-satire-ranking-funniest-facebook-detentions/"><u>[Updated] 2024 Approved  Lighten Your Sentence with Satire  Ranking Funniest Facebook Detentions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-mastering-social-media-creating-your-first-facebook-reel/"><u>[Updated] 2024 Approved  Mastering Social Media  Creating Your First Facebook Reel</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-navigating-social-traction-afb-insiders-guide/"><u>[Updated] 2024 Approved  Navigating Social Traction  AFB Insider's Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-outsmarting-the-obtrusive-fb-video-ads/"><u>[Updated] 2024 Approved  Outsmarting the Obtrusive FB Video Ads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-protecting-ideas-avoidance-of-rash-removals/"><u>[Updated] 2024 Approved  Protecting Ideas  Avoidance of Rash Removals</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-sharing-excellence-twitch-live-to-your-facebook-circle/"><u>[Updated] 2024 Approved  Sharing Excellence  Twitch Live to Your Facebook Circle</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-how-to-for-harnessing-hd-video-from-facebook-feeds/"><u>[Updated] 2024 Approved  The How-To for Harnessing HD Video From Facebook Feeds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-inverse-photo-journey-through-facebooks-vast-web/"><u>[Updated] 2024 Approved  The Inverse Photo Journey Through Facebook’s Vast Web</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-puzzle-of-facebooks-status-emoji-unveiling-the-hidden-meaning/"><u>[Updated] 2024 Approved  The Puzzle of Facebook's Status Emoji  Unveiling the Hidden Meaning</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-immediate-silence-sudden-deletion-fears/"><u>[Updated] In 2024, Immediate Silence  Sudden Deletion Fears</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-online-fb-link-exporter-unlock-access-to-8plus-tools/"><u>[Updated] In 2024, Online FB Link Exporter  Unlock Access to 8+ Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>[Updated] In 2024, Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-pinterest-avatar-recording-resolution-frame-rate-length/"><u>[Updated] In 2024, Pinterest Avatar Recording  Resolution, Frame Rate, Length</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-proven-strategies-to-skyrocket-your-fb-search-results-rankings/"><u>[Updated] In 2024, Proven Strategies to Skyrocket Your FB Search Results Rankings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-sign-up-saga-crafting-your-digital-persona-facebook/"><u>[Updated] In 2024, Sign Up Saga  Crafting Your Digital Persona (Facebook)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-iosandroid-tips-attaching-audio-posters-on-facebook-for-2024/"><u>[Updated] IOS/Android Tips  Attaching Audio Posters on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-reviving-your-shows-heartbeat-saving-facebook-livestream-pauses-for-2024/"><u>[Updated] Reviving Your Show's Heartbeat  Saving Facebook Livestream Pauses for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-streamlining-fb-live-recording-for-maximum-clarity-for-2024/"><u>[Updated] Streamlining FB Live Recording for Maximum Clarity for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-three-legal-and-safe-methods-of-downloading-youtube-tunes/"><u>[Updated] Three Legal & Safe Methods of Downloading YouTube Tunes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-oneplus-11r-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your OnePlus 11R Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-word-2007-document-online-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign a Word 2007 document online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-start-your-vlog-and-make-money-from-it/"><u>How to Start Your Vlog and Make Money From It</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fastest-photo-view-in-windows-10/"><u>In 2024, Fastest Photo View in Windows 10</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-a-curated-selection-top-8-streaming-audio-tools-to-enhance-your-broadcasts/"><u>New A Curated Selection Top 8 Streaming Audio Tools to Enhance Your Broadcasts</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-vivo-y100i-power-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Vivo Y100i Power 5G Black and White | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/shaky-video-fix-it-for-free-the-best-online-stabilization-tools-for-2024/"><u>Shaky Video? Fix It for Free The Best Online Stabilization Tools for 2024</u></a></li>
+</ul></div>

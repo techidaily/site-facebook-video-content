@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Chrome Compatibility  Solving Media Errors\""
-date: 2024-06-10T02:26:01.556Z
-updated: 2024-06-11T02:26:01.556Z
+date: 2024-07-23T20:14:46.572Z
+updated: 2024-07-24T20:14:46.572Z
 tags:
   - ai video
   - ai facebook
@@ -53,10 +53,16 @@ Follow the process to do so. Hold your Android device and navigate the "Settings
 
 ![erase android device data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 2: Exit and Open the App
 
 Another viable method can address the concern of **Facebook video not playing continuously**. The user can exit the Facebook app and then wait for a couple of seconds. Relaunch the application and check if Facebook videos are functional again.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 3: Uninstall and Reinstall the App
 
 Social networking websites are not always perfect. They are always undergoing the maintenance process, which creates the problem of **Facebook cannot play video.** Moreover, there are new updates that come periodically. The user can uninstall Facebook and then reinstall the app in seconds.
@@ -71,6 +77,440 @@ In most unexpected scenarios, the other apps on the phone interfere with the nor
 
 For a successful process, navigate to "Settings" and click on "Apps and Notifications." Click on the app to delete it and bring back the normal working of Facebook videos.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![uninstall android junk apps](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-3.jpg)
+
+### Method 5: Clear the Cache for Facebook App
+
+Clearing cache for the Facebook app is another promising method to get rid of **FB videos not playing.** Sometimes, when you haven't cleared the cache in a long time, this problem arises. Therefore, to clear the cache for the Facebook app, navigate to the "Settings" and then "Apps and Notifications." After that, choose the "Facebook" app and tap on "Storage." Click on "Clear Cache" and get done with the process.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![clear facebook app cache](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-4.jpg)
+
+### Method 6: Log Out and Log Back In
+
+Logging out and then logging back in saves us the trouble of **Facebook videos not playing 2020\.** To log out of Facebook, click on the three horizontal dots in the top right corner. Navigate to the option "Log Out." After that, you can log back in through your credentials. The problem would be long gone then.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![logout facebook app](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-5.jpg)
+
+## Part 2: How to Fix Facebook Videos Not Playing on iPhone?
+
+If you are an iPhone user facing the problem of **Facebook video not playing continuously,** allow us to help you through it. The sub-section revolves around methods to eliminate **Facebook videos not playing on iPhone.**
+
+### Method 1: Use a Browser to Watch Videos
+
+Most of the time, the Facebook app goes through bugs and viruses that take time to recover. Meanwhile, the user can switch to the browser and log in there. The user can access Safari, Firefox, Chrome, or any other browser from iPhone.
+
+![play videos on facebook browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-6.jpg)
+
+### Method 2: Reinstall the App on Your iPhone
+
+The next method always works whenever the Facebook app starts acting up. Sometimes, there is too much load on the app, and the internet connection is unstable. To eliminate the **FB videos not playing** concern, reinstall the app on your phone. For starters, delete the app. Hold the icon and click on the X icon. After that, navigate to the Apple Store, and install the app again.
+
+![install facebook ios again](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+### Method 3: Free-up Memory Space on the iPhone
+
+Another significant cause of **Facebook videos not playing** is the storage issue. The lack of memory in the iPhone creates this problem. Therefore, it is recommended to free up the memory space on the iPhone.
+
+For starters, navigate to the "Settings" and then click on "General." After that, the user is expected to tap on "iPhone Storage." Find out the app taking the largest space in your iPhone. Delete the apps and get rid of this problem.
+
+![make free storage on iphone](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-8.jpg)
+
+### Method 4: Relaunch the App on Your iPhone
+
+The **Facebook videos not playing 2021** create stress, which can occur due to multiple reasons. For instance, there could be an upgrade or a bug affecting the normal functionality. To avoid this issue, exit the app and then relaunch the app.
+
+### Method 5: Reset Network Settings
+
+Another workable procedure revolves around resetting the network settings of your iPhone. In most unforeseen circumstances, the network configuration settings are not properly handled. The procedure is simple to reset the "Settings." Head to the iPhone Settings, and click on "General." After that, hit "Reset Network Settings," from the "Reset" option, and you are done.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+![reset iphone network settings](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 6: Reboot Your iPhone
+
+You can also reboot your iPhone if the **Facebook video not playing continuously** enhances. To do so, press and hold down the Power and Volume Up button. The device will be rebooted successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
+![reboot iphone device](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-10.jpg)
+
+## Part 3: How to Fix Facebook Videos Not Playing on Computer?
+
+People log in to Facebook to get entertained and enjoy their free time. When they run into **Facebook videos not playing in Chrome,** their stress levels enhance. Follow the procedure below to get rid of this concern if you use Facebook from your computer.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 1: Switch the Browser on Your Computer
+
+Most browsers are undergoing problems related to their programming and upgrade. Using another browser from your computer is always recommended and eliminates the error.
+
+![use different internet broswer](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 2: Ensure a Working Internet Connection
+
+**Facebook videos not playing 2020** occur due to an unstable internet connection. There are multiple devices connected to one router that reduces the speed. Ensure that you are connected to an active internet connection and offer workable speed.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+### Method 3: Disable Hardware Acceleration
+
+Browsers use hardware acceleration to bring the perfect user experience for videos preview. However, it doesn't work all the time, so disabling it feels like the right choice. To disable the hardware acceleration, go to the "Settings" from your system and head to the "Advanced" section. Toggle off "Use hardware acceleration when available."
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+![disable hardware acceleration](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
+### Method 4: Download and Watch the Video
+
+If none of the above methods work, you can download the video and watch it later. The Facebook video can be downloaded from online video downloaders accessed from any browser.
+
+### Method 5: Update the Browser to the Latest Version
+
+The Facebook videos stop playing due to the outdated browsers. The users are always recommended to log in to Facebook with a browser that is up to date. Download the latest version of your browser in use and steer clear of **Facebook video not playing continuously.**
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
+![update internet browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 6: Clear the Cache of Your Browser
+
+If you haven't cleared your browser's cache for a long time, this problem will likely occur. The presence of cache slows down your system and interferes with normal functionality. To clear cache, go to the "Settings" from your browser by clicking on three dots located in the right corner. Hit "Privacy and Security" from there.
+
+Click on "Clear Browsing Data" and tick mark "Cached images and files." Tap "Clear Data" afterward.
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![clear cache data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-14.jpg)
+
+## Part 4: A Powerful Video Editor in Business- Wondershare Filmora
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has brought a storm of workable features related to video editing. It helps creative professionals perform advanced steps easily without facing any complications. Following are some powerful video editing traits that you can use to edit Facebook videos.
+
+* You can add effects, transitions, titles, and elements to the video to send the message across.
+* The Hollywood effects can be added to change the background and unleash imagination.
+* You can rotate, merge, trim, crop, and flip the video as you like.
+
+## Conclusion
+
+Facebook is our last resort when you are an introvert trying to get through the weekend. However, when the video stops playing, it ruins your mood. The article addressed the ****Facebook videos not playing** concern and offered an extensive range of solutions. Wondershare Filmora is also introduced in the article as the workable video editor tool.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The year 2021 is just about to end. It is about time we deal with most problems related to social media websites so that going into the next year is effortless and offers no significant complications. The lack of workability of Facebook videos creates stress that is unasked for.
+
+For this very reason, the article offers solutions for **Facebook videos not playing** in Android, iPhone, and your computer. The Facebook fanatics are expected to follow six workable methods for each individual device. Wondershare Filmora will also be presented as the ultimate video editor in the market. Navigate to different parts and find yourself free of **Facebook videos not playing 2020.**
+
+#### In this article
+
+Part 1: [How to Fix Facebook Videos Not Playing on Android?](#step1)
+
+Part 2: [How to Fix Facebook Videos Not Playing on iPhone?](#step2)
+
+Part 3: [How to Fix Facebook Videos Not Playing on Computer?](#step3)
+
+Part 4: [A Powerful Video Editor in Business- Wondershare Filmora](#step4)
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1: How to Fix Facebook Videos Not Playing on Android?
+
+If you can't view or play videos on Facebook, it is recommended to restart the browser and your computer. You can also update the browser or check your internet connection. However, if the problem still persists, follow the solutions below. The sub-section targets **Facebook videos not playing Android.**
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
+### Method 1: Reset the Device to Factory Settings
+
+The Android users can steer clear of **Facebook videos not playing 2021** by using the first method presented for you. You can reset the device the factory settings and then check if the problem has been resolved. It is important to know that resetting the factory settings will remove all your data.
+
+Follow the process to do so. Hold your Android device and navigate the "Settings." Go to the "Reset Options" afterward. Now, click on "Erase All Data" to factory reset the device. The process is done.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![erase android device data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-1.jpg)
+
+### Method 2: Exit and Open the App
+
+Another viable method can address the concern of **Facebook video not playing continuously**. The user can exit the Facebook app and then wait for a couple of seconds. Relaunch the application and check if Facebook videos are functional again.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
+### Method 3: Uninstall and Reinstall the App
+
+Social networking websites are not always perfect. They are always undergoing the maintenance process, which creates the problem of **Facebook cannot play video.** Moreover, there are new updates that come periodically. The user can uninstall Facebook and then reinstall the app in seconds.
+
+To do so, go to the "Settings" menu on your Android phone and navigate to "Apps and Notifications." Click on the "Facebook" app and then hit the "Uninstall" button. Facebook app will be uninstalled. For reinstalling the app, you can head to the Play Store. The download of the updated version will help you get rid of the problem for sure.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
+![reinstall facebook android version](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### Method 4: Remove Junk Apps
+
+In most unexpected scenarios, the other apps on the phone interfere with the normal functionality of Facebook. In this situation, you can remove the junk and suspicious apps from your phone and get ahead of **Facebook videos not playing Android.**
+
+For a successful process, navigate to "Settings" and click on "Apps and Notifications." Click on the app to delete it and bring back the normal working of Facebook videos.
+
+![uninstall android junk apps](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 5: Clear the Cache for Facebook App
+
+Clearing cache for the Facebook app is another promising method to get rid of **FB videos not playing.** Sometimes, when you haven't cleared the cache in a long time, this problem arises. Therefore, to clear the cache for the Facebook app, navigate to the "Settings" and then "Apps and Notifications." After that, choose the "Facebook" app and tap on "Storage." Click on "Clear Cache" and get done with the process.
+
+![clear facebook app cache](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-4.jpg)
+
+### Method 6: Log Out and Log Back In
+
+Logging out and then logging back in saves us the trouble of **Facebook videos not playing 2020\.** To log out of Facebook, click on the three horizontal dots in the top right corner. Navigate to the option "Log Out." After that, you can log back in through your credentials. The problem would be long gone then.
+
+![logout facebook app](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+## Part 2: How to Fix Facebook Videos Not Playing on iPhone?
+
+If you are an iPhone user facing the problem of **Facebook video not playing continuously,** allow us to help you through it. The sub-section revolves around methods to eliminate **Facebook videos not playing on iPhone.**
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+### Method 1: Use a Browser to Watch Videos
+
+Most of the time, the Facebook app goes through bugs and viruses that take time to recover. Meanwhile, the user can switch to the browser and log in there. The user can access Safari, Firefox, Chrome, or any other browser from iPhone.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
+![play videos on facebook browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### Method 2: Reinstall the App on Your iPhone
+
+The next method always works whenever the Facebook app starts acting up. Sometimes, there is too much load on the app, and the internet connection is unstable. To eliminate the **FB videos not playing** concern, reinstall the app on your phone. For starters, delete the app. Hold the icon and click on the X icon. After that, navigate to the Apple Store, and install the app again.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
+![install facebook ios again](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+### Method 3: Free-up Memory Space on the iPhone
+
+Another significant cause of **Facebook videos not playing** is the storage issue. The lack of memory in the iPhone creates this problem. Therefore, it is recommended to free up the memory space on the iPhone.
+
+For starters, navigate to the "Settings" and then click on "General." After that, the user is expected to tap on "iPhone Storage." Find out the app taking the largest space in your iPhone. Delete the apps and get rid of this problem.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![make free storage on iphone](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-8.jpg)
+
+### Method 4: Relaunch the App on Your iPhone
+
+The **Facebook videos not playing 2021** create stress, which can occur due to multiple reasons. For instance, there could be an upgrade or a bug affecting the normal functionality. To avoid this issue, exit the app and then relaunch the app.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
+### Method 5: Reset Network Settings
+
+Another workable procedure revolves around resetting the network settings of your iPhone. In most unforeseen circumstances, the network configuration settings are not properly handled. The procedure is simple to reset the "Settings." Head to the iPhone Settings, and click on "General." After that, hit "Reset Network Settings," from the "Reset" option, and you are done.
+
+![reset iphone network settings](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-9.jpg)
+
+### Method 6: Reboot Your iPhone
+
+You can also reboot your iPhone if the **Facebook video not playing continuously** enhances. To do so, press and hold down the Power and Volume Up button. The device will be rebooted successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![reboot iphone device](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How to Fix Facebook Videos Not Playing on Computer?
+
+People log in to Facebook to get entertained and enjoy their free time. When they run into **Facebook videos not playing in Chrome,** their stress levels enhance. Follow the procedure below to get rid of this concern if you use Facebook from your computer.
+
+### Method 1: Switch the Browser on Your Computer
+
+Most browsers are undergoing problems related to their programming and upgrade. Using another browser from your computer is always recommended and eliminates the error.
+
+![use different internet broswer](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-11.jpg)
+
+### Method 2: Ensure a Working Internet Connection
+
+**Facebook videos not playing 2020** occur due to an unstable internet connection. There are multiple devices connected to one router that reduces the speed. Ensure that you are connected to an active internet connection and offer workable speed.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 3: Disable Hardware Acceleration
+
+Browsers use hardware acceleration to bring the perfect user experience for videos preview. However, it doesn't work all the time, so disabling it feels like the right choice. To disable the hardware acceleration, go to the "Settings" from your system and head to the "Advanced" section. Toggle off "Use hardware acceleration when available."
+
+![disable hardware acceleration](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 4: Download and Watch the Video
+
+If none of the above methods work, you can download the video and watch it later. The Facebook video can be downloaded from online video downloaders accessed from any browser.
+
+### Method 5: Update the Browser to the Latest Version
+
+The Facebook videos stop playing due to the outdated browsers. The users are always recommended to log in to Facebook with a browser that is up to date. Download the latest version of your browser in use and steer clear of **Facebook video not playing continuously.**
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![update internet browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-13.jpg)
+
+### Method 6: Clear the Cache of Your Browser
+
+If you haven't cleared your browser's cache for a long time, this problem will likely occur. The presence of cache slows down your system and interferes with normal functionality. To clear cache, go to the "Settings" from your browser by clicking on three dots located in the right corner. Hit "Privacy and Security" from there.
+
+Click on "Clear Browsing Data" and tick mark "Cached images and files." Tap "Clear Data" afterward.
+
+![clear cache data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
+## Part 4: A Powerful Video Editor in Business- Wondershare Filmora
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has brought a storm of workable features related to video editing. It helps creative professionals perform advanced steps easily without facing any complications. Following are some powerful video editing traits that you can use to edit Facebook videos.
+
+* You can add effects, transitions, titles, and elements to the video to send the message across.
+* The Hollywood effects can be added to change the background and unleash imagination.
+* You can rotate, merge, trim, crop, and flip the video as you like.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Facebook is our last resort when you are an introvert trying to get through the weekend. However, when the video stops playing, it ruins your mood. The article addressed the ****Facebook videos not playing** concern and offered an extensive range of solutions. Wondershare Filmora is also introduced in the article as the workable video editor tool.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The year 2021 is just about to end. It is about time we deal with most problems related to social media websites so that going into the next year is effortless and offers no significant complications. The lack of workability of Facebook videos creates stress that is unasked for.
+
+For this very reason, the article offers solutions for **Facebook videos not playing** in Android, iPhone, and your computer. The Facebook fanatics are expected to follow six workable methods for each individual device. Wondershare Filmora will also be presented as the ultimate video editor in the market. Navigate to different parts and find yourself free of **Facebook videos not playing 2020.**
+
+#### In this article
+
+Part 1: [How to Fix Facebook Videos Not Playing on Android?](#step1)
+
+Part 2: [How to Fix Facebook Videos Not Playing on iPhone?](#step2)
+
+Part 3: [How to Fix Facebook Videos Not Playing on Computer?](#step3)
+
+Part 4: [A Powerful Video Editor in Business- Wondershare Filmora](#step4)
+
+## Part 1: How to Fix Facebook Videos Not Playing on Android?
+
+If you can't view or play videos on Facebook, it is recommended to restart the browser and your computer. You can also update the browser or check your internet connection. However, if the problem still persists, follow the solutions below. The sub-section targets **Facebook videos not playing Android.**
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 1: Reset the Device to Factory Settings
+
+The Android users can steer clear of **Facebook videos not playing 2021** by using the first method presented for you. You can reset the device the factory settings and then check if the problem has been resolved. It is important to know that resetting the factory settings will remove all your data.
+
+Follow the process to do so. Hold your Android device and navigate the "Settings." Go to the "Reset Options" afterward. Now, click on "Erase All Data" to factory reset the device. The process is done.
+
+![erase android device data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-1.jpg)
+
+### Method 2: Exit and Open the App
+
+Another viable method can address the concern of **Facebook video not playing continuously**. The user can exit the Facebook app and then wait for a couple of seconds. Relaunch the application and check if Facebook videos are functional again.
+
+### Method 3: Uninstall and Reinstall the App
+
+Social networking websites are not always perfect. They are always undergoing the maintenance process, which creates the problem of **Facebook cannot play video.** Moreover, there are new updates that come periodically. The user can uninstall Facebook and then reinstall the app in seconds.
+
+To do so, go to the "Settings" menu on your Android phone and navigate to "Apps and Notifications." Click on the "Facebook" app and then hit the "Uninstall" button. Facebook app will be uninstalled. For reinstalling the app, you can head to the Play Store. The download of the updated version will help you get rid of the problem for sure.
+
+![reinstall facebook android version](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### Method 4: Remove Junk Apps
+
+In most unexpected scenarios, the other apps on the phone interfere with the normal functionality of Facebook. In this situation, you can remove the junk and suspicious apps from your phone and get ahead of **Facebook videos not playing Android.**
+
+For a successful process, navigate to "Settings" and click on "Apps and Notifications." Click on the app to delete it and bring back the normal working of Facebook videos.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![uninstall android junk apps](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-3.jpg)
 
 ### Method 5: Clear the Cache for Facebook App
@@ -95,12 +535,18 @@ Most of the time, the Facebook app goes through bugs and viruses that take time 
 
 ![play videos on facebook browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### Method 2: Reinstall the App on Your iPhone
 
 The next method always works whenever the Facebook app starts acting up. Sometimes, there is too much load on the app, and the internet connection is unstable. To eliminate the **FB videos not playing** concern, reinstall the app on your phone. For starters, delete the app. Hold the icon and click on the X icon. After that, navigate to the Apple Store, and install the app again.
 
 ![install facebook ios again](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 3: Free-up Memory Space on the iPhone
 
 Another significant cause of **Facebook videos not playing** is the storage issue. The lack of memory in the iPhone creates this problem. Therefore, it is recommended to free up the memory space on the iPhone.
@@ -113,6 +559,9 @@ For starters, navigate to the "Settings" and then click on "General." After that
 
 The **Facebook videos not playing 2021** create stress, which can occur due to multiple reasons. For instance, there could be an upgrade or a bug affecting the normal functionality. To avoid this issue, exit the app and then relaunch the app.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 5: Reset Network Settings
 
 Another workable procedure revolves around resetting the network settings of your iPhone. In most unforeseen circumstances, the network configuration settings are not properly handled. The procedure is simple to reset the "Settings." Head to the iPhone Settings, and click on "General." After that, hit "Reset Network Settings," from the "Reset" option, and you are done.
@@ -129,12 +578,21 @@ You can also reboot your iPhone if the **Facebook video not playing continuously
 
 People log in to Facebook to get entertained and enjoy their free time. When they run into **Facebook videos not playing in Chrome,** their stress levels enhance. Follow the procedure below to get rid of this concern if you use Facebook from your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 1: Switch the Browser on Your Computer
 
 Most browsers are undergoing problems related to their programming and upgrade. Using another browser from your computer is always recommended and eliminates the error.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![use different internet broswer](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 2: Ensure a Working Internet Connection
 
 **Facebook videos not playing 2020** occur due to an unstable internet connection. There are multiple devices connected to one router that reduces the speed. Ensure that you are connected to an active internet connection and offer workable speed.
@@ -145,14 +603,23 @@ Browsers use hardware acceleration to bring the perfect user experience for vide
 
 ![disable hardware acceleration](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 4: Download and Watch the Video
 
 If none of the above methods work, you can download the video and watch it later. The Facebook video can be downloaded from online video downloaders accessed from any browser.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ### Method 5: Update the Browser to the Latest Version
 
 The Facebook videos stop playing due to the outdated browsers. The users are always recommended to log in to Facebook with a browser that is up to date. Download the latest version of your browser in use and steer clear of **Facebook video not playing continuously.**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![update internet browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-13.jpg)
 
 ### Method 6: Clear the Cache of Your Browser
@@ -171,6 +638,9 @@ Click on "Clear Browsing Data" and tick mark "Cached images and files." Tap "Cle
 * The Hollywood effects can be added to change the background and unleash imagination.
 * You can rotate, merge, trim, crop, and flip the video as you like.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Facebook is our last resort when you are an introvert trying to get through the weekend. However, when the video stops playing, it ruins your mood. The article addressed the ****Facebook videos not playing** concern and offered an extensive range of solutions. Wondershare Filmora is also introduced in the article as the workable video editor tool.
@@ -209,6 +679,9 @@ Follow the process to do so. Hold your Android device and navigate the "Settings
 
 Another viable method can address the concern of **Facebook video not playing continuously**. The user can exit the Facebook app and then wait for a couple of seconds. Relaunch the application and check if Facebook videos are functional again.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Method 3: Uninstall and Reinstall the App
 
 Social networking websites are not always perfect. They are always undergoing the maintenance process, which creates the problem of **Facebook cannot play video.** Moreover, there are new updates that come periodically. The user can uninstall Facebook and then reinstall the app in seconds.
@@ -217,6 +690,9 @@ To do so, go to the "Settings" menu on your Android phone and navigate to "Apps 
 
 ![reinstall facebook android version](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 4: Remove Junk Apps
 
 In most unexpected scenarios, the other apps on the phone interfere with the normal functionality of Facebook. In this situation, you can remove the junk and suspicious apps from your phone and get ahead of **Facebook videos not playing Android.**
@@ -225,6 +701,9 @@ For a successful process, navigate to "Settings" and click on "Apps and Notifica
 
 ![uninstall android junk apps](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### Method 5: Clear the Cache for Facebook App
 
 Clearing cache for the Facebook app is another promising method to get rid of **FB videos not playing.** Sometimes, when you haven't cleared the cache in a long time, this problem arises. Therefore, to clear the cache for the Facebook app, navigate to the "Settings" and then "Apps and Notifications." After that, choose the "Facebook" app and tap on "Storage." Click on "Clear Cache" and get done with the process.
@@ -235,6 +714,9 @@ Clearing cache for the Facebook app is another promising method to get rid of **
 
 Logging out and then logging back in saves us the trouble of **Facebook videos not playing 2020\.** To log out of Facebook, click on the three horizontal dots in the top right corner. Navigate to the option "Log Out." After that, you can log back in through your credentials. The problem would be long gone then.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![logout facebook app](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-5.jpg)
 
 ## Part 2: How to Fix Facebook Videos Not Playing on iPhone?
@@ -247,6 +729,9 @@ Most of the time, the Facebook app goes through bugs and viruses that take time 
 
 ![play videos on facebook browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 2: Reinstall the App on Your iPhone
 
 The next method always works whenever the Facebook app starts acting up. Sometimes, there is too much load on the app, and the internet connection is unstable. To eliminate the **FB videos not playing** concern, reinstall the app on your phone. For starters, delete the app. Hold the icon and click on the X icon. After that, navigate to the Apple Store, and install the app again.
@@ -259,8 +744,15 @@ Another significant cause of **Facebook videos not playing** is the storage issu
 
 For starters, navigate to the "Settings" and then click on "General." After that, the user is expected to tap on "iPhone Storage." Find out the app taking the largest space in your iPhone. Delete the apps and get rid of this problem.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ![make free storage on iphone](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 4: Relaunch the App on Your iPhone
 
 The **Facebook videos not playing 2021** create stress, which can occur due to multiple reasons. For instance, there could be an upgrade or a bug affecting the normal functionality. To avoid this issue, exit the app and then relaunch the app.
@@ -275,8 +767,14 @@ Another workable procedure revolves around resetting the network settings of you
 
 You can also reboot your iPhone if the **Facebook video not playing continuously** enhances. To do so, press and hold down the Power and Volume Up button. The device will be rebooted successfully.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![reboot iphone device](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to Fix Facebook Videos Not Playing on Computer?
 
 People log in to Facebook to get entertained and enjoy their free time. When they run into **Facebook videos not playing in Chrome,** their stress levels enhance. Follow the procedure below to get rid of this concern if you use Facebook from your computer.
@@ -287,6 +785,9 @@ Most browsers are undergoing problems related to their programming and upgrade. 
 
 ![use different internet broswer](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 2: Ensure a Working Internet Connection
 
 **Facebook videos not playing 2020** occur due to an unstable internet connection. There are multiple devices connected to one router that reduces the speed. Ensure that you are connected to an active internet connection and offer workable speed.
@@ -295,322 +796,34 @@ Most browsers are undergoing problems related to their programming and upgrade. 
 
 Browsers use hardware acceleration to bring the perfect user experience for videos preview. However, it doesn't work all the time, so disabling it feels like the right choice. To disable the hardware acceleration, go to the "Settings" from your system and head to the "Advanced" section. Toggle off "Use hardware acceleration when available."
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![disable hardware acceleration](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 4: Download and Watch the Video
 
 If none of the above methods work, you can download the video and watch it later. The Facebook video can be downloaded from online video downloaders accessed from any browser.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### Method 5: Update the Browser to the Latest Version
 
 The Facebook videos stop playing due to the outdated browsers. The users are always recommended to log in to Facebook with a browser that is up to date. Download the latest version of your browser in use and steer clear of **Facebook video not playing continuously.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ![update internet browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-13.jpg)
 
-### Method 6: Clear the Cache of Your Browser
-
-If you haven't cleared your browser's cache for a long time, this problem will likely occur. The presence of cache slows down your system and interferes with normal functionality. To clear cache, go to the "Settings" from your browser by clicking on three dots located in the right corner. Hit "Privacy and Security" from there.
-
-Click on "Clear Browsing Data" and tick mark "Cached images and files." Tap "Clear Data" afterward.
-
-![clear cache data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-14.jpg)
-
-## Part 4: A Powerful Video Editor in Business- Wondershare Filmora
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has brought a storm of workable features related to video editing. It helps creative professionals perform advanced steps easily without facing any complications. Following are some powerful video editing traits that you can use to edit Facebook videos.
-
-* You can add effects, transitions, titles, and elements to the video to send the message across.
-* The Hollywood effects can be added to change the background and unleash imagination.
-* You can rotate, merge, trim, crop, and flip the video as you like.
-
-## Conclusion
-
-Facebook is our last resort when you are an introvert trying to get through the weekend. However, when the video stops playing, it ruins your mood. The article addressed the ****Facebook videos not playing** concern and offered an extensive range of solutions. Wondershare Filmora is also introduced in the article as the workable video editor tool.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The year 2021 is just about to end. It is about time we deal with most problems related to social media websites so that going into the next year is effortless and offers no significant complications. The lack of workability of Facebook videos creates stress that is unasked for.
-
-For this very reason, the article offers solutions for **Facebook videos not playing** in Android, iPhone, and your computer. The Facebook fanatics are expected to follow six workable methods for each individual device. Wondershare Filmora will also be presented as the ultimate video editor in the market. Navigate to different parts and find yourself free of **Facebook videos not playing 2020.**
-
-#### In this article
-
-Part 1: [How to Fix Facebook Videos Not Playing on Android?](#step1)
-
-Part 2: [How to Fix Facebook Videos Not Playing on iPhone?](#step2)
-
-Part 3: [How to Fix Facebook Videos Not Playing on Computer?](#step3)
-
-Part 4: [A Powerful Video Editor in Business- Wondershare Filmora](#step4)
-
-## Part 1: How to Fix Facebook Videos Not Playing on Android?
-
-If you can't view or play videos on Facebook, it is recommended to restart the browser and your computer. You can also update the browser or check your internet connection. However, if the problem still persists, follow the solutions below. The sub-section targets **Facebook videos not playing Android.**
-
-### Method 1: Reset the Device to Factory Settings
-
-The Android users can steer clear of **Facebook videos not playing 2021** by using the first method presented for you. You can reset the device the factory settings and then check if the problem has been resolved. It is important to know that resetting the factory settings will remove all your data.
-
-Follow the process to do so. Hold your Android device and navigate the "Settings." Go to the "Reset Options" afterward. Now, click on "Erase All Data" to factory reset the device. The process is done.
-
-![erase android device data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-1.jpg)
-
-### Method 2: Exit and Open the App
-
-Another viable method can address the concern of **Facebook video not playing continuously**. The user can exit the Facebook app and then wait for a couple of seconds. Relaunch the application and check if Facebook videos are functional again.
-
-### Method 3: Uninstall and Reinstall the App
-
-Social networking websites are not always perfect. They are always undergoing the maintenance process, which creates the problem of **Facebook cannot play video.** Moreover, there are new updates that come periodically. The user can uninstall Facebook and then reinstall the app in seconds.
-
-To do so, go to the "Settings" menu on your Android phone and navigate to "Apps and Notifications." Click on the "Facebook" app and then hit the "Uninstall" button. Facebook app will be uninstalled. For reinstalling the app, you can head to the Play Store. The download of the updated version will help you get rid of the problem for sure.
-
-![reinstall facebook android version](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-2.jpg)
-
-### Method 4: Remove Junk Apps
-
-In most unexpected scenarios, the other apps on the phone interfere with the normal functionality of Facebook. In this situation, you can remove the junk and suspicious apps from your phone and get ahead of **Facebook videos not playing Android.**
-
-For a successful process, navigate to "Settings" and click on "Apps and Notifications." Click on the app to delete it and bring back the normal working of Facebook videos.
-
-![uninstall android junk apps](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-3.jpg)
-
-### Method 5: Clear the Cache for Facebook App
-
-Clearing cache for the Facebook app is another promising method to get rid of **FB videos not playing.** Sometimes, when you haven't cleared the cache in a long time, this problem arises. Therefore, to clear the cache for the Facebook app, navigate to the "Settings" and then "Apps and Notifications." After that, choose the "Facebook" app and tap on "Storage." Click on "Clear Cache" and get done with the process.
-
-![clear facebook app cache](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-4.jpg)
-
-### Method 6: Log Out and Log Back In
-
-Logging out and then logging back in saves us the trouble of **Facebook videos not playing 2020\.** To log out of Facebook, click on the three horizontal dots in the top right corner. Navigate to the option "Log Out." After that, you can log back in through your credentials. The problem would be long gone then.
-
-![logout facebook app](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-5.jpg)
-
-## Part 2: How to Fix Facebook Videos Not Playing on iPhone?
-
-If you are an iPhone user facing the problem of **Facebook video not playing continuously,** allow us to help you through it. The sub-section revolves around methods to eliminate **Facebook videos not playing on iPhone.**
-
-### Method 1: Use a Browser to Watch Videos
-
-Most of the time, the Facebook app goes through bugs and viruses that take time to recover. Meanwhile, the user can switch to the browser and log in there. The user can access Safari, Firefox, Chrome, or any other browser from iPhone.
-
-![play videos on facebook browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-6.jpg)
-
-### Method 2: Reinstall the App on Your iPhone
-
-The next method always works whenever the Facebook app starts acting up. Sometimes, there is too much load on the app, and the internet connection is unstable. To eliminate the **FB videos not playing** concern, reinstall the app on your phone. For starters, delete the app. Hold the icon and click on the X icon. After that, navigate to the Apple Store, and install the app again.
-
-![install facebook ios again](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-7.jpg)
-
-### Method 3: Free-up Memory Space on the iPhone
-
-Another significant cause of **Facebook videos not playing** is the storage issue. The lack of memory in the iPhone creates this problem. Therefore, it is recommended to free up the memory space on the iPhone.
-
-For starters, navigate to the "Settings" and then click on "General." After that, the user is expected to tap on "iPhone Storage." Find out the app taking the largest space in your iPhone. Delete the apps and get rid of this problem.
-
-![make free storage on iphone](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-8.jpg)
-
-### Method 4: Relaunch the App on Your iPhone
-
-The **Facebook videos not playing 2021** create stress, which can occur due to multiple reasons. For instance, there could be an upgrade or a bug affecting the normal functionality. To avoid this issue, exit the app and then relaunch the app.
-
-### Method 5: Reset Network Settings
-
-Another workable procedure revolves around resetting the network settings of your iPhone. In most unforeseen circumstances, the network configuration settings are not properly handled. The procedure is simple to reset the "Settings." Head to the iPhone Settings, and click on "General." After that, hit "Reset Network Settings," from the "Reset" option, and you are done.
-
-![reset iphone network settings](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-9.jpg)
-
-### Method 6: Reboot Your iPhone
-
-You can also reboot your iPhone if the **Facebook video not playing continuously** enhances. To do so, press and hold down the Power and Volume Up button. The device will be rebooted successfully.
-
-![reboot iphone device](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-10.jpg)
-
-## Part 3: How to Fix Facebook Videos Not Playing on Computer?
-
-People log in to Facebook to get entertained and enjoy their free time. When they run into **Facebook videos not playing in Chrome,** their stress levels enhance. Follow the procedure below to get rid of this concern if you use Facebook from your computer.
-
-### Method 1: Switch the Browser on Your Computer
-
-Most browsers are undergoing problems related to their programming and upgrade. Using another browser from your computer is always recommended and eliminates the error.
-
-![use different internet broswer](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-11.jpg)
-
-### Method 2: Ensure a Working Internet Connection
-
-**Facebook videos not playing 2020** occur due to an unstable internet connection. There are multiple devices connected to one router that reduces the speed. Ensure that you are connected to an active internet connection and offer workable speed.
-
-### Method 3: Disable Hardware Acceleration
-
-Browsers use hardware acceleration to bring the perfect user experience for videos preview. However, it doesn't work all the time, so disabling it feels like the right choice. To disable the hardware acceleration, go to the "Settings" from your system and head to the "Advanced" section. Toggle off "Use hardware acceleration when available."
-
-![disable hardware acceleration](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-12.jpg)
-
-### Method 4: Download and Watch the Video
-
-If none of the above methods work, you can download the video and watch it later. The Facebook video can be downloaded from online video downloaders accessed from any browser.
-
-### Method 5: Update the Browser to the Latest Version
-
-The Facebook videos stop playing due to the outdated browsers. The users are always recommended to log in to Facebook with a browser that is up to date. Download the latest version of your browser in use and steer clear of **Facebook video not playing continuously.**
-
-![update internet browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-13.jpg)
-
-### Method 6: Clear the Cache of Your Browser
-
-If you haven't cleared your browser's cache for a long time, this problem will likely occur. The presence of cache slows down your system and interferes with normal functionality. To clear cache, go to the "Settings" from your browser by clicking on three dots located in the right corner. Hit "Privacy and Security" from there.
-
-Click on "Clear Browsing Data" and tick mark "Cached images and files." Tap "Clear Data" afterward.
-
-![clear cache data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-14.jpg)
-
-## Part 4: A Powerful Video Editor in Business- Wondershare Filmora
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has brought a storm of workable features related to video editing. It helps creative professionals perform advanced steps easily without facing any complications. Following are some powerful video editing traits that you can use to edit Facebook videos.
-
-* You can add effects, transitions, titles, and elements to the video to send the message across.
-* The Hollywood effects can be added to change the background and unleash imagination.
-* You can rotate, merge, trim, crop, and flip the video as you like.
-
-## Conclusion
-
-Facebook is our last resort when you are an introvert trying to get through the weekend. However, when the video stops playing, it ruins your mood. The article addressed the ****Facebook videos not playing** concern and offered an extensive range of solutions. Wondershare Filmora is also introduced in the article as the workable video editor tool.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The year 2021 is just about to end. It is about time we deal with most problems related to social media websites so that going into the next year is effortless and offers no significant complications. The lack of workability of Facebook videos creates stress that is unasked for.
-
-For this very reason, the article offers solutions for **Facebook videos not playing** in Android, iPhone, and your computer. The Facebook fanatics are expected to follow six workable methods for each individual device. Wondershare Filmora will also be presented as the ultimate video editor in the market. Navigate to different parts and find yourself free of **Facebook videos not playing 2020.**
-
-#### In this article
-
-Part 1: [How to Fix Facebook Videos Not Playing on Android?](#step1)
-
-Part 2: [How to Fix Facebook Videos Not Playing on iPhone?](#step2)
-
-Part 3: [How to Fix Facebook Videos Not Playing on Computer?](#step3)
-
-Part 4: [A Powerful Video Editor in Business- Wondershare Filmora](#step4)
-
-## Part 1: How to Fix Facebook Videos Not Playing on Android?
-
-If you can't view or play videos on Facebook, it is recommended to restart the browser and your computer. You can also update the browser or check your internet connection. However, if the problem still persists, follow the solutions below. The sub-section targets **Facebook videos not playing Android.**
-
-### Method 1: Reset the Device to Factory Settings
-
-The Android users can steer clear of **Facebook videos not playing 2021** by using the first method presented for you. You can reset the device the factory settings and then check if the problem has been resolved. It is important to know that resetting the factory settings will remove all your data.
-
-Follow the process to do so. Hold your Android device and navigate the "Settings." Go to the "Reset Options" afterward. Now, click on "Erase All Data" to factory reset the device. The process is done.
-
-![erase android device data](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-1.jpg)
-
-### Method 2: Exit and Open the App
-
-Another viable method can address the concern of **Facebook video not playing continuously**. The user can exit the Facebook app and then wait for a couple of seconds. Relaunch the application and check if Facebook videos are functional again.
-
-### Method 3: Uninstall and Reinstall the App
-
-Social networking websites are not always perfect. They are always undergoing the maintenance process, which creates the problem of **Facebook cannot play video.** Moreover, there are new updates that come periodically. The user can uninstall Facebook and then reinstall the app in seconds.
-
-To do so, go to the "Settings" menu on your Android phone and navigate to "Apps and Notifications." Click on the "Facebook" app and then hit the "Uninstall" button. Facebook app will be uninstalled. For reinstalling the app, you can head to the Play Store. The download of the updated version will help you get rid of the problem for sure.
-
-![reinstall facebook android version](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-2.jpg)
-
-### Method 4: Remove Junk Apps
-
-In most unexpected scenarios, the other apps on the phone interfere with the normal functionality of Facebook. In this situation, you can remove the junk and suspicious apps from your phone and get ahead of **Facebook videos not playing Android.**
-
-For a successful process, navigate to "Settings" and click on "Apps and Notifications." Click on the app to delete it and bring back the normal working of Facebook videos.
-
-![uninstall android junk apps](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-3.jpg)
-
-### Method 5: Clear the Cache for Facebook App
-
-Clearing cache for the Facebook app is another promising method to get rid of **FB videos not playing.** Sometimes, when you haven't cleared the cache in a long time, this problem arises. Therefore, to clear the cache for the Facebook app, navigate to the "Settings" and then "Apps and Notifications." After that, choose the "Facebook" app and tap on "Storage." Click on "Clear Cache" and get done with the process.
-
-![clear facebook app cache](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-4.jpg)
-
-### Method 6: Log Out and Log Back In
-
-Logging out and then logging back in saves us the trouble of **Facebook videos not playing 2020\.** To log out of Facebook, click on the three horizontal dots in the top right corner. Navigate to the option "Log Out." After that, you can log back in through your credentials. The problem would be long gone then.
-
-![logout facebook app](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-5.jpg)
-
-## Part 2: How to Fix Facebook Videos Not Playing on iPhone?
-
-If you are an iPhone user facing the problem of **Facebook video not playing continuously,** allow us to help you through it. The sub-section revolves around methods to eliminate **Facebook videos not playing on iPhone.**
-
-### Method 1: Use a Browser to Watch Videos
-
-Most of the time, the Facebook app goes through bugs and viruses that take time to recover. Meanwhile, the user can switch to the browser and log in there. The user can access Safari, Firefox, Chrome, or any other browser from iPhone.
-
-![play videos on facebook browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-6.jpg)
-
-### Method 2: Reinstall the App on Your iPhone
-
-The next method always works whenever the Facebook app starts acting up. Sometimes, there is too much load on the app, and the internet connection is unstable. To eliminate the **FB videos not playing** concern, reinstall the app on your phone. For starters, delete the app. Hold the icon and click on the X icon. After that, navigate to the Apple Store, and install the app again.
-
-![install facebook ios again](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-7.jpg)
-
-### Method 3: Free-up Memory Space on the iPhone
-
-Another significant cause of **Facebook videos not playing** is the storage issue. The lack of memory in the iPhone creates this problem. Therefore, it is recommended to free up the memory space on the iPhone.
-
-For starters, navigate to the "Settings" and then click on "General." After that, the user is expected to tap on "iPhone Storage." Find out the app taking the largest space in your iPhone. Delete the apps and get rid of this problem.
-
-![make free storage on iphone](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-8.jpg)
-
-### Method 4: Relaunch the App on Your iPhone
-
-The **Facebook videos not playing 2021** create stress, which can occur due to multiple reasons. For instance, there could be an upgrade or a bug affecting the normal functionality. To avoid this issue, exit the app and then relaunch the app.
-
-### Method 5: Reset Network Settings
-
-Another workable procedure revolves around resetting the network settings of your iPhone. In most unforeseen circumstances, the network configuration settings are not properly handled. The procedure is simple to reset the "Settings." Head to the iPhone Settings, and click on "General." After that, hit "Reset Network Settings," from the "Reset" option, and you are done.
-
-![reset iphone network settings](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-9.jpg)
-
-### Method 6: Reboot Your iPhone
-
-You can also reboot your iPhone if the **Facebook video not playing continuously** enhances. To do so, press and hold down the Power and Volume Up button. The device will be rebooted successfully.
-
-![reboot iphone device](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-10.jpg)
-
-## Part 3: How to Fix Facebook Videos Not Playing on Computer?
-
-People log in to Facebook to get entertained and enjoy their free time. When they run into **Facebook videos not playing in Chrome,** their stress levels enhance. Follow the procedure below to get rid of this concern if you use Facebook from your computer.
-
-### Method 1: Switch the Browser on Your Computer
-
-Most browsers are undergoing problems related to their programming and upgrade. Using another browser from your computer is always recommended and eliminates the error.
-
-![use different internet broswer](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-11.jpg)
-
-### Method 2: Ensure a Working Internet Connection
-
-**Facebook videos not playing 2020** occur due to an unstable internet connection. There are multiple devices connected to one router that reduces the speed. Ensure that you are connected to an active internet connection and offer workable speed.
-
-### Method 3: Disable Hardware Acceleration
-
-Browsers use hardware acceleration to bring the perfect user experience for videos preview. However, it doesn't work all the time, so disabling it feels like the right choice. To disable the hardware acceleration, go to the "Settings" from your system and head to the "Advanced" section. Toggle off "Use hardware acceleration when available."
-
-![disable hardware acceleration](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-12.jpg)
-
-### Method 4: Download and Watch the Video
-
-If none of the above methods work, you can download the video and watch it later. The Facebook video can be downloaded from online video downloaders accessed from any browser.
-
-### Method 5: Update the Browser to the Latest Version
-
-The Facebook videos stop playing due to the outdated browsers. The users are always recommended to log in to Facebook with a browser that is up to date. Download the latest version of your browser in use and steer clear of **Facebook video not playing continuously.**
-
-![update internet browser](https://images.wondershare.com/filmora/article-images/2021/facebook-videos-not-playing-13.jpg)
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Method 6: Clear the Cache of Your Browser
 
 If you haven't cleared your browser's cache for a long time, this problem will likely occur. The presence of cache slows down your system and interferes with normal functionality. To clear cache, go to the "Settings" from your browser by clicking on three dots located in the right corner. Hit "Privacy and Security" from there.
@@ -656,3 +869,55 @@ Facebook is our last resort when you are an introvert trying to get through the 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-fb-hd-downloader-how-to-download-hd-facebook-videos/"><u>[New] 2024 Approved  FB HD Downloader | How to Download HD Facebook Videos?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-leveraging-instagrams-video-features-a-how-to-guide/"><u>[New] 2024 Approved  Leveraging Instagram's Video Features  A How-To Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>[New] 2024 Approved  Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-music-video-madness-top-10-on-social-sphere/"><u>[New] 2024 Approved  Music Video Madness  Top 10 on Social Sphere</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fb-stream-downloading-on-different-operating-systems-for-2024/"><u>[New] FB Stream Downloading on Different Operating Systems for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-unknown-to-recognized-boosting-facebook-profile-visibility-for-2024/"><u>[New] From Unknown to Recognized  Boosting Facebook Profile Visibility for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-capture-and-stream-in-stunning-hd-fb-for-2024/"><u>[New] How to Capture and Stream in Stunning HD (FB) for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-fix-playback-glitches-with-facebook-videos-android/"><u>[New] In 2024, Fix Playback Glitches with Facebook Videos (Android)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-incorporating-tracks-into-online-visual-narratives/"><u>[New] In 2024, Incorporating Tracks Into Online Visual Narratives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-leveraging-tweet-sharing-for-facebook-audience/"><u>[New] In 2024, Leveraging Tweet Sharing for Facebook Audience</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-music-syncing-for-iphones-and-androids-in-fb/"><u>[New] In 2024, Music Syncing for iPhones & Androids in FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-restore-your-viewing-experience-reclaim-the-icon/"><u>[New] In 2024, Restore Your Viewing Experience - Reclaim the Icon</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-learn-the-fastest-way-to-retrieve-gifs-directly-from-social-platforms-like-fb-for-2024/"><u>[New] Learn the Fastest Way to Retrieve GIFs Directly From Social Platforms Like FB for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-most-innovative-8-private-video-downloaders-for-2024/"><u>[New] Most Innovative 8 Private Video Downloaders for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mp4-downloader-pro-facebook-video-hacks-for-2024/"><u>[New] MP4 Downloader Pro - Facebook Video Hacks for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-online-companion-fb-stories-saver-for-2024/"><u>[New] Online Companion  Fb Stories Saver for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facebook-overhaul-the-2023-updates-explained/"><u>[Updated] 2024 Approved  Facebook Overhaul  The 2023 Updates Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-increase-followers-on-facebook-10-effective-ways/"><u>[Updated] 2024 Approved  How to Increase Followers on Facebook (10 Effective Ways )</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-integrating-gopro-adventures-with-popular-social-media-channels/"><u>[Updated] 2024 Approved  Integrating GoPro Adventures with Popular Social Media Channels</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-master-your-most-watched-videos-on-fb-today-and-beyond-2023/"><u>[Updated] 2024 Approved  Master Your Most-Watched Videos on FB Today & Beyond 2023</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-overview-of-dji-flyer-x20-virtual-reality-lenses/"><u>[Updated] 2024 Approved  Overview of DJi Flyer X20 Virtual Reality Lenses</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-recovering-lost-linkages-restore-facebook-video-suggestions/"><u>[Updated] 2024 Approved  Recovering Lost Linkages  Restore Facebook Video Suggestions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-rethinking-recipes-squared-up-tutorials-for-youtube-and-facebook-success/"><u>[Updated] 2024 Approved  Rethinking Recipes  Squared-Up Tutorials for YouTube and Facebook Success</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-flipbook-of-facebook-feeds-for-2024/"><u>[Updated] Flipbook of Facebook Feeds for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-use-dslr-for-facebook-live-on-you-pc-or-mac-for-2024/"><u>[Updated] How to Use DSLR for Facebook Live on You PC or Mac for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-find-hidden-watch-tile-artwork/"><u>[Updated] In 2024, Find Hidden Watch Tile Artwork</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-increasing-likes-and-shares-facebooks-best-practices/"><u>[Updated] In 2024, Increasing Likes & Shares  Facebook's Best Practices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-innovative-approach-to-revamping-your-videos-cover-images-on-fb/"><u>[Updated] In 2024, Innovative Approach to Revamping Your Videos' Cover Images on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-innovative-tactics-for-stellar-facebook-ad-videos/"><u>[Updated] In 2024, Innovative Tactics for Stellar Facebook Ad Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-prime-selection-of-top-20-humorous-lockdown-memes-lifting-spirits-on-facebook/"><u>[Updated] In 2024, Prime Selection of Top 20 Humorous Lockdown Memes, Lifting Spirits on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-reacting-to-self-viewer-errors-on-popular-social-networks/"><u>[Updated] In 2024, Reacting to Self-Viewer Errors on Popular Social Networks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-innovative-downloaders-unveiled-top-8-of-2023-for-2024/"><u>[Updated] Innovative Downloaders Unveiled  Top 8 of 2023 for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-lighten-your-sentence-with-satire-ranking-funniest-facebook-detentions-for-2024/"><u>[Updated] Lighten Your Sentence with Satire  Ranking Funniest Facebook Detentions for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-master-2-screen-grab-tools-for-2024/"><u>[Updated] Master 2 Screen Grab Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media-for-2024/"><u>[Updated] Maximizing Your DSLR Footage with PC or Mac for Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-optimized-visual-quality-black-bar-and-box-frame-for-social-media-posts-for-2024/"><u>[Updated] Optimized Visual Quality  Black Bar & Box Frame for Social Media Posts for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-premier-mp4-uploader-and-downloader-for-fb-for-2024/"><u>[Updated] Premier MP4 Uploader & Downloader for FB for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-yt-marketing-essential-tips-for-higher-rankings/"><u>2024 Approved  Elevate Your YT Marketing  Essential Tips for Higher Rankings</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-insta-wonders-top-9-habits-of-influencers-and-stars/"><u>2024 Approved  Insta Wonders  Top 9 Habits of Influencers and Stars</u></a></li>
+<li><a href="https://extra-information.techidaily.com/avoid-unsolicited-podcast-recommendations-on-spotify-app-for-2024/"><u>Avoid Unsolicited Podcast Recommendations on Spotify App for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-google-pixel-fold-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Google Pixel Fold Without PUK Codes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-13-proplus-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi Note 13 Pro+ 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-avoid-common-mistakes-my-5-point-checklist-for-choosing-a-video-to-audio-converter/"><u>New In 2024, Avoid Common Mistakes My 5-Point Checklist for Choosing a Video to Audio Converter</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-apple-iphone-13-on-metropcs-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Your Apple iPhone 13 on MetroPCS</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-5-easy-android-image-fixes-for-2024/"><u>Top 5 Easy Android Image Fixes for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-you-can-match-paint-colors-from-pictures-for-your-wall-as-well-as-for-your-videos-and-to-know-how-to-do-both-we-have-laid-down-the-following-discuss/"><u>Updated You Can Match Paint Colors From Pictures for Your Wall, as Well as for Your Videos. And to Know How to Do Both, We Have Laid Down the Following Discussion</u></a></li>
+<li><a href="https://article-tips.techidaily.com/vegas-pro-2021-unpacked-game-changer-or-just-another-tool-in-2024/"><u>Vegas Pro 2021 Unpacked  Game Changer or Just Another Tool, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/what-is-a-watermark-how-to-watermark-your-facebook-photosvideos/"><u>What Is a Watermark? How to Watermark Your Facebook Photos/Videos</u></a></li>
+</ul></div>

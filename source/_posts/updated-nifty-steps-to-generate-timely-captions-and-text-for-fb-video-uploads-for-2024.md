@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Nifty Steps to Generate Timely Captions and Text for FB Video Uploads for 2024"
-date: 2024-05-20T21:28:17.489Z
-updated: 2024-05-21T21:28:17.489Z
+date: 2024-07-23T21:44:55.548Z
+updated: 2024-07-24T21:44:55.548Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Nifty Steps to Generate Timely Captions and Text for FB Video Uploads for 2024"
 excerpt: "This Article Describes [Updated] Nifty Steps to Generate Timely Captions and Text for FB Video Uploads for 2024"
 keywords: "Quick Captioning Tips,FB Video Text Guide,Instant FB Video Texts,Fast Upload Text Strategies,Effective FB Video Descriptions,Timely FB Video Narratives,Streamlined FB Video Captions"
-thumbnail: https://www.lifewire.com/thmb/W65k6zbm45CxpKB_qt-tiD_Li9U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_the-16-best-shows-to-watch-on-discovery-plus-right-now-5116795-b17411d87cfd4bd690fda5be50ea188c.jpg
+thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a292d3d2c56946946b1d875c1f.jpg
 ---
 
 ## Nifty Steps to Generate Timely Captions and Text for FB Video Uploads
@@ -64,6 +64,9 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
@@ -80,6 +83,9 @@ First if all, you need to add your video file to Wondershare Filmora timeline. N
 
 #### Step 2: Apply Template
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
@@ -95,6 +101,9 @@ Once you have finished the text based editing task then hit the Export option av
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -138,6 +147,9 @@ SRT caption files are usually supported by almost all popular media players and 
 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
@@ -146,6 +158,9 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
@@ -156,12 +171,118 @@ Here are few simple to follow steps
 
 #### Step 1: Import your desired Video File
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
+![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
+
+Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
+
+* **Add Titles:**When you are ready to add titles to your Facebook videos, then simply move to Text/Credit Tab on your software tool, here you will find more than 90 text templates. Choose any of these as per your need and finally drag it to title track available on timeline. Soon you will find a text thumbnail on screen with a letter T. Open text editor panel by double clicking on this text thumbnail and now you can start typing you’re your titles. Make selections for animation, color and font type.
+* **Add Subtitles/ End /Opener Credit:**The process for adding subtitles or credits is almost same as that of titles editing. All that you need to do is, drag and drop your desired template from Credit tab to timeline, place this template on your selected video file. Now enter your text based information and make selections for desired animation, color and font type. In case if you are working on Photos then you can also access various built in type editing tools like Motion, Hue, Saturation, Contrast, Brightness, Crop and Rotate etc.
+
+#### Step 3: Export edited file and Save
+
+Once you have finished the text based editing task then hit the Export option available on software window. It will provide you six different output selection options, edited file can be send to DVD, Vimeo, YouTube, Facebook, Device and one can adjust desired Format for it. If you want to update this edited file on Facebook Page then simply select MP3 as your desired output file format.
+
+![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+You might have seen so many videos that contain captions and assist users to understand content with ease even if audio is turned off. Such types of videos are common on Facebook as well as on Facebook Live Streaming app. You will be glad to know that Facebook has recently launched an advanced automatic captioning tool for Facebook Pages in US and it works for free. But this feature is not yet added to Facebook Profiles, reason being the Facebook pages and profiles use follow large number of feature based differences. If you love to stream videos so often on Facebook Pages then probably you must be searching hard for the caption and subtitle creation option as it allows easy customization. Don’t worry! The article below can provide you complete information to add captions on your Facebook videos:
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## How to Create Subtitles and Captions for Facebook Video
+
+Here are a few simple steps to get things done:
+
+Step 1: First of all, you need to move to your video library. In case if you find this library is empty, then you can add videos to it from your personal device. Simply use the upload button to get your video to which you wish to add subtitles or captions.
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
+
+Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
+
+#### Upload SRT File option
+
+The great news for adding video captions is that this platform supports various languages. Users can upload captions manually using their desired language. If you want to add captions from SRT file then simply use Upload SRT file option available on screen and get it uploaded from your computer. And then click the Save button.
+
+SRT caption files are usually supported by almost all popular media players and they can be generated by users with the help of standard text editor tools like Notepad++ or MAC OS users can switch to TextEdit option. Follow the steps below to get started:
+
+* Simple open your desired Text editor tool.
+* Note that, each caption phrase need to be divided into several numbered sections so start with 1 and then press Enter.
+* The standard timing options for SubRip formats use to be milliseconds so you need to divide all phrases respectively into desired time slots. Keep on adding your phrases till the time you cover whole video.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
+![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
+
+* Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
+* Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
+
+#### Generate Captions
+
+For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
+
+![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
+
+Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
+
+It is also possible to delete Facebook video captions with ease. Click the trash can option below Caption bar. Check previews of all changes that you have made by editing or deleting your captions.
+
+Save all updates when you are satisfied with preview.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
+
+It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Here are few simple to follow steps
+
+#### Step 1: Import your desired Video File
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
+![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
+
+First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
+
+#### Step 2: Apply Template
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
@@ -191,12 +312,28 @@ Follow @Shanoon Cox
 
 You might have seen so many videos that contain captions and assist users to understand content with ease even if audio is turned off. Such types of videos are common on Facebook as well as on Facebook Live Streaming app. You will be glad to know that Facebook has recently launched an advanced automatic captioning tool for Facebook Pages in US and it works for free. But this feature is not yet added to Facebook Profiles, reason being the Facebook pages and profiles use follow large number of feature based differences. If you love to stream videos so often on Facebook Pages then probably you must be searching hard for the caption and subtitle creation option as it allows easy customization. Don’t worry! The article below can provide you complete information to add captions on your Facebook videos:
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Create Subtitles and Captions for Facebook Video
 
 Here are a few simple steps to get things done:
 
 Step 1: First of all, you need to move to your video library. In case if you find this library is empty, then you can add videos to it from your personal device. Simply use the upload button to get your video to which you wish to add subtitles or captions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
 
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
@@ -211,6 +348,9 @@ SRT caption files are usually supported by almost all popular media players and 
 * Note that, each caption phrase need to be divided into several numbered sections so start with 1 and then press Enter.
 * The standard timing options for SubRip formats use to be milliseconds so you need to divide all phrases respectively into desired time slots. Keep on adding your phrases till the time you cover whole video.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
@@ -220,6 +360,9 @@ SRT caption files are usually supported by almost all popular media players and 
 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
@@ -232,18 +375,28 @@ Save all updates when you are satisfied with preview.
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are few simple to follow steps
 
 #### Step 1: Import your desired Video File
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
@@ -259,88 +412,9 @@ Once you have finished the text based editing task then hit the Export option av
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-You might have seen so many videos that contain captions and assist users to understand content with ease even if audio is turned off. Such types of videos are common on Facebook as well as on Facebook Live Streaming app. You will be glad to know that Facebook has recently launched an advanced automatic captioning tool for Facebook Pages in US and it works for free. But this feature is not yet added to Facebook Profiles, reason being the Facebook pages and profiles use follow large number of feature based differences. If you love to stream videos so often on Facebook Pages then probably you must be searching hard for the caption and subtitle creation option as it allows easy customization. Don’t worry! The article below can provide you complete information to add captions on your Facebook videos:
-
-## How to Create Subtitles and Captions for Facebook Video
-
-Here are a few simple steps to get things done:
-
-Step 1: First of all, you need to move to your video library. In case if you find this library is empty, then you can add videos to it from your personal device. Simply use the upload button to get your video to which you wish to add subtitles or captions.
-
-![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
-
-Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
-
-#### Upload SRT File option
-
-The great news for adding video captions is that this platform supports various languages. Users can upload captions manually using their desired language. If you want to add captions from SRT file then simply use Upload SRT file option available on screen and get it uploaded from your computer. And then click the Save button.
-
-SRT caption files are usually supported by almost all popular media players and they can be generated by users with the help of standard text editor tools like Notepad++ or MAC OS users can switch to TextEdit option. Follow the steps below to get started:
-
-* Simple open your desired Text editor tool.
-* Note that, each caption phrase need to be divided into several numbered sections so start with 1 and then press Enter.
-* The standard timing options for SubRip formats use to be milliseconds so you need to divide all phrases respectively into desired time slots. Keep on adding your phrases till the time you cover whole video.
-
-![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
-
-* Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
-* Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
-
-#### Generate Captions
-
-For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
-
-![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
-
-Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
-
-It is also possible to delete Facebook video captions with ease. Click the trash can option below Caption bar. Check previews of all changes that you have made by editing or deleting your captions.
-
-Save all updates when you are satisfied with preview.
-
-## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
-
-It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Here are few simple to follow steps
-
-#### Step 1: Import your desired Video File
-
-![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
-
-First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
-
-#### Step 2: Apply Template
-
-![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
-
-Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
-
-* **Add Titles:**When you are ready to add titles to your Facebook videos, then simply move to Text/Credit Tab on your software tool, here you will find more than 90 text templates. Choose any of these as per your need and finally drag it to title track available on timeline. Soon you will find a text thumbnail on screen with a letter T. Open text editor panel by double clicking on this text thumbnail and now you can start typing you’re your titles. Make selections for animation, color and font type.
-* **Add Subtitles/ End /Opener Credit:**The process for adding subtitles or credits is almost same as that of titles editing. All that you need to do is, drag and drop your desired template from Credit tab to timeline, place this template on your selected video file. Now enter your text based information and make selections for desired animation, color and font type. In case if you are working on Photos then you can also access various built in type editing tools like Motion, Hue, Saturation, Contrast, Brightness, Crop and Rotate etc.
-
-#### Step 3: Export edited file and Save
-
-Once you have finished the text based editing task then hit the Export option available on software window. It will provide you six different output selection options, edited file can be send to DVD, Vimeo, YouTube, Facebook, Device and one can adjust desired Format for it. If you want to update this edited file on Facebook Page then simply select MP3 as your desired output file format.
-
-![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -372,3 +446,65 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2023-techniques-for-harvesting-fb-status-video-content-for-2024/"><u>[New] 2023 Techniques for Harvesting FB Status Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-a-comprehensive-guide-to-creating-compelling-fb-reels/"><u>[New] 2024 Approved  A Comprehensive Guide to Creating Compelling FB Reels</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-favorites-top-8-androidiphone-apps-for-social-popularity/"><u>[New] 2024 Approved  Facebook Favorites  Top 8 Android/iPhone Apps for Social Popularity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-to-setup-continuous-auto-video-in-fb/"><u>[New] 2024 Approved  How to Setup Continuous Auto-Video in Fb</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-instant-video-playback-on-fb-enabling-auto-play-of-youtube-videos/"><u>[New] 2024 Approved  Instant Video Playback on FB  Enabling Auto-Play of Youtube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-achieving-peak-audience-interaction-with-wirecast-on-facebook-for-2024/"><u>[New] Achieving Peak Audience Interaction with Wirecast on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-audience-expansion-with-immersive-360-videos-on-social-media-for-2024/"><u>[New] Audience Expansion with Immersive 360 Videos on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-best-practice-video-placement-on-facebook-vh-for-2024/"><u>[New] Best Practice  Video Placement on Facebook (V/H) for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-covert-videography-the-premier-8-downloader-list-for-2024/"><u>[New] Covert Videography  The Premier 8 Downloader List for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-efficiency-meets-entertainment-discover-top-10-fb-video-extractors-for-android-devices-for-2024/"><u>[New] Efficiency Meets Entertainment  Discover Top 10 FB Video Extractors for Android Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-free-youtube-compatible-video-editors-for-fb-ads-for-2024/"><u>[New] Free YouTube-Compatible Video Editors for FB Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-transmit-facebook-live-via-televisions-for-2024/"><u>[New] How to Transmit Facebook Live via Televisions for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-digital-enhancement-social-story-recorder/"><u>[New] In 2024, Digital Enhancement  Social Story Recorder</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-download-premium-facebook-hd-content-anywhere/"><u>[New] In 2024, Download Premium Facebook HD Content Anywhere</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-enhancing-cross-platform-engagement-sharing-tiktok-on-facebook/"><u>[New] In 2024, Enhancing Cross-Platform Engagement  Sharing TikTok on Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-in-depth-investment-introspection-the-podcasts-financial-frontier/"><u>[New] In-Depth Investment Introspection  The Podcast's Financial Frontier</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-insights-into-a-common-icon-what-is-fbs-blue-video-symbol-in-2024/"><u>[New] Insights Into a Common Icon  What Is FB’s Blue Video Symbol, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-2023s-facebook-video-grabber-windowsmacosandroid/"><u>[Updated] 2024 Approved  2023'S Facebook Video Grabber  Windows/macOS/Android</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-ace-your-social-media-game-essential-video-marketing-techniques-on-facebook/"><u>[Updated] 2024 Approved  Ace Your Social Media Game  Essential Video Marketing Techniques on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-android-users-ultimate-selection-top-10-fb-video-extractor-tools/"><u>[Updated] 2024 Approved  Android Users' Ultimate Selection  Top 10 FB Video Extractor Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-aspect-ratio-preferences-on-facebook-vids/"><u>[Updated] 2024 Approved  Aspect Ratio Preferences on Facebook Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-cutting-edge-video-sharing-from-facebook-to-whatsapp/"><u>[Updated] 2024 Approved  Cutting-Edge Video Sharing From Facebook to WhatsApp</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-enhanced-viewing-fb-videos-on-large-displays/"><u>[Updated] 2024 Approved  Enhanced Viewing  FB Videos On Large Displays</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-enhancing-profile-clips-for-impact/"><u>[Updated] 2024 Approved  Enhancing Profile Clips for Impact</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-establishing-whatsapp-meeting-rooms-efficiently/"><u>[Updated] 2024 Approved  Establishing WhatsApp Meeting Rooms Efficiently</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-harnessing-altitude-live-streaming-with-dji-drones/"><u>[Updated] 2024 Approved  Harnessing Altitude  Live-Streaming with DJI Drones</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-top-8-best-apps-to-get-likes-on-facebook-android-and-iphone/"><u>[Updated] 2024 Approved  Top 8 Best Apps to Get Likes on Facebook (Android and iPhone)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-bridging-games-and-friends-xbox-live-to-facebook-broadcasting-for-2024/"><u>[Updated] Bridging Games and Friends  Xbox Live to Facebook Broadcasting for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-discover-the-undiscovered-top-social-media-memes-for-2024/"><u>[Updated] Discover the Undiscovered  Top Social Media Memes for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elite-no-cost-fb-imagemovie-design-toolkit-for-2024/"><u>[Updated] Elite No-Cost FB Image/Movie Design Toolkit for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-video-shape-dimensions-for-2024/"><u>[Updated] Facebook Video Shape Dimensions for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebooks-premier-new-innovations-exposed-for-2024/"><u>[Updated] Facebook's Premier New Innovations Exposed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-fix-facebook-suggested-videos-not-showing-up-in-2024/"><u>[Updated] How to Fix Facebook Suggested Videos Not Showing Up, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-humor-in-captivity-top-20-memes-from-jail-to-joys-of-online-life-for-2024/"><u>[Updated] Humor in Captivity  Top 20 Memes From Jail to Joys of Online Life for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-adaptive-strategies-for-successful-content-on-new-fb-algorithm/"><u>[Updated] In 2024, Adaptive Strategies for Successful Content on New FB Algorithm</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-broadcast-brilliance-how-to-prevent-live-video-halts-on-facebook/"><u>[Updated] In 2024, Broadcast Brilliance  How to Prevent Live Video Halts on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-cutting-edge-marketing-anticipating-fbs-trends-of-the-new-decade/"><u>[Updated] In 2024, Cutting-Edge Marketing  Anticipating FB's Trends of the New Decade</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-discreetly-streaming-top-8-video-tools-of-the-year-2023/"><u>[Updated] In 2024, Discreetly Streaming  Top 8 Video Tools of the Year, 2023</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-essential-list-critical-6-fb-lite-downloads/"><u>[Updated] In 2024, Essential List  Critical 6 FB Lite Downloads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebooks-easy-path-uploading-videos-via-pc-and-android-devices/"><u>[Updated] In 2024, Facebook's Easy Path  Uploading Videos via PC and Android Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-summit-creation-pro-x-evaluation/"><u>[Updated] In 2024, Summit Creation Pro X Evaluation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sleek-60-second-fades/"><u>2024 Approved  Sleek 60-Second Fades</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-top-5-best-ps3-emulator-for-pc-2023/"><u>2024 Approved  Top 5 Best Ps3 Emulator For PC 2023</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cinema-chronicles-the-quintessential-cinematographic-tips-for-24-for-2024/"><u>Cinema Chronicles  The Quintessential Cinematographic Tips for '24 for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/entering-the-vtuber-universe-beginning-stages-and-possibilities-for-2024/"><u>Entering the VTuber Universe  Beginning Stages & Possibilities for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-itel-s23-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/funny-faces-crafting-7-cheeky-youtube-comedy-videos/"><u>Funny Faces  Crafting 7 Cheeky YouTube Comedy Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/guide-to-personalizing-console-lighting-on-microsoft-devices/"><u>Guide to Personalizing Console Lighting on Microsoft Devices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-realme-11-proplus-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Realme 11 Pro+.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-convert-your-avis-to-impactful-gifs-using-filmora-on-windowsmacos/"><u>In 2024, Convert Your AVIs to Impactful GIFs Using Filmora on Windows/MacOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-from-concept-to-reality-polarr-photo-editor-simplified/"><u>In 2024, From Concept to Reality  Polarr Photo Editor Simplified</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Samsung Galaxy M54 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-k11x-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo K11x To Phone | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-apple-iphone-15-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen Apple iPhone 15 In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-14-without-passcode-easily-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone 14 Without Passcode Easily</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/maximizing-engagement-from-tiktok-to-twitter-for-2024/"><u>Maximizing Engagement  From TikTok to Twitter for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-top-3d-animation-software-free-and-premium-options-for-2024/"><u>New Top 3D Animation Software Free and Premium Options for 2024</u></a></li>
+</ul></div>

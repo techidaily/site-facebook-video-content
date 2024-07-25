@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Soundscapes for Social Scenarios on Facebook"
-date: 2024-05-20T20:42:27.648Z
-updated: 2024-05-21T20:42:27.648Z
+date: 2024-07-23T19:21:28.654Z
+updated: 2024-07-24T19:21:28.654Z
 tags:
   - ai video
   - ai facebook
@@ -12,13 +12,16 @@ categories:
 description: "This Article Describes [Updated] In 2024, Soundscapes for Social Scenarios on Facebook"
 excerpt: "This Article Describes [Updated] In 2024, Soundscapes for Social Scenarios on Facebook"
 keywords: "Soundscapes FB,Social Audio,Scenery Sounds,FB Social Effects,Auditory Scenes,Echoes in Society,Socialscapes Sound"
-thumbnail: https://www.lifewire.com/thmb/l4Zd7Ii3jMW_aPJ27JJQRexiIyg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1132289824-17803006e92047d1994c21404918c781.jpg
+thumbnail: https://thmb.techidaily.com/b2e6162c64c71916b12953aa4e598d6dbab13589e9351dbafbf801be610ecb70.jpg
 ---
 
 ## Soundscapes for Social Scenarios on Facebook
 
 # How to Add Music to Facebook Story?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -54,6 +57,9 @@ After tapping on the song of your choice, you can edit it. You can change the mu
 
 Click done on the right corner to post the music story. Your story will be available for 24 hours for viewers to watch.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
@@ -78,6 +84,9 @@ After tapping on the music sticker, click on the song you want to play with your
 
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: How to Add My Own Music to Facebook Story?
 
 What happens when you do not find the music you want in the Facebook story music library? Don't worry; you can use Filmora to add music to any plain and boring video easily. Even a beginner can handle this task after reading the steps mentioned below:
@@ -130,6 +139,9 @@ A user can also select elements from the given options. You can add a poll, emoj
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQs About Adding Music to Facebook Story
 
 1. **Can you add music to Facebook Story from a computer?**
@@ -201,12 +213,18 @@ Tap on create a story option and click on the camera icon given below, through w
 
 After clicking a picture or making a video, tap on the sticker icon. Select the music sticker to pick a song of your choice.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
  **Step 3: Add music**   **and**   **post**
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -223,12 +241,18 @@ Note: You may need to set up the project aspect ratio accordingly for the Facebo
 
 Drag video to timeline, hover the cursor over the audio and video file until a + sign appears, which means add to the project.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
  **Step 4: Export edited file**
@@ -241,6 +265,9 @@ You can upload the edited file on your Facebook stories by clicking on create st
 
 _For more details about editing videos on Filmora, you can check [How to Edit Videos](https://tools.techidaily.com/wondershare/filmora/download/)._
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -261,6 +288,9 @@ A user can also select elements from the given options. You can add a poll, emoj
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQs About Adding Music to Facebook Story
 
 1. **Can you add music to Facebook Story from a computer?**
@@ -296,6 +326,9 @@ Everyone wants to make their social media accounts fun and interactive to attrac
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Create a Music-only Facebook Story?
 
 Music-only stories are becoming a Facebook trend and a way to let people know the songs you are currently hooked to. Do you know how to add music-only stories? If not, here is how to do it:
@@ -308,6 +341,10 @@ When you open the Facebook Desktop or mobile app, you will see   **Create Story*
 
 When creating a story, you will see a music option on the top along with text and boomerang; click on the music icon. You have the option to browse through the music to select one that you like or simply write the song's name in the search bar. With the song's name, you will see lyrics written on the side, which tells you to post particular music with its lyrics.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![Add music to FB Story on Mobile](https://images.wondershare.com/filmora/article-images/add-music-to-facebook-story.jpg)
 
  **Step 3 : Edit music sticker and post**
@@ -316,10 +353,16 @@ After tapping on the song of your choice, you can edit it. You can change the mu
 
 Click done on the right corner to post the music story. Your story will be available for 24 hours for viewers to watch.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
 Serene music on a video background adds feeling to the story and makes it more attractive. Music adds life to a boring video and keeps the viewer's attention on it for longer. It is easy to add music to your video or photo story directly in a few simple steps. Here is how to do it:
@@ -354,12 +397,20 @@ Note: You may need to set up the project aspect ratio accordingly for the Facebo
 
 Drag video to timeline, hover the cursor over the audio and video file until a + sign appears, which means add to the project.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
  **Step 4: Export edited file**
@@ -382,6 +433,9 @@ If you don't know already, you can also edit the music sticker on your story to 
 
 You can click on the play button after selecting the song, and it will appear in your stories. You will see a few options above the music sticker, which you can use to edit the music story. Click on the Aa option to enable the lyrics, and they will appear when a viewer views your story. You can enable lyrics only if they are available with the songs.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
  **Step**  2: Change the color **and**   **add elements**
@@ -402,6 +456,9 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Conclusion**
 
 Facebook story feature is one of the best options that one can use to gain visibility and increase interaction. Everyone should know how to add music to Facebook story as it makes the viewer focus more on your story content. We are sure you must have learned how to add music to enhance your stories.
@@ -427,6 +484,9 @@ Everyone wants to make their social media accounts fun and interactive to attrac
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Create a Music-only Facebook Story?
 
 Music-only stories are becoming a Facebook trend and a way to let people know the songs you are currently hooked to. Do you know how to add music-only stories? If not, here is how to do it:
@@ -439,6 +499,9 @@ When you open the Facebook Desktop or mobile app, you will see   **Create Story*
 
 When creating a story, you will see a music option on the top along with text and boomerang; click on the music icon. You have the option to browse through the music to select one that you like or simply write the song's name in the search bar. With the song's name, you will see lyrics written on the side, which tells you to post particular music with its lyrics.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![Add music to FB Story on Mobile](https://images.wondershare.com/filmora/article-images/add-music-to-facebook-story.jpg)
 
  **Step 3 : Edit music sticker and post**
@@ -447,6 +510,9 @@ After tapping on the song of your choice, you can edit it. You can change the mu
 
 Click done on the right corner to post the music story. Your story will be available for 24 hours for viewers to watch.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
@@ -463,12 +529,27 @@ Tap on create a story option and click on the camera icon given below, through w
 
 After clicking a picture or making a video, tap on the sticker icon. Select the music sticker to pick a song of your choice.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
  **Step 3: Add music**   **and**   **post**
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -485,12 +566,18 @@ Note: You may need to set up the project aspect ratio accordingly for the Facebo
 
 Drag video to timeline, hover the cursor over the audio and video file until a + sign appears, which means add to the project.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
  **Step 4: Export edited file**
@@ -503,8 +590,14 @@ You can upload the edited file on your Facebook stories by clicking on create st
 
 _For more details about editing videos on Filmora, you can check [How to Edit Videos](https://tools.techidaily.com/wondershare/filmora/download/)._
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -513,6 +606,9 @@ If you don't know already, you can also edit the music sticker on your story to 
 
 You can click on the play button after selecting the song, and it will appear in your stories. You will see a few options above the music sticker, which you can use to edit the music story. Click on the Aa option to enable the lyrics, and they will appear when a viewer views your story. You can enable lyrics only if they are available with the songs.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
  **Step**  2: Change the color **and**   **add elements**
@@ -521,8 +617,14 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## FAQs About Adding Music to Facebook Story
 
 1. **Can you add music to Facebook Story from a computer?**
@@ -568,3 +670,51 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elevate-your-facebook-profile-with-these-11-superior-tools/"><u>[New] 2024 Approved  Elevate Your Facebook Profile with These 11 Superior Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elite-stealth-vids-downloader-guide-1-to-8/"><u>[New] 2024 Approved  Elite Stealth Vids Downloader Guide - #1 to #8</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-grab-and-reel-the-essential-5-apps-for-social-media-video-capture/"><u>[New] 2024 Approved  Grab & Reel  The Essential 5 Apps for Social Media Video Capture</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-to-schedule-a-post-on-your-facebook-plusfree-tools-2023/"><u>[New] 2024 Approved  How to Schedule a Post on Your Facebook [+Free Tools 2023]</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-restore-true-identity-on-fb-messages/"><u>[New] 2024 Approved  Restore True Identity on FB Messages</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-solve-facebook-messenger-not-sending-videos-on-iphone-and-android/"><u>[New] 2024 Approved  Solve “Facebook Messenger Not Sending Videos” On iPhone and Android</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-streamlining-your-viewing-experience-6-effective-mac-strategies-for-netflix-screenshots/"><u>[New] 2024 Approved  Streamlining Your Viewing Experience  6 Effective Mac Strategies for Netflix Screenshots</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-effortless-yt-calls-mastering-green-backgrounds/"><u>[New] Effortless YT Calls  Mastering Green Backgrounds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-elevate-your-social-storytelling-with-added-musicality-for-2024/"><u>[New] Elevate Your Social Storytelling with Added Musicality for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-essentials-for-setting-up-digital-discussion-rooms-for-2024/"><u>[New] Essentials for Setting Up Digital Discussion Rooms for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebook-instream-ads-how-to-setup-and-evaluate-facebook-instream-ad-for-2024/"><u>[New] Facebook Instream Ads | How to Setup and Evaluate Facebook Instream Ad for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fast-and-free-fb-video-conversion-tools-for-mp3-files-for-2024/"><u>[New] Fast and Free  FB Video Conversion Tools for MP3 Files for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-easy-guide-to-rectify-ios-and-android-videos-not-sent-by-messenger/"><u>[New] In 2024, Easy Guide to Rectify iOS and Android Videos Not Sent by Messenger</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-evasion-of-ennui-comical-cells-and-chuckles-in-facebooks-boundaries/"><u>[New] In 2024, Evasion of Ennui  Comical Cells and Chuckles in Facebook's Boundaries</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-facebook-video-glitch-how-to-spot-and-fix/"><u>[New] In 2024, Facebook Video Glitch  How to Spot & Fix</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-navigating-the-full-spectrum-of-storage-in-the-adobe-cloud-ecosystem/"><u>[New] Step by Step  Navigating the Full Spectrum of Storage in the Adobe Cloud Ecosystem</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-by-step-assistance-how-to-add-and-customize-ringtones-and-sounds-in-android/"><u>[New] Step-by-Step Assistance  How To Add and Customize Ringtones & Sounds in Android</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-2023-fix-facebook-videos-not-playing-on-androidiphonechrome/"><u>[Updated] 2024 Approved  2023 | Fix Facebook Videos Not Playing on Android/iPhone/Chrome</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-2023s-leading-covert-video-download-apps-1-8/"><u>[Updated] 2024 Approved  2023'S Leading Covert Video Download Apps #1-8</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhancing-profits-creating-compelling-video-trailers/"><u>[Updated] 2024 Approved  Enhancing Profits  Creating Compelling Video Trailers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facebook-profile-transformation-top-11-online-image-makers/"><u>[Updated] 2024 Approved  Facebook Profile Transformation  Top 11 Online Image Makers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-from-broadcasting-basics-to-facebook-live-with-wirecast/"><u>[Updated] 2024 Approved  From Broadcasting Basics to Facebook Live with Wirecast</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-review-10-most-effective-methods-for-live-cricket-streaming/"><u>[Updated] A Review  10 Most Effective Methods for Live Cricket Streaming</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elite-5-screen-grab-for-fb-movies-for-2024/"><u>[Updated] Elite 5 Screen Grab for FB Movies for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-free-posts-to-fiscal-success-fb-pages-profit-playbook-for-2024/"><u>[Updated] From Free Posts to Fiscal Success  FB Pages Profit Playbook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-elevate-your-influence-with-masterful-facebook-story-techniques/"><u>[Updated] In 2024, Elevate Your Influence with Masterful Facebook Story Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-expert-video-and-data-extractor-optimized-for-firefox/"><u>[Updated] In 2024, Expert Video & Data Extractor - Optimized For Firefox</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebook-favoritism-at-your-fingertips-the-top-8-app-list/"><u>[Updated] In 2024, Facebook Favoritism at Your Fingertips  The Top 8 App List</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-fb-forum-film-facsimile/"><u>[Updated] In 2024, Fb Forum Film Facsimile</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-find-the-disappeared-watch-tile/"><u>[Updated] In 2024, Find the Disappeared Watch Tile</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-groupgaze-video-extractor/"><u>[Updated] In 2024, GroupGaze Video Extractor</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-premium-capture-suite-chromebook-focus/"><u>[Updated] Premium Capture Suite  Chromebook Focus</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/a-step-by-step-guide-to-including-vimeo-on-instagram-for-2024/"><u>A Step-by-Step Guide to Including Vimeo on Instagram for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>Diving Into Video Quality  DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-iphone-6s-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My iPhone 6s After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-honor-magic-5-lite-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Honor Magic 5 Lite Phone that is Locked?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-meizu-21-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Meizu 21 FRP?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-motorola-edge-40-neo-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Motorola Edge 40 Neo online without jailbreak</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-in-depth-look-at-djis-drone-model-3/"><u>In 2024, In-Depth Look at DJI's Drone Model 3</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mac-windows-vmx-substitute/"><u>In 2024, Mac-Windows VMX Substitute</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pre-upgrade-knowledge-key-elements-explained/"><u>In 2024, Pre-Upgrade Knowledge  Key Elements Explained</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-creative-commons-chorus-compilation-for-slideshow-synthesis/"><u>New Creative Commons Chorus Compilation for Slideshow Synthesis</u></a></li>
+</ul></div>

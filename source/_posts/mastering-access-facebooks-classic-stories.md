@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Access  Facebook's Classic Stories\""
-date: 2024-06-19T05:34:49.664Z
-updated: 2024-06-20T05:34:49.664Z
+date: 2024-07-24T00:40:19.074Z
+updated: 2024-07-25T00:40:19.074Z
 tags:
   - ai video
   - ai facebook
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/eeef901d1f6e0f72044944aeb5612974e0f0cbfc3
 
 # How to See Old Stories on Facebook: Find Story Archive Easily
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,6 +46,9 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -127,6 +133,167 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Export and Share
+
+Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
+
+Thus video editing is nowadays very easy with the help of Wondershare Filmora editor. Also, you don’t need to be a professional editor to use this tool. Herewith the basic clicks and rich effects would make your Facebook video look very creative and artistic too.
+
+**Conclusion**
+
+So we can wrap up by concluding that if you are confused about how to see old stories on Facebook, whatever device you are using, a desktop or a mobile, now watching an old story is not a difficult task at all. You need to make sure that the Archive option is on and your job is done!
+
+Also, Try using Wondershare Filmora for getting high-quality video editing features and effects to make a stunning video for your Facebook. All the rich editing options would surely not disappoint you at all.
+
+Happy editing!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Facebook is one of the effective social media platforms where people can connect easily, upload photos, videos and share their status with other users. Along with the interaction, Facebook has a great feature called Stories, where you can put any image and share it with your audience. Facebook story features let you upload the story, and it remains for 24 hours. So being a Facebook user, if you want to see the stories later on you need to save the story in the archive.
+
+Now, if you are wondering **how to view old stories on Facebook**, there are simple steps you need to follow.
+
+Here is the step by step guide to see old stories on Facebook:
+
+* [Part 1: What is Facebook Story and how is it Work？](#part1)
+* [Part 2: How to See Old Facebook Stories on Desktop?](#part2)
+* [Part 3: How to Watch Old Stories on Facebook on your Mobile?](#part3)
+* [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
+* [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: What is Facebook Story and how is it Work？
+
+Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
+
+You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to See Old Facebook Stories on Desktop?
+
+Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
+
+**Step 1:** Firstly, from Facebook Home Page, you need to visit your main profile page with the help of tapping on your profile pic.
+
+**Step 2:** Then, on the Profile Page, select the “More” dropdown button.
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
+![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
+
+**Step 3:** Now just tap on the “Story Archive” option from the list.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
+![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+**Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
+
+Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Part 3: How to Watch Old Stories on Facebook on your Mobile?
+
+You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
+
+**Step 1:** Firstly on the Facebook Home Page, open your profile by selecting your profile picture.
+
+**Step 2:** Now select the 3 horizontal dots below the profile picture to open the Profile Settings.
+
+**Step 3:** Then Select “Archive” from the given options.
+
+![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
+
+**Step 4:** Scroll towards the right and select on Story Archives tab.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
+![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
+
+**Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
+
+We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 4: Can you See Friends' Old Stories on Facebook?
+
+If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
+
+The only chance is that if your friend has uploaded those stories on highlights then yes, you can see old stories of them. Whenever your friend uploads a story he/she might get a star option in the lower corner where clicking only they can create a story and highlight on their feed.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
+![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
+
+An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
+
+So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+## Part 5: How to Create Facebook Videos with Ease?
+
+If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
+
+To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Features:**
+
+4K Resolution Editing Support
+
+GIF Support
+
+Split Screen
+
+Video and Audio Controls
+
+Layer Multiple Video Clips
+
+Video Stabilization
+
+All you need is to download the easy-to-use and most powerful video maker Wondershare Filmora and follow below simple steps below to make your video for Facebook.
+
+**Step 1: Import your video or photo files**
+
+Once you are done with installing Wondershare Filmora, you need to click on the” Import” button and select the files you want to upload. Here you can also easily drag-and-drop the file over the timeline.
+
+**Step 2: Personalize Facebook video**
+
+You can crop, trim, cut, split, and merge your video in a few clicks in Wondershare Filmora. Also, it has more than 300 effects available in Filmora. You can add various overlays, filters, motion elements, transitions, and much more to your video.
+
+Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -171,6 +338,9 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -183,12 +353,18 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -209,18 +385,27 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
 
 The only chance is that if your friend has uploaded those stories on highlights then yes, you can see old stories of them. Whenever your friend uploads a story he/she might get a star option in the lower corner where clicking only they can create a story and highlight on their feed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -255,6 +440,9 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -307,6 +495,9 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 **Step 2:** Then, on the Profile Page, select the “More” dropdown button.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
 **Step 3:** Now just tap on the “Story Archive” option from the list.
@@ -317,6 +508,15 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -327,6 +527,9 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 **Step 3:** Then Select “Archive” from the given options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
@@ -349,134 +552,9 @@ An old highlighted story shared by your friend would appear on your friend’s p
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
-## Part 5: How to Create Facebook Videos with Ease?
-
-If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
-
-To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Features:**
-
-4K Resolution Editing Support
-
-GIF Support
-
-Split Screen
-
-Video and Audio Controls
-
-Layer Multiple Video Clips
-
-Video Stabilization
-
-All you need is to download the easy-to-use and most powerful video maker Wondershare Filmora and follow below simple steps below to make your video for Facebook.
-
-**Step 1: Import your video or photo files**
-
-Once you are done with installing Wondershare Filmora, you need to click on the” Import” button and select the files you want to upload. Here you can also easily drag-and-drop the file over the timeline.
-
-**Step 2: Personalize Facebook video**
-
-You can crop, trim, cut, split, and merge your video in a few clicks in Wondershare Filmora. Also, it has more than 300 effects available in Filmora. You can add various overlays, filters, motion elements, transitions, and much more to your video.
-
-Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
-
-### Export and Share
-
-Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
-
-Thus video editing is nowadays very easy with the help of Wondershare Filmora editor. Also, you don’t need to be a professional editor to use this tool. Herewith the basic clicks and rich effects would make your Facebook video look very creative and artistic too.
-
-**Conclusion**
-
-So we can wrap up by concluding that if you are confused about how to see old stories on Facebook, whatever device you are using, a desktop or a mobile, now watching an old story is not a difficult task at all. You need to make sure that the Archive option is on and your job is done!
-
-Also, Try using Wondershare Filmora for getting high-quality video editing features and effects to make a stunning video for your Facebook. All the rich editing options would surely not disappoint you at all.
-
-Happy editing!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Facebook is one of the effective social media platforms where people can connect easily, upload photos, videos and share their status with other users. Along with the interaction, Facebook has a great feature called Stories, where you can put any image and share it with your audience. Facebook story features let you upload the story, and it remains for 24 hours. So being a Facebook user, if you want to see the stories later on you need to save the story in the archive.
-
-Now, if you are wondering **how to view old stories on Facebook**, there are simple steps you need to follow.
-
-Here is the step by step guide to see old stories on Facebook:
-
-* [Part 1: What is Facebook Story and how is it Work？](#part1)
-* [Part 2: How to See Old Facebook Stories on Desktop?](#part2)
-* [Part 3: How to Watch Old Stories on Facebook on your Mobile?](#part3)
-* [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
-* [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
-
-## Part 1: What is Facebook Story and how is it Work？
-
-Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
-
-You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
-
-## Part 2: How to See Old Facebook Stories on Desktop?
-
-Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
-
-**Step 1:** Firstly, from Facebook Home Page, you need to visit your main profile page with the help of tapping on your profile pic.
-
-**Step 2:** Then, on the Profile Page, select the “More” dropdown button.
-
-![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
-
-**Step 3:** Now just tap on the “Story Archive” option from the list.
-
-![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
-
-**Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
-
-Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-## Part 3: How to Watch Old Stories on Facebook on your Mobile?
-
-You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
-
-**Step 1:** Firstly on the Facebook Home Page, open your profile by selecting your profile picture.
-
-**Step 2:** Now select the 3 horizontal dots below the profile picture to open the Profile Settings.
-
-**Step 3:** Then Select “Archive” from the given options.
-
-![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
-
-**Step 4:** Scroll towards the right and select on Story Archives tab.
-
-![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
-
-**Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
-
-We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-## Part 4: Can you See Friends' Old Stories on Facebook?
-
-If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
-
-The only chance is that if your friend has uploaded those stories on highlights then yes, you can see old stories of them. Whenever your friend uploads a story he/she might get a star option in the lower corner where clicking only they can create a story and highlight on their feed.
-
-![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
-
-An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
-
-So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -556,3 +634,41 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-exploring-social-networking-youtube-content-on-fb/"><u>[New] Exploring Social Networking  YouTube Content on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fb-mp3-extractor-tool/"><u>[New] FB Mp3 Extractor Tool</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-flawless-illustration-from-photographs-cross-platform-compatibility-for-2024/"><u>[New] Flawless Illustration From Photographs  Cross-Platform Compatibility for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-getting-involved-in-the-global-village-facebook/"><u>[New] Getting Involved in the Global Village (Facebook)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-guide-sharing-melodies-in-facebook-narratives/"><u>[New] Guide  Sharing Melodies in Facebook Narratives</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leading-workplace-cloud-reservoirs/"><u>[New] Leading Workplace Cloud Reservoirs</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-enhancing-video-top-10-text-techniques/"><u>[Updated] Enhancing Video  Top 10 Text Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-mundane-to-memorable-transform-your-social-media-identity-with-these-tips/"><u>[Updated] From Mundane to Memorable  Transform Your Social Media Identity with These Tips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-get-rid-of-youtube-shorts-a-comprehensible-guide-for-2024/"><u>[Updated] Get Rid of YouTube Shorts  A Comprehensible Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-highest-hits-facebooks-favorite-videos/"><u>[Updated] Highest Hits  Facebook's Favorite Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-today-changes-and-what-they-mean-for-you/"><u>2024 Approved  Facebook Today  Changes and What They Mean for You</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fb-video-download-top-5-tools-list/"><u>2024 Approved  FB Video Download  Top 5 Tools List</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fb-video-extractor-for-pc-mobile-and-mac/"><u>2024 Approved  FB Video Extractor for PC, Mobile & Mac</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-flickr-profile-picture-breakdown-area-codec-timeframe/"><u>2024 Approved  Flickr Profile Picture Breakdown  Area, Codec, Timeframe</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-grab-your-favorite-facebook-videos-today/"><u>2024 Approved  Grab Your Favorite Facebook Videos Today</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-to-achieve-complete-volume-on-fb-media-shows/"><u>2024 Approved  How to Achieve Complete Volume on Fb Media Shows</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-essential-guide-incorporating-music-and-effects-into-your-videos/"><u>2024 Approved Essential Guide Incorporating Music and Effects Into Your Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-content-horizontal-or-vertical-format-debate-for-2024/"><u>FB Content  Horizontal or Vertical Format Debate for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/halt-video-size-bloat-convert-fb-vids-to-720p-and-1080p-mp4-for-2024/"><u>Halt Video Size Bloat  Convert FB Vids to 720P & 1080P MP4 for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/hide-and-seek-with-fb-episodes-for-2024/"><u>Hide-and-Seek with FB Episodes for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-can-i-view-friends-shared-vids-and-photos-for-2024/"><u>How Can I View Friend’s Shared Vids and Photos for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-make-an-interactive-quiz-video-step-by-step-guide-for-2024/"><u>How To Make An Interactive Quiz Video? Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-stream-in-superior-quality-on-facebook-network-for-2024/"><u>How To Stream in Superior Quality on Facebook Network for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fabricating-temporal-anomaly-illusions/"><u>In 2024, Fabricating Temporal Anomaly Illusions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebook-faults-recovering-login-credentials-quickly/"><u>In 2024, Facebook Faults? Recovering Login Credentials Quickly</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-fb-video-aspect-ratio-varieties/"><u>In 2024, FB Video Aspect Ratio Varieties</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-types-of-facebook-video-aspect-ratios/"><u>In 2024, Types of Facebook Video Aspect Ratios</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/leading-apps-for-refined-dji-aerial-filmmaking/"><u>Leading Apps for Refined DJi Aerial Filmmaking</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-ultimate-voice-transformation-handbook-ranking-the-leading-11-speech-alteration-software-for-mobile-platforms-no-cost/"><u>New The Ultimate Voice Transformation Handbook Ranking the Leading 11 Speech Alteration Software for Mobile Platforms, No Cost</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/rapid-video-filming-techniques-for-tiktok-success-for-2024/"><u>Rapid Video Filming Techniques for TikTok Success for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-edit-mp3-basic-and-useful-tips/"><u>Updated In 2024, Edit MP3 Basic and Useful Tips</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-translate-video-speech-to-text-with-speech-to-text-converters/"><u>Updated In 2024, Translate Video Speech to Text with Speech-to-Text Converters</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/windows-11-wonders-merging-music-and-motion-pictures/"><u>Windows 11 Wonders  Merging Music & Motion Pictures</u></a></li>
+</ul></div>
