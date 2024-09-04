@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Elevate Engagement  4 Steps to Add FB Story Link\""
-date: 2024-08-29T23:20:34.664Z
-updated: 2024-08-30T23:20:34.664Z
+date: 2024-09-03T12:10:00.719Z
+updated: 2024-09-04T12:10:00.719Z
 tags:
   - ai video
   - ai facebook
@@ -68,17 +68,25 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 ![add WhatsApp status](https://images.wondershare.com/filmora/article-images/add-whatsapp-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 3:** On your status page, you can add the link you want people to see. Now, share the link. Once done, right below your My Status, you will see an option “Share to Facebook Story.” To cross-post your WhatsApp status with the link, please click on “Share to Facebook Story.”
 
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1424528" src="//a.impactradius-go.com/gen-ad-code/5597632/1424528/16446" width="728" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 **Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: How to Add YouTube Video Link on Facebook Story?
 
@@ -88,6 +96,12 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 ![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
@@ -95,11 +109,7 @@ You will be redirected to the Facebook app. There you will be asked if you want 
 ![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe id="iframe_1983471" src="//a.impactradius-go.com/gen-ad-code/5597632/1983471/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 And you will see the Story with YouTube video link at the top of your Story section.
 
@@ -114,7 +124,7 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 ![add swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-swipe-up-button-facebook-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe id="iframe_1983553" src="//a.impactradius-go.com/gen-ad-code/5597632/1983553/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 **Step 3:** On your story page, you see a link icon. Click on that, and you will be able to add the link you want to add to the story. Choose any of the buttons, and the link will now be ready.
 
@@ -124,12 +134,6 @@ Please note that the swipe option will be visible to your audience only after yo
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Social Media Video Maker and Editor
 
 * Merge your photos into a video with simple clicks.
@@ -147,15 +151,18 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 So, that’s it. These are some ways to **add a link to** your **Facebook story.** We hope this article has been helpful to you. Leverage this feature if you are a business page or an influencer and want more people to engage with your website and your brand.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

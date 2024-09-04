@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Revolutionizing Content with Square Shapes for Social Media Gains"
-date: 2024-08-29T23:16:17.414Z
-updated: 2024-08-30T23:16:17.414Z
+date: 2024-09-03T12:10:05.076Z
+updated: 2024-09-04T12:10:05.076Z
 tags:
   - ai video
   - ai facebook
@@ -59,9 +59,6 @@ Here are the facts and figures –
 
 If the video has links, a 25 characters’ link and 30 characters’ link description is what you need. If you post 360 videos, the aspect ratio tolerance needs to be 3%.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Part 3: How to create square videos by Filmora
 
 For creating square videos on Facebook, [Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) is the best choice so far. You get to edit photos and videos with a range of features on your Mac or Windows computers as well as on your mobile devices using this application.
@@ -78,34 +75,46 @@ First of all, you need to install the software on your Windows/Mac computer and 
 
 ![tupi](https://images.wondershare.com/filmora/article-images/import-video-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2: Crop the video**
 
 You got to right click on the selected video and then select ‘Crop & Zoom’ from the dropdown list.
 
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 **Step 3: Open the edit panel**
 
 Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bottom. The square video area can be adjusted from the preview window.
 
 ![edit panel](https://images.wondershare.com/filmora/article-images/crop-zoom-panel.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 4: Save changes and export**
 
 Here, you need to press ‘OK’ and export the file to your computer. Later you can upload it on your Facebook account easily.
 
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe id="iframe_1531882" src="//a.impactradius-go.com/gen-ad-code/5597632/1531882/16446" width="728" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: How to create square videos by Adobe Premiere
 
@@ -119,9 +128,6 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
@@ -133,7 +139,10 @@ Click Sequence in the top, and then select Sequence Settings. First to seclect A
 Export your video once the changes are satisfactory and enjoy!
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Bottom Line
 
@@ -145,6 +154,12 @@ From the above article, we are sure that square videos on Facebook are significa
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Guide to Crafting Compelling Squares for Facebook\""
-date: 2024-08-29T23:15:14.671Z
-updated: 2024-08-30T23:15:14.671Z
+date: 2024-09-03T12:10:06.132Z
+updated: 2024-09-04T12:10:06.132Z
 tags:
   - ai video
   - ai facebook
@@ -59,6 +59,12 @@ Here are the facts and figures –
 
 If the video has links, a 25 characters’ link and 30 characters’ link description is what you need. If you post 360 videos, the aspect ratio tolerance needs to be 3%.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to create square videos by Filmora
 
 For creating square videos on Facebook, [Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) is the best choice so far. You get to edit photos and videos with a range of features on your Mac or Windows computers as well as on your mobile devices using this application.
@@ -69,6 +75,12 @@ The software can do whatever you wish in video and image editing, starting from 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 1: Import video**
 
 First of all, you need to install the software on your Windows/Mac computer and then launch it. Go to the timeline panel media files and select the file after tapping the thumbnail. It gets imported to the Filmora interface.
@@ -76,7 +88,7 @@ First of all, you need to install the software on your Windows/Mac computer and 
 ![tupi](https://images.wondershare.com/filmora/article-images/import-video-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1936838" src="//a.impactradius-go.com/gen-ad-code/5597632/1936838/18409" width="468" height="60" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 **Step 2: Crop the video**
 
@@ -85,7 +97,10 @@ You got to right click on the selected video and then select ‘Crop & Zoom’ f
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 3: Open the edit panel**
 
@@ -93,9 +108,6 @@ Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bo
 
 ![edit panel](https://images.wondershare.com/filmora/article-images/crop-zoom-panel.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 **Step 4: Save changes and export**
 
 Here, you need to press ‘OK’ and export the file to your computer. Later you can upload it on your Facebook account easily.
@@ -104,9 +116,6 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Part 4: How to create square videos by Adobe Premiere
 
 Another way to edit square videos on Facebook is using [Adobe Premier Pro](https://www.adobe.com/products/premiere.html). Though, it is a paid application the videos are quite impressive. It allows you flexibility for editing photos and videos with a wide range of features.
@@ -129,9 +138,6 @@ Click Sequence in the top, and then select Sequence Settings. First to seclect A
 
 Export your video once the changes are satisfactory and enjoy!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Bottom Line
 
 From the above article, we are sure that square videos on Facebook are significant for driving your popularity chart higher, when you create quality ones. And for making such amazing videos on Facebook, Filmora seems a crucial option for you. The amount of ease and kind of features it offers there is simply no match for it in the industry. At any point of time, you choose it as your most reliable video editing tool for Facebook and other social media platforms.
@@ -140,10 +146,16 @@ From the above article, we are sure that square videos on Facebook are significa
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1983573" src="//a.impactradius-go.com/gen-ad-code/5597632/1983573/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 

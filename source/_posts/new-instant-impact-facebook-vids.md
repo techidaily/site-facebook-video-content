@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Instant Impact  Facebook Vids\""
-date: 2024-08-29T23:15:46.718Z
-updated: 2024-08-30T23:15:46.718Z
+date: 2024-09-03T12:10:05.539Z
+updated: 2024-09-04T12:10:05.539Z
 tags:
   - ai video
   - ai facebook
@@ -35,9 +35,6 @@ The first step is very basic. All you got to do is open your Facebook App.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 2: Scroll Down
 
 Once your app is up and running, scroll down. After about 3 to 4 posts, you will see a template that saysAltAlt short videos with several videos present.
@@ -45,7 +42,13 @@ Once your app is up and running, scroll down. After about 3 to 4 posts, you will
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<iframe id="iframe_1498635" src="//a.impactradius-go.com/gen-ad-code/5597632/1498635/17326" width="400" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### Step 3: Tap on the Video
 
@@ -54,15 +57,15 @@ Once you see the video, tap on it. This should play a short video. Scroll down t
 ![Tap on Video](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Enable and Disable Facebook Short Videos?
 
 The Facebook short videos are a new feature, so we will tell you how to enable them if you want them. If it annoys you, we will add steps on how you can disable it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### Enabling Facebook Short Stories
 
 If you have tried the steps described above and still cannot see the short videos on your Facebook feed, we will help you see them.
@@ -73,6 +76,12 @@ Click on the Play Store and search Facebook.
 
 ![Launch Playstore](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2: Update Facebook**
 
 Since it is a new feature, it is possible that your app still has not been updated to the latest version.
@@ -83,9 +92,6 @@ The next step is to go to your settings and search for Facebook in the apps.
 
 ![Search for Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 4: Clear the Data**
 
 Tap on Facebook and view its space; tapAltAlt on clear data.
@@ -98,9 +104,6 @@ After deleting the data, give Facebook access to all the permissions.
 
 ![Giving Permission access](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 **Step 5: Restart your Device**
 
 Once your Facebook data has been cleared, restart your device.
@@ -114,7 +117,10 @@ Once your device has restarted, launch Facebook and log in.
 This process lets Facebook reboot and brings the newer updates through, so sit back and enjoy the short videos on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Disabling Facebook Short Stories
 
@@ -126,21 +132,27 @@ The first step is simple. YouAltAlt open your Facebook app.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1424529" src="//a.impactradius-go.com/gen-ad-code/5597632/1424529/16446" width="728" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 **Step 2: Scroll to short videos**
 
 Once your app has launched, scroll down to the short videos section.
 
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3: Tap on three dots**
 
 Right next to the create option, you will see three dots. Tap on them.
 
 ![Tap on three dots](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 4: Tap on Hide**
 
 Once you tap on the three dots, a pop-up will appear. This pops up will ask if you want to hide the current posts. Tap on it to hide the short stories.
@@ -148,7 +160,10 @@ Once you tap on the three dots, a pop-up will appear. This pops up will ask if y
 ![Tap on Hide](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The short video on Facebook is an integrated feature into the application’s user interface, making it impossible to disable it. You can, however, hide it from your newsfeed for the time that you are scrolling through your feed.
 
@@ -156,6 +171,9 @@ The short video on Facebook is an integrated feature into the application’s us
 
 Seeing several different videos may make you want to make your own as well. Perhaps a content creator might give you the motivation to become one yourself. To take the first steps towards this, we will help you create your own short videos in 2 ways.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1983584" src="//a.impactradius-go.com/gen-ad-code/5597632/1983584/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Short Videos Using Facebook
 
 You can use the in-built feature in Facebook to actively make the short video in real-time. We will guide you step by step on how to do that.
@@ -166,6 +184,12 @@ Launch your Facebook app by tapping on it.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2: Scroll Down to Short Videos**
 
 After the app launches, scroll down to short videos.
@@ -177,7 +201,7 @@ On the top right-hand corner, you will see a small camera icon with create writt
 ![Tap on create](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe id="iframe_1983552" src="//a.impactradius-go.com/gen-ad-code/5597632/1983552/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 **Step 4: Record a Video**
 
@@ -185,13 +209,6 @@ You can record a 45-second video and add music by tapping the music icon on the 
 
 ![Figure 6 Tap on the record button](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 **Step 5: Edit the Video**
 
 Once you have recorded the video, you can add music later onAltAlt. You can add any text you want to the video as well.
@@ -204,15 +221,18 @@ Once you have successfully edited the video to your liking, tap on next.
 
 ![Click on next](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-16.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 7: Post the Video**
 
 Once you have added the description that you want to, you can post the video. You have now successfully uploaded your very own short video.
 
 ![Post the Video](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-17.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Short Video using Wondershare Filmora
 
 The other way is to create your videos using an editing tool and upload them to your short videos on Facebook. The best editing tool for this job is Filmora. It has both a version that you can use on your mobile and your laptops or PC set-ups.
@@ -241,12 +261,18 @@ Right above the timeline, you can see several options that you can use to edit t
 
 ![Editing bar](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-20.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1977006" src="//a.impactradius-go.com/gen-ad-code/5597632/1977006/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 **Step 5: Export the Edited Footage**\>
 
 Right at the very corner of the editing bar, there is an export option. You click on it, which takes you to a new pop-up. In that pop-up, select the video format, make sure it is compatible with Facebook.
 
 ![Export File](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-21.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1982508" src="//a.impactradius-go.com/gen-ad-code/5597632/1982508/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 **Step 6: Send it to your Phone**\>
 
 Since short videos on Facebook are present more on cellular devices, send the exported file to your mobile.
@@ -261,9 +287,6 @@ At the bottom left corner, you will see the gallery’s icon quite prominent. Ta
 
 ![Selecting Gallery](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-22.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Step 9: Upload the Video**\>
 
 If you are wondering how to upload the Facebook short video you made, do not worry. All you have to do is access the file you made from the gallery, and it will be uploaded.
@@ -290,9 +313,6 @@ The more viewers and followers a user has the chances of their net earnings bein
 
 You can also choose a particular faction of the audience and make audience-specific content. You could make music-related content for music lovers, poetry-related content for poetry lovers, and so on.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Reels, Snapchat discover, and short videos on Facebook are becoming the next big thing. The 30 – 45 second videos are leaving a huge impact on both the suppliers and consumers. Facebook generates revenue by monetizing these short videos, and the content creators get in touch with the world.

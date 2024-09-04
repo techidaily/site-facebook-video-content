@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Marketer’s Manual for Recognizing Fabricated Supporters"
-date: 2024-08-25T04:20:02.710Z
-updated: 2024-08-26T04:20:02.710Z
+date: 2024-09-03T12:10:07.256Z
+updated: 2024-09-04T12:10:07.256Z
 tags:
   - ai video
   - ai facebook
@@ -45,7 +45,7 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe id="iframe_1983549" src="//a.impactradius-go.com/gen-ad-code/5597632/1983549/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### Step 1: Inspect comment
 
@@ -54,10 +54,10 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Step 2: Calculate Engagement rate
 
@@ -65,20 +65,32 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### Step 5: Use third party tools
 
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
@@ -86,7 +98,10 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Navigate the Clouds and Crowd  FB Livestreams via DJI\""
-date: 2024-07-24T00:40:20.378Z
-updated: 2024-07-25T00:40:20.378Z
+date: 2024-09-03T12:08:43.568Z
+updated: 2024-09-04T12:08:43.568Z
 tags:
   - ai video
   - ai facebook
@@ -33,9 +33,6 @@ thumbnail: https://thmb.techidaily.com/64cbdaa1aef5615ff39347b9db4c0280ec8c3ce52
 
 **Step 1:** First of all you need to open DJI Go application;[Download iOS app here](https://itunes.apple.com/cn/app/dji-pilot/id943780750?mt=8 ) users will soon find a 3 dot button on right top corner of their screen.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![DJI go ](https://images.wondershare.com/filmora/article-images/dji-go.jpg)
 
 **Step 2:** A New window will appear where you need to select the live broadcast platform.
@@ -44,23 +41,14 @@ thumbnail: https://thmb.techidaily.com/64cbdaa1aef5615ff39347b9db4c0280ec8c3ce52
 
 **Step 3:** From the available options, select facebook as your destination.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![facebook platform ](https://images.wondershare.com/filmora/article-images/facebook-platform.jpg)
 
 **Step 4:** Now your application will ask you to login with the facebook account. Enter your id and password in the specified field and hit log in option.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![facebook account drone ](https://images.wondershare.com/filmora/article-images/facebook-account-drone.jpg)
 
 **Step 5:** You need to follow all suggested steps on screen just to authorize your DJI Go App to get connected with your provided facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ DJI Go app](https://images.wondershare.com/filmora/article-images/dji-go-app.jpg)
 
 **Step 6:** As soon as these settings get finished, now your device will take you back to the DJI Go Application. Here you will find option to go live; hit this option and it will help you to live stream your content within few seconds.
@@ -75,9 +63,6 @@ thumbnail: https://thmb.techidaily.com/64cbdaa1aef5615ff39347b9db4c0280ec8c3ce52
 
 **Step 9:** As soon as your video becomes live, you will be able to find all the details about viewers, audio level and live time. All these details are indicated on the top left corner of screen.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ left corner.](https://images.wondershare.com/filmora/article-images/left-corner.jpg)
 
  Note that it captures audio from your smartphone instead of picking any audio information from drone. In case if you want to disable this audio content then hit the blue icon that is available on top left corner of your screen.
@@ -86,100 +71,6 @@ thumbnail: https://thmb.techidaily.com/64cbdaa1aef5615ff39347b9db4c0280ec8c3ce52
 
  It is also possible to disable comments and audio and you can easily make choices to end your live video at any moment. You will be able to get detailed summery of your post and if you close the application then facebook will automatically save content so that it can be viewed later.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
-![disable audio ](https://images.wondershare.com/filmora/article-images/disable-audio.jpg)
-
-![save your video ](https://images.wondershare.com/filmora/article-images/save-your-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
-## About DJI Drone Phantom-4
-
- Phantom 4 is a highly advanced and latest design in the drone series that can help you to control flights with ease. Its lightweight construction and compact size make it first choice of professionals. [DJI Phantom 4](https://www.dji.com/phantom-4 ) can record videos with 720 p HD view and it is able to stay in air for about 28 minutes. You will definitely love to explore its intelligent navigation system and speed.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
- With increasing craze for Drones, market is now overloaded with so many latest designs and professionals as well as beginners want to share their flight experience on facebook. So here is the great news for you! The live streaming facility is available for DJI Drone users now. It is possible to share your content from drone memory to facebook directly with the help of iOS and Android devices. DJI has recently launched its DJI Go application that can be used with wide series of drones in order to share content on social media platforms like YouTube, Periscope and Facebook etc.
-
-## Steps to Live Stream to facebook from DJI Drone
-
- If you want to share your content online from your drone memory then follow these steps:
-
-**Step 1:** First of all you need to open DJI Go application;[Download iOS app here](https://itunes.apple.com/cn/app/dji-pilot/id943780750?mt=8 ) users will soon find a 3 dot button on right top corner of their screen.
-
-![DJI go ](https://images.wondershare.com/filmora/article-images/dji-go.jpg)
-
-**Step 2:** A New window will appear where you need to select the live broadcast platform.
-
-![broadcast platform ](https://images.wondershare.com/filmora/article-images/broadcast-platform.jpg)
-
-**Step 3:** From the available options, select facebook as your destination.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
-![facebook platform ](https://images.wondershare.com/filmora/article-images/facebook-platform.jpg)
-
-**Step 4:** Now your application will ask you to login with the facebook account. Enter your id and password in the specified field and hit log in option.
-
-![facebook account drone ](https://images.wondershare.com/filmora/article-images/facebook-account-drone.jpg)
-
-**Step 5:** You need to follow all suggested steps on screen just to authorize your DJI Go App to get connected with your provided facebook account.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
-![ DJI Go app](https://images.wondershare.com/filmora/article-images/dji-go-app.jpg)
-
-**Step 6:** As soon as these settings get finished, now your device will take you back to the DJI Go Application. Here you will find option to go live; hit this option and it will help you to live stream your content within few seconds.
-
-**Step 7:** Next window will ask you for little description about your video; fill that content with impressive words and then select your audience from available option below. Finally click on the Go Live option.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![click go live ](https://images.wondershare.com/filmora/article-images/click-go-live.jpg)
-
-**Step 8:** Application will starts a countdown timer from 3.
-
-![start stream ](https://images.wondershare.com/filmora/article-images/start-stream.jpg)
-
-**Step 9:** As soon as your video becomes live, you will be able to find all the details about viewers, audio level and live time. All these details are indicated on the top left corner of screen.
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![ left corner.](https://images.wondershare.com/filmora/article-images/left-corner.jpg)
-
- Note that it captures audio from your smartphone instead of picking any audio information from drone. In case if you want to disable this audio content then hit the blue icon that is available on top left corner of your screen.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
-![ the top left](https://images.wondershare.com/filmora/article-images/the-top-left.jpg)
-
- It is also possible to disable comments and audio and you can easily make choices to end your live video at any moment. You will be able to get detailed summery of your post and if you close the application then facebook will automatically save content so that it can be viewed later.
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![disable audio ](https://images.wondershare.com/filmora/article-images/disable-audio.jpg)
 
 ![save your video ](https://images.wondershare.com/filmora/article-images/save-your-video.jpg)
@@ -208,11 +99,6 @@ Follow @Richard Bennett
 
 **Step 1:** First of all you need to open DJI Go application;[Download iOS app here](https://itunes.apple.com/cn/app/dji-pilot/id943780750?mt=8 ) users will soon find a 3 dot button on right top corner of their screen.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![DJI go ](https://images.wondershare.com/filmora/article-images/dji-go.jpg)
 
 **Step 2:** A New window will appear where you need to select the live broadcast platform.
@@ -221,9 +107,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 **Step 3:** From the available options, select facebook as your destination.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook platform ](https://images.wondershare.com/filmora/article-images/facebook-platform.jpg)
 
 **Step 4:** Now your application will ask you to login with the facebook account. Enter your id and password in the specified field and hit log in option.
@@ -232,18 +115,18 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 **Step 5:** You need to follow all suggested steps on screen just to authorize your DJI Go App to get connected with your provided facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ DJI Go app](https://images.wondershare.com/filmora/article-images/dji-go-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 6:** As soon as these settings get finished, now your device will take you back to the DJI Go Application. Here you will find option to go live; hit this option and it will help you to live stream your content within few seconds.
 
 **Step 7:** Next window will ask you for little description about your video; fill that content with impressive words and then select your audience from available option below. Finally click on the Go Live option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![click go live ](https://images.wondershare.com/filmora/article-images/click-go-live.jpg)
 
 **Step 8:** Application will starts a countdown timer from 3.
@@ -256,17 +139,23 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Note that it captures audio from your smartphone instead of picking any audio information from drone. In case if you want to disable this audio content then hit the blue icon that is available on top left corner of your screen.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ the top left](https://images.wondershare.com/filmora/article-images/the-top-left.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  It is also possible to disable comments and audio and you can easily make choices to end your live video at any moment. You will be able to get detailed summery of your post and if you close the application then facebook will automatically save content so that it can be viewed later.
 
 ![disable audio ](https://images.wondershare.com/filmora/article-images/disable-audio.jpg)
 
 ![save your video ](https://images.wondershare.com/filmora/article-images/save-your-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1982456" src="//a.impactradius-go.com/gen-ad-code/5597632/1982456/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## About DJI Drone Phantom-4
 
  Phantom 4 is a highly advanced and latest design in the drone series that can help you to control flights with ease. Its lightweight construction and compact size make it first choice of professionals. [DJI Phantom 4](https://www.dji.com/phantom-4 ) can record videos with 720 p HD view and it is able to stay in air for about 28 minutes. You will definitely love to explore its intelligent navigation system and speed.
@@ -285,9 +174,6 @@ Follow @Richard Bennett
 
  With increasing craze for Drones, market is now overloaded with so many latest designs and professionals as well as beginners want to share their flight experience on facebook. So here is the great news for you! The live streaming facility is available for DJI Drone users now. It is possible to share your content from drone memory to facebook directly with the help of iOS and Android devices. DJI has recently launched its DJI Go application that can be used with wide series of drones in order to share content on social media platforms like YouTube, Periscope and Facebook etc.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Steps to Live Stream to facebook from DJI Drone
 
  If you want to share your content online from your drone memory then follow these steps:
@@ -298,25 +184,166 @@ Follow @Richard Bennett
 
 **Step 2:** A New window will appear where you need to select the live broadcast platform.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![broadcast platform ](https://images.wondershare.com/filmora/article-images/broadcast-platform.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3:** From the available options, select facebook as your destination.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![facebook platform ](https://images.wondershare.com/filmora/article-images/facebook-platform.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 4:** Now your application will ask you to login with the facebook account. Enter your id and password in the specified field and hit log in option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![facebook account drone ](https://images.wondershare.com/filmora/article-images/facebook-account-drone.jpg)
 
+**Step 5:** You need to follow all suggested steps on screen just to authorize your DJI Go App to get connected with your provided facebook account.
+
+![ DJI Go app](https://images.wondershare.com/filmora/article-images/dji-go-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 6:** As soon as these settings get finished, now your device will take you back to the DJI Go Application. Here you will find option to go live; hit this option and it will help you to live stream your content within few seconds.
+
+**Step 7:** Next window will ask you for little description about your video; fill that content with impressive words and then select your audience from available option below. Finally click on the Go Live option.
+
+![click go live ](https://images.wondershare.com/filmora/article-images/click-go-live.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 8:** Application will starts a countdown timer from 3.
+
+![start stream ](https://images.wondershare.com/filmora/article-images/start-stream.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 9:** As soon as your video becomes live, you will be able to find all the details about viewers, audio level and live time. All these details are indicated on the top left corner of screen.
+
+![ left corner.](https://images.wondershare.com/filmora/article-images/left-corner.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Note that it captures audio from your smartphone instead of picking any audio information from drone. In case if you want to disable this audio content then hit the blue icon that is available on top left corner of your screen.
+
+![ the top left](https://images.wondershare.com/filmora/article-images/the-top-left.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ It is also possible to disable comments and audio and you can easily make choices to end your live video at any moment. You will be able to get detailed summery of your post and if you close the application then facebook will automatically save content so that it can be viewed later.
+
+![disable audio ](https://images.wondershare.com/filmora/article-images/disable-audio.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![save your video ](https://images.wondershare.com/filmora/article-images/save-your-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## About DJI Drone Phantom-4
+
+ Phantom 4 is a highly advanced and latest design in the drone series that can help you to control flights with ease. Its lightweight construction and compact size make it first choice of professionals. [DJI Phantom 4](https://www.dji.com/phantom-4 ) can record videos with 720 p HD view and it is able to stay in air for about 28 minutes. You will definitely love to explore its intelligent navigation system and speed.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ With increasing craze for Drones, market is now overloaded with so many latest designs and professionals as well as beginners want to share their flight experience on facebook. So here is the great news for you! The live streaming facility is available for DJI Drone users now. It is possible to share your content from drone memory to facebook directly with the help of iOS and Android devices. DJI has recently launched its DJI Go application that can be used with wide series of drones in order to share content on social media platforms like YouTube, Periscope and Facebook etc.
+
+## Steps to Live Stream to facebook from DJI Drone
+
+ If you want to share your content online from your drone memory then follow these steps:
+
+**Step 1:** First of all you need to open DJI Go application;[Download iOS app here](https://itunes.apple.com/cn/app/dji-pilot/id943780750?mt=8 ) users will soon find a 3 dot button on right top corner of their screen.
+
+![DJI go ](https://images.wondershare.com/filmora/article-images/dji-go.jpg)
+
+**Step 2:** A New window will appear where you need to select the live broadcast platform.
+
+![broadcast platform ](https://images.wondershare.com/filmora/article-images/broadcast-platform.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 3:** From the available options, select facebook as your destination.
+
+![facebook platform ](https://images.wondershare.com/filmora/article-images/facebook-platform.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 4:** Now your application will ask you to login with the facebook account. Enter your id and password in the specified field and hit log in option.
+
+![facebook account drone ](https://images.wondershare.com/filmora/article-images/facebook-account-drone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 5:** You need to follow all suggested steps on screen just to authorize your DJI Go App to get connected with your provided facebook account.
 
 ![ DJI Go app](https://images.wondershare.com/filmora/article-images/dji-go-app.jpg)
@@ -329,11 +356,11 @@ Follow @Richard Bennett
 
 **Step 8:** Application will starts a countdown timer from 3.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![start stream ](https://images.wondershare.com/filmora/article-images/start-stream.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1702748" src="//a.impactradius-go.com/gen-ad-code/5597632/1702748/18544" width="240" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 **Step 9:** As soon as your video becomes live, you will be able to find all the details about viewers, audio level and live time. All these details are indicated on the top left corner of screen.
 
 ![ left corner.](https://images.wondershare.com/filmora/article-images/left-corner.jpg)
@@ -344,15 +371,8 @@ Follow @Richard Bennett
 
  It is also possible to disable comments and audio and you can easily make choices to end your live video at any moment. You will be able to get detailed summery of your post and if you close the application then facebook will automatically save content so that it can be viewed later.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![disable audio ](https://images.wondershare.com/filmora/article-images/disable-audio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![save your video ](https://images.wondershare.com/filmora/article-images/save-your-video.jpg)
 
 ## About DJI Drone Phantom-4
@@ -361,6 +381,12 @@ Follow @Richard Bennett
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -392,3 +418,53 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-direct-engagement-tweeting-successfully-to-fb/"><u>[New] 2024 Approved  Direct Engagement  Tweeting Successfully to FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elite-mp4-media-sender/"><u>[New] 2024 Approved  Elite MP4 Media Sender</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-join-the-live-revolution-fb-streaming-tips/"><u>[New] 2024 Approved  Join the Live Revolution  FB Streaming Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-perfecting-live-social-media-facebook-livestream-tutorials-for-tech/"><u>[New] 2024 Approved  Perfecting Live Social Media  Facebook Livestream Tutorials for Tech</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unlock-fb-success-with-professional-360-video-tips/"><u>[New] 2024 Approved  Unlock FB Success with Professional 360 Video Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-future-proof-your-facebook-strategy-with-2024s-top-trends/"><u>[New] Future-Proof Your Facebook Strategy with 2024'S Top Trends</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-hacks-to-dodge-digital-lessons-at-home/"><u>[New] Hacks to Dodge Digital Lessons at Home</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-iphoneandroid-users-add-soundtracks-to-their-profile/"><u>[New] How iPhone/Android Users Add Soundtracks to Their Profile</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-cutting-edge-video-sharing-from-facebook-to-whatsapp/"><u>[New] In 2024, Cutting-Edge Video Sharing From Facebook to WhatsApp</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-step-into-the-full-screen-era-for-fb-video-viewing/"><u>[New] In 2024, Step Into the Full-Screen Era for FB Video Viewing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-the-maze-of-facebook-story-networking/"><u>[New] Navigating the Maze of Facebook Story Networking</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-permanent-record-keeper-facebook-live-extraction-techniques-for-2024/"><u>[New] Permanent Record Keeper  Facebook Live Extraction Techniques for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pinnacle-payload-pilots-drone-superlatives/"><u>[New] Pinnacle Payload Pilots  Drone Superlatives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-your-easy-guide-to-revisiting-your-lately-watched-fb-videos-for-2024/"><u>[New] Your Easy Guide to Revisiting Your Lately Watched FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-a-step-by-step-approach-to-ending-live-sharing-on-laptops-and-tablets/"><u>[Updated] 2024 Approved  A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facesave-videorecorder-pro/"><u>[Updated] 2024 Approved  FaceSave Videorecorder Pro</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-skyrocket-your-e-commerce-with-these-15-facebook-analytics/"><u>[Updated] 2024 Approved  Skyrocket Your E-Commerce with These 15 Facebook Analytics</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-threefold-mastery-in-copy-for-social-media-campaigns-increasing-impact-with-every-word/"><u>[Updated] 2024 Approved  Threefold Mastery in Copy for Social Media Campaigns – Increasing Impact with Every Word</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-choreograph-comic-characters/"><u>[Updated] Choreograph Comic Characters</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-clarifying-misleading-self-representations-on-fb-for-2024/"><u>[Updated] Clarifying Misleading Self-Representations on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-demystifying-facebooks-use-of-blue-video-icons-for-communication-for-2024/"><u>[Updated] Demystifying Facebook's Use of Blue Video Icons for Communication for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-enhancing-your-facebook-cover-leading-websites-for-professionals-for-2024/"><u>[Updated] Enhancing Your Facebook Cover  Leading Websites for Professionals for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-exclusive-access-to-facebook-beats-for-2024/"><u>[Updated] Exclusive Access to Facebook Beats for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-watermarks-safeguard-your-digital-pictures/"><u>[Updated] How Watermarks Safeguard Your Digital Pictures</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-aural-tales-the-best-of-radio-plays/"><u>[Updated] In 2024, Aural Tales  The Best of Radio Plays</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-snapshare-success-the-videoviral-story/"><u>[Updated] In 2024, SnapShare Success  The #VideoViral Story</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tips-and-tricks-for-successful-social-media-video/"><u>[Updated] In 2024, Tips & Tricks for Successful Social Media Video</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlocking-fb-ad-success-no-cost-for-video-creation-tools/"><u>[Updated] In 2024, Unlocking FB Ad Success  No Cost for Video Creation Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-screenskip-videocapturer-kit/"><u>[Updated] ScreenSkip Videocapturer Kit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-streamlining-your-online-impact-with-correct-fb-video-dimensions-for-2024/"><u>[Updated] Streamlining Your Online Impact with Correct FB Video Dimensions for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-latest-hit-a-guide-to-todays-top-8-online-videos-for-2024/"><u>[Updated] The Latest Hit  A Guide to Today's Top 8 Online Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-uncovering-true-reflection-in-distorted-facebook-video/"><u>[Updated] Uncovering True Reflection in Distorted Facebook Video</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-sync-across-platforms-downloading-and-storing-gifs-from-facebook/"><u>2024 Approved  Sync Across Platforms  Downloading and Storing GIFs From Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-ultimate-tweet-to-facebook-manual/"><u>2024 Approved  The Ultimate Tweet-to-Facebook Manual</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/best-self-driving-vehicle-producers-top-picks/"><u>Best Self-Driving Vehicle Producers : Top Picks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elite-uploader-mp4-files-directly-for-fb-for-2024/"><u>Elite Uploader  MP4 Files Directly for FB for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-fix-the-error-message-launchdll-is-absent-or-lost/"><u>Guide: Fix the Error Message - 'Launch.dll' Is Absent or Lost</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-get-facebook-links-fetched-top-8-free-tools-for-23/"><u>In 2024, Get Facebook Links Fetched  Top 8 Free Tools for '23</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on OnePlus 12R? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-instant-darkness-pretty-simple/"><u>In 2024, Instant Darkness, Pretty Simple</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-stop-video-buffering-during-streaming/"><u>In 2024, Stop Video Buffering During Streaming</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/integrating-tiktok-content-with-facebook/"><u>Integrating TikTok Content with Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-common-video-downloadupload-pitfalls-on-fb-for-2024/"><u>Navigating Common Video Download/Upload Pitfalls on FB for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-premier-sound-storylines/"><u>Top Premier Sound Storylines</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unraveling-the-science-of-motion-without-contact/"><u>Unraveling the Science of Motion Without Contact</u></a></li>
+</ul></div>

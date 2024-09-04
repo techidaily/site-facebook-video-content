@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Cloaked Glance at Social Media Snapshits"
-date: 2024-08-25T04:16:50.572Z
-updated: 2024-08-26T04:16:50.572Z
+date: 2024-09-03T12:10:10.616Z
+updated: 2024-09-04T12:10:10.616Z
 tags:
   - ai video
   - ai facebook
@@ -72,7 +72,10 @@ When you turn on the airplane mode of your device, your phone will no longer be 
 ![View Facebok Story anonymously via offline ](https://images.wondershare.com/filmora/article-images/view-facebook-story-anonymously-via-offline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Once you are done, force close the Facebook application so that it doesn't run in the background when you disable the Airplane Mode. Because if you do that, your name can get registered. So, close the app completely. Please note that when the Airplane mode is on, some stories will not load. To watch them, you need to turn on and off the airplane mode again.
 
@@ -86,6 +89,12 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 3: Block Them
 
 This is another method to stop appearing as one of the viewers. This method will let you view the whole story; however, since it involves blocking the user, they will be removed from your friend list completely. So, try it if only you are fine with removing that person from your friends' list. Here's how to follow this method:
@@ -94,9 +103,6 @@ This is another method to stop appearing as one of the viewers. This method will
 
 **Step 2:** Once done, block the person. If you want, you can unblock them after 24 hours.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 4: Deactivate your Facebook Account to View Story Anonymously
 
 For the last resort, you can deactivate your account and reactivate it after a while so that your name doesn't appear on the viewer's list. Even though this is an extreme step to take, but it keeps you anonymous. So, here's how you can do this method:
@@ -110,19 +116,22 @@ For the last resort, you can deactivate your account and reactivate it after a w
 ![deactivate FB account to View Facebok Story anonymously](https://images.wondershare.com/filmora/article-images/deactivate-facebook-account.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Once 24 hours is over, you can log in to reactive your account.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How Do I See Someone's Story on Facebook?
 
 There are three easy ways to see someone's story on Facebook. One way is to use the web browser of your pc or Mac, the second is exploring Facebook stories on Facebook Messenger, and the third is by using the Facebook mobile app. We will discuss these three methods below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Method 1: View Facebook Stories through the Website Browser
 
@@ -130,6 +139,9 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 **Step 2:** Click on any of the stories to view them.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1374820" src="//a.impactradius-go.com/gen-ad-code/5597632/1374820/15852" width="250" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Method 2: View Facebook Story Through Facebook Messenger
 
 **Step 1:** Open Facebook Messenger on your iPhone or Android device. And on top of the messages, you will see the list of profiles that are currently active, and if any one of them has uploaded a story, their profile will have a blue circle.
@@ -146,13 +158,6 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: How to Check Facebook Story Views?
 
 Facebook allows you to check who viewed your stories. This is known as **Facebook story viewers.** This option will be available on your story. Here's how to check Facebook story viewers.
@@ -163,8 +168,17 @@ Facebook allows you to check who viewed your stories. This is known as **Faceboo
 
 ![View who have seen my Facebok Story  ](https://images.wondershare.com/filmora/article-images/check-who-viewed-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1983584" src="//a.impactradius-go.com/gen-ad-code/5597632/1983584/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## Part 4: FAQs About Viewing Facebook Story
 
 1. **Can I see who viewed my Facebook story if we aren't friends?**
@@ -194,7 +208,7 @@ Yes, just like you can see who viewed your Facebook story, others can also check
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe id="iframe_1977004" src="//a.impactradius-go.com/gen-ad-code/5597632/1977004/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 Shanoon Cox
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Add Link to Facebook Story for Free?"
-date: 2024-08-29T23:19:50.673Z
-updated: 2024-08-30T23:19:50.673Z
+date: 2024-09-03T12:10:01.417Z
+updated: 2024-09-04T12:10:01.417Z
 tags:
   - ai video
   - ai facebook
@@ -57,9 +57,6 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 And that’s it; your story will be added to Facebook Story.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: How to Add Link to Facebook Story Using WhatsApp?
 
 Facebook acquired WhatsApp in February 2014, and since both the apps are connected with each other, you can easily cross-post your WhatsApp status on the Facebook Story page. WhatsApp status feature is the same as Facebook story. It stays for 24 hours.
@@ -70,18 +67,18 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 
 ![add WhatsApp status](https://images.wondershare.com/filmora/article-images/add-whatsapp-status.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 **Step 3:** On your status page, you can add the link you want people to see. Now, share the link. Once done, right below your My Status, you will see an option “Share to Facebook Story.” To cross-post your WhatsApp status with the link, please click on “Share to Facebook Story.”
 
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How to Add YouTube Video Link on Facebook Story?
 
 If you have found an interesting video on YouTube or want to promote your YouTube video on Facebook, then adding the YouTube link to your Facebook story will benefit you. In fact, adding a YouTube link to your Facebook story can be done directly from YouTube. Here are the simple and easy steps to follow:
@@ -90,20 +87,20 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 ![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
 
 ![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 And you will see the Story with YouTube video link at the top of your Story section.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## Part 5: How to Add A Swipe Up Link on Facebook Story?
 
 Facebook stories offer another feature, which is known as the Swipe Up Link. On some pages, you might have seen that their stories ask you to Swipe Up, and once you do that, you get redirected to a website. This fantastic feature is available for Facebook pages with a good number of followers and many likes. Else, the swipe-up link feature is available for people with the Blue tick, which means celebrities, brands, and famous people. Here’s how to add a swipe-up link to your Facebook story.
@@ -115,18 +112,36 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 ![add swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-swipe-up-button-facebook-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 3:** On your story page, you see a link icon. Click on that, and you will be able to add the link you want to add to the story. Choose any of the buttons, and the link will now be ready.
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Please note that the swipe option will be visible to your audience only after you have added the link.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Social Media Video Maker and Editor
 
@@ -151,6 +166,12 @@ So, that’s it. These are some ways to **add a link to** your **Facebook story.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

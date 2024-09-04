@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 11 Expert Tactics for Dominating FB Video Marketing"
-date: 2024-08-29T23:17:13.234Z
-updated: 2024-08-30T23:17:13.234Z
+date: 2024-09-03T12:10:04.098Z
+updated: 2024-09-04T12:10:04.098Z
 tags:
   - ai video
   - ai facebook
@@ -33,9 +33,6 @@ Facebook video marketing seems great where you can live interact with your consu
 
 ![facebook live video](https://images.wondershare.com/filmora/article-images/facebook-live-iphone.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Upload Videos Directly to Facebook rather than YouTube
 
 Though videos on YouTube usually get views but uploading directly on to Facebook would bring more viewership for your social media video.
@@ -50,9 +47,6 @@ The video view counter helps you estimate the way your viral video fared. You ca
 
 ![upload video to facebook](https://images.wondershare.com/filmora/article-images/upload-video-to-facebook.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Keep your Facebook video short
 
 Like text content, your Facebook Marketing video should also be crisp and short. Video with a fresh and fascinatingly entertaining content becomes a potential viral video. Creating them in widely used language (such as English) would garner more popularity sans the cultural or geographical background of a person.
@@ -61,6 +55,9 @@ Shorter videos between 2 minutes effectively perform in comparison to longer ver
 
 ![facebook video short](https://images.wondershare.com/filmora/article-images/facebook-video-length.JPG)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1702748" src="//a.impactradius-go.com/gen-ad-code/5597632/1702748/18544" width="240" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### 4\. Shoot Facebook video vertically
 
 A majority of Facebook users watch videos on their mobile phone or tablets. So shooting your social media video in vertical mode is pleasing to the eyes, while viewing it on a mobile. Portrait (vertically-aligned) videos have a better hit rate compared to horizontal shots. Keeping that in mind, make sure to create your new videos in a mobile friendly manner.
@@ -68,7 +65,16 @@ A majority of Facebook users watch videos on their mobile phone or tablets. So s
 ![facebook vidoe vertical](https://images.wondershare.com/filmora/article-images/facebook-video-vertical.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 5\. Feature a Video on Facebook Page
 
@@ -81,7 +87,7 @@ You can use it to promote an event, launch a product or service, or a teaser abo
 ![feature video facebook](https://images.wondershare.com/filmora/article-images/feature-video-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1982462" src="//a.impactradius-go.com/gen-ad-code/5597632/1982462/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### 6\. Carefully choose thumbnail
 
@@ -92,7 +98,16 @@ When there is a weak internet connection, the videos on Facebook might not auto-
 ![facebook thumbnail](https://images.wondershare.com/filmora/article-images/facebook-thumbnail.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 7\. Leverage Facebook 360 Videos
 
@@ -104,9 +119,6 @@ These videos can be rotated, paned, and can be viewed from any angle they desire
 
 ![facebook 360 video](https://images.wondershare.com/filmora/article-images/facebook-360-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### 8\. Mobile friendly
 
 Being the perfect partner to kill time, while waiting for someone, travelling alone, or in the queue in a supermarket, mobile phones certainly have more attention than other gadgets.
@@ -121,7 +133,10 @@ So, Facebook marketing videos need to cash on this aspect. These videos need to 
 ![mobile friendly](https://images.wondershare.com/filmora/article-images/mobile-users.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 9\. Posting time is important
 
@@ -133,9 +148,6 @@ There are tools to study the statistics and analyze the most favorable time for 
 
 ![facebook posting time](https://images.wondershare.com/filmora/article-images/facebook-posting-time.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10\. Add call to action
 
 Adding a call to action in your video is vital. Without a call to action, viewers might watch and forget a video and the message you are conveying will be lost.
@@ -145,7 +157,16 @@ You need to build the base, ask them to like, share, or comment on your Facebook
 ![facebook call to action](https://images.wondershare.com/filmora/article-images/facebook-call-to-action.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **11\. Choose a suitable video creator**
 
@@ -156,7 +177,10 @@ To know more about Filmora Video Editor, visit its page: <https://filmora.wonder
 ![filmora](https://images.wondershare.com/filmora/guide/panel-layout-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 

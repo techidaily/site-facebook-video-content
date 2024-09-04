@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Efficiently Explore Every Entry  Facebook Profile Hunt 101 for 2024\""
-date: 2024-08-29T23:20:51.695Z
-updated: 2024-08-30T23:20:51.695Z
+date: 2024-09-03T12:10:00.396Z
+updated: 2024-09-04T12:10:00.396Z
 tags:
   - ai video
   - ai facebook
@@ -47,7 +47,10 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Step 3: Friends Finder Page
 
@@ -56,19 +59,31 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<iframe id="iframe_1304647" src="//a.impactradius-go.com/gen-ad-code/5597632/1304647/15852" width="300" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1743243" src="//a.impactradius-go.com/gen-ad-code/5597632/1743243/19272" width="250" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### Step 5: Check the results
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to search people using Search Is Back
 
 ### 1\. Open and Select
@@ -78,7 +93,7 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1975648" src="//a.impactradius-go.com/gen-ad-code/5597632/1975648/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### 2\. Input your Interest
 
@@ -91,15 +106,15 @@ Once you have filled in all the filters in the page, you can hit Find People but
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In the fast-paced world, where people are constantly running, it has become very difficult to keep in touch with anyone. Facebook not only helps you to connect with people but also find many old connections that lost at some point of time due to the hectic schedule that people are into or shift of place or for any other reasons. Searching for people is not easy on Facebook but if you know the right ways to search, then you surely can find the right person.
@@ -112,11 +127,6 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox

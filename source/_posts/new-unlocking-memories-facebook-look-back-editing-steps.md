@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Memories  Facebook Look Back Editing Steps\""
-date: 2024-08-29T23:15:49.543Z
-updated: 2024-08-30T23:15:49.543Z
+date: 2024-09-03T12:10:05.488Z
+updated: 2024-09-04T12:10:05.488Z
 tags:
   - ai video
   - ai facebook
@@ -151,5 +151,5 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1975555" src="//a.impactradius-go.com/gen-ad-code/5597632/1975555/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->

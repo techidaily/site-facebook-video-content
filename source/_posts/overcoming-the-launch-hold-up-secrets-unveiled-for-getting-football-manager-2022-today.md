@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Launch Hold-Up: Secrets Unveiled For Getting Football Manager 2022 Today"
-date: 2024-08-29T23:17:54.820Z
-updated: 2024-08-30T23:17:54.820Z
+date: 2024-09-03T12:10:03.422Z
+updated: 2024-09-04T12:10:03.422Z
 tags:
   - win11
   - win10
@@ -36,9 +36,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
  Make sure you’re playing Football Manager 2022 in a 64-bit processor and operating system. If you’re on a 32-bit system, it’s recommended to upgrade your system and perhaps your device.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### Fix 2\. Add an exception to your antivirus
 
  Antivirus is known to interfere with Football Manager 2022 and most of your Steam games. To make sure you can run your game, make sure you have added Football Manager 2022 as an exception to your antivirus software.
@@ -51,9 +48,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
  Or you can uninstall your antivirus temporarily (note that disabling it won’t work) and be very careful about the websites you’re visiting.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Fix 3\. Update your graphics driver
 
  If you are using the wrong or outdated graphics driver, it can cause launch issues especially in new game titles such as Football Manager 2022\. So, it is recommended to keep your graphics driver up to date. The updated driver should solve the crashing at launch issues and it can also help to boost up the overall game’s performance.
@@ -67,7 +61,10 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/driver-easy-5.7.1.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.(This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![update all drivers](https://images.drivereasy.com/wp-content/uploads/2021/10/update-all.jpg)
 
@@ -76,9 +73,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
 After updating your drivers, restart your PC and test the gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fix 4\. Verify the integrity of game files
 
  Football Manager 2022 not launching can be caused by corrupt or missing game files. In that case, you can perform an integrity check to solve this issue. Here’s how:
@@ -89,14 +83,16 @@ After updating your drivers, restart your PC and test the gameplay.
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe id="iframe_1977028" src="//a.impactradius-go.com/gen-ad-code/5597632/1977028/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 Once complete, launch the game to check if your game is working again.
 
@@ -110,9 +106,6 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-8-1200x758.png)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
 
 ### Fix 6\. Run the game executable file as admin
@@ -123,17 +116,13 @@ Once complete, launch the game to check if your game is working again.
 
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1743243" src="//a.impactradius-go.com/gen-ad-code/5597632/1743243/19272" width="250" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
  2) Select **Local Files** and then**Browse local files** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-9.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
  3) Locate the game’s executable and run the game as an administrator.
 
 ### Fix 7\. Open the game in windowed mode
@@ -146,8 +135,17 @@ No advertising on the website.
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1630055" src="//a.impactradius-go.com/gen-ad-code/5597632/1630055/18460" width="240" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Fix 8\. Repair your system files
 
  If you get an error message such as “vcruntime140\_1.dll or MSVCP140.dll was not found” or ” xinput1\_4.dll is missing”, it means that there’s certain system file missing on your PC, thus causing your Football Manager 2022 to not launch. Here’s how to fix it:
@@ -174,12 +172,21 @@ No advertising on the website.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  3) You’ll see the summary of detected issues on your PC. Click **START REPAIR** and all the issues will be fixed automatically. (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Option 2 – Manually
 
@@ -194,7 +201,10 @@ No advertising on the website.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/cmd-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Click**Yes** when prompted for permission to make changes to your device.
 
@@ -206,6 +216,12 @@ sfc /scannow
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/scan-now.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  4) You may receive something like the following messages after the verification.
 
 * no errors

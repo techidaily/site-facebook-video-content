@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Leveraging Advanced Techniques in 360 Video on FB Live for 2024"
-date: 2024-08-29T23:20:01.491Z
-updated: 2024-08-30T23:20:01.491Z
+date: 2024-09-03T12:10:01.256Z
+updated: 2024-09-04T12:10:01.256Z
 tags:
   - ai video
   - ai facebook
@@ -33,6 +33,12 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specification for Live 360
 
  Those who are searching for the tech specs related to live 360 degree feature must go through these points:
@@ -45,7 +51,10 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Go Live 360?
 
@@ -56,7 +65,10 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Go Live 360 with Instagram 360?
 
@@ -82,9 +94,6 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 
  Step 10: Delete your video from timeline whenever you want.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## How to go Live 360 from Facebook Website Flow?
 
  Step 1: Simply visit fb.com/live/create from your device.
@@ -102,14 +111,17 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
  Step 7: Go live 360 on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How does Live 360 looks like?
 
  Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1983553" src="//a.impactradius-go.com/gen-ad-code/5597632/1983553/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ## Tips for Live 360
 
@@ -123,7 +135,7 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe id="iframe_1983471" src="//a.impactradius-go.com/gen-ad-code/5597632/1983471/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 Shanoon Cox
 
