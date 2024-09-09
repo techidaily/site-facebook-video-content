@@ -1,7 +1,7 @@
 ---
 title: "[New] Sharing Tweets with Facebook Friends for 2024"
-date: 2024-09-03T12:10:05.384Z
-updated: 2024-09-04T12:10:05.384Z
+date: 2024-09-07T23:46:07.155Z
+updated: 2024-09-08T23:46:07.155Z
 tags:
   - ai video
   - ai facebook
@@ -21,6 +21,12 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Liza Brown
 
  Mar 27, 2024• Proven solutions
@@ -39,28 +45,46 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Tools for managing your social media accounts
 
  Apart from Facebook and Twitter you might be using other social media platforms such as Instagram, LinkedIn, Pinterest and the likes. How about managing most of them together through a single application? There are various tools available in the market to fix this dilemma of yours, we are going to feature the top most programs that not only allow you to post Tweets to Facebook.
@@ -166,10 +190,10 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 * Enterprise - $1500/month/10 users/50 profiles
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Wrapping Up
 
@@ -177,12 +201,6 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.

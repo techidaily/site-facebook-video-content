@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Facebook Slideshow  How to Create a Slideshow on Facebook\""
-date: 2024-09-03T12:10:04.939Z
-updated: 2024-09-04T12:10:04.939Z
+date: 2024-09-07T23:46:06.699Z
+updated: 2024-09-08T23:46:06.699Z
 tags:
   - ai video
   - ai facebook
@@ -57,6 +57,12 @@ First of all, you need to open the Facebook application on iOS and Android phone
 
 ![start create facebook slideshow](https://images.wondershare.com/filmora/article-images/facebook-slideshow-update-status.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 2: Now choose one theme
 
 Now select photos that you wish to add to your slideshow, you can also add videos. It is best to know [how to choose high-quality photos to make a video slideshow on Facebook](https://www.pholody.com/blog/best-practices-to-make-high-quality-photo-slideshow). Note that the selected photos or videos will have a blue box around them in your gallery and you need to select at least 3 photos & videos. There are 13 unique and stunning themes that you can choose for your slideshow. The collection includes all popular flavors like a night out, jazzy, celebration, romantic, pets, and kids. Pick any of these themes and then start adding transitions, effects, or desired background music as per the emotions attached to your slideshow. As soon as you tap on the screen, it will show you a preview of your slideshow theme. Adjust audio settings from the top left-hand corner of your screen.
@@ -64,13 +70,16 @@ Now select photos that you wish to add to your slideshow, you can also add video
 ![facebook slideshow library](https://images.wondershare.com/filmora/article-images/facebook-slideshow-library.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1983472" src="//a.impactradius-go.com/gen-ad-code/5597632/1983472/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Step 3: Edit Facebook slideshow
 
@@ -79,7 +88,16 @@ The Edit option allows you to delete an image and adjust the order of the photos
 ![how to create a slideshow on facebook](https://images.wondershare.com/filmora/filmorapro/edit-facebook-slideshow.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1834906" src="//a.impactradius-go.com/gen-ad-code/5597632/1834906/16836" width="728" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Step 4: Publish Facebook slideshow
 
@@ -88,10 +106,16 @@ Once you are satisfied with this newly created slideshow, then move to the right
 **Note:** Those who are not able to find the Slideshow preview option on their timeline can simply use the Try it features from any existing slideshow type post on their timeline.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3: Tips for Optimizing Your Slideshow Video for Facebook
 
@@ -103,6 +127,12 @@ Everyone can create a slideshow but not everyone can create appealing slideshows
 
 ![tips for making slideshow on facebook](https://images.wondershare.com/filmora/filmorapro/slideshow-example.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Conclusion
 
 Now, you must know how to make a Facebook slideshow. If you want to make a slideshow in an easier way with powerful features. try [slideshow maker Filmora](https://tools.techidaily.com/wondershare/filmora/download/). With the well-designed filters and effects of the Wondershare Filmora platform, you can immediately design eye-catching slideshows. There are so many stunning text collections, motion elements, overlays, and special effects. Some of the most lovable feature offerings are Holiday Set, Education Set, Travel Set, Food Set, Fitness Set, Fashion Set, Beauty Set, and many more in [Filmstock (effects store)](https://tools.techidaily.com/wondershare/filmora/download/). This collection is capable enough to decorate all important moments of your life in the form of slide shows. Download it now to have a try!
@@ -110,21 +140,15 @@ Now, you must know how to make a Facebook slideshow. If you want to make a slide
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **You may also like:** [Create a Facebook Photo Slideshow with Music](https://tools.techidaily.com/wondershare/filmora/download/) with [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

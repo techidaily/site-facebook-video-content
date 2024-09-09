@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Procedures  Swapping Out Your Facebook Backdrop\""
-date: 2024-09-03T12:10:06.846Z
-updated: 2024-09-04T12:10:06.846Z
+date: 2024-09-07T23:46:08.585Z
+updated: 2024-09-08T23:46:08.585Z
 tags:
   - ai video
   - ai facebook
@@ -15,12 +15,30 @@ keywords: "Change Facebook Background,Social Media Image Switch,Facebook Cover U
 thumbnail: https://www.lifewire.com/thmb/IN5PEMOoSmptszMOiM7eKx4YTsg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/easeus-data-recovery-wizard-free-b92bc63ec5594068a7adc5581e7b1512.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Step-by-Step Procedures: Swapping Out Your Facebook Backdrop
 
 # How to Change Facebook Cover Photo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -36,24 +54,30 @@ The article below will help you to get detailed information about how Facebook C
 * [Part 3: How to Change Facebook Cover Photo?](#part3)
 * [Part 4: Edit Facebook Cover Photo/Video with Versatile Video Editor](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Facebook Cover Photo?
 
 Some of the most important attractions of a Facebook profile use to be profile photo and cover photo. The cover photo use to be of larger size and it appears above your profile photo. In order to create a special impact on viewers, always prefer to update unique cover images for your Facebook profile and in case if you are running a business page then you have to stay more careful.
 
 [Learn more about How to Make your Facebook Profile Video More Attractive](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Cover Photo Size You Need to Know
 
 You might be aware of the fact that Facebook Cover photos have definite sizes and users can upload changes according to that settings only. The general dimensions for a Facebook cover photo use to be 315 pixels for height and almost 851 pixels for width.
 
 If your cover photo is not having the same dimensions then you may have to crop it. To do this, simply move to an editor tool like Photoshop and then import your cover photo over there. Now choose the crop tool and update its resolution as 315 pixels for height and 851 pixels for width. Once you are done with the desired editing then get your image saved to your device. Prefer the .jpg file format for Facebook covers.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Change Facebook Cover Photo?
 
 Are you going to upload a Facebook cover photo the first time? Don’t worry! We are here to assist you. Facebook is a popular social media site and it definitely provides interactive setting options. All that you need to do is click the “Choose Cover Photo” option on your profile and then move to the folder containing pictures. Select “Choose” when you get your desired selection and soon it will be updated. In case if you already have updated some cover photos and now wish to change it with a new one, then the steps below can help you to complete the process:
@@ -63,10 +87,10 @@ Are you going to upload a Facebook cover photo the first time? Don’t worry! We
 ![facebook-update-cover-photo](https://images.wondershare.com/filmora/article-images/facebook-update-cover-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 2:** Now click the “Choose from My Photos” option to select a cover photo for your profile. This method can help you to select photos from your already uploaded Facebook photos.
 
@@ -87,13 +111,16 @@ As soon as you have changed your cover photo with any of these methods as discus
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1983553" src="//a.impactradius-go.com/gen-ad-code/5597632/1983553/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
@@ -101,20 +128,8 @@ It cannot be denied that a Facebook cover video will gain more attention from vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

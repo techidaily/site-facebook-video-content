@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Join the Social Gaming Movement  Xbox & FB Livestreams\""
-date: 2024-09-03T12:10:07.123Z
-updated: 2024-09-04T12:10:07.123Z
+date: 2024-09-07T23:46:08.844Z
+updated: 2024-09-08T23:46:08.844Z
 tags:
   - ai video
   - ai facebook
@@ -15,6 +15,12 @@ keywords: "GameStreamingXbox,LiveFBGaming,SocialGamePlay,XboxLivestream,GamingSo
 thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a9b9183de9916f4cf1facd61.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Join the Social Gaming Movement: Xbox & FB Livestreams
 
 # How to live stream xbox to facebook live
@@ -34,8 +40,20 @@ After living streaming videos to Facebook, you may want to [analyze the data of 
 [**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/)  
 [**8 Best Facebook Scheduler to Improve Efficiency**](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stream your Xbox to your computer
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 1: Streaming Xbox to Windows 10 computer
 
 The Windows 10 OS comes with special Xbox features which includes the capacity to stream live games from Xbox to your Windows 10 PC.
@@ -50,6 +68,18 @@ b. Now you have to enable your smartglass connection. This can be done only from
 
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
 a. Go to your pc and launch the Xbox application. The Xbox app is going to trace your device in case you are using the same email id. However if you are using another email for your windows pc then you have to go to the Xbox app and fill in the Xbox live credentials.
@@ -60,23 +90,20 @@ c. Your home network is going to be scanned by the Xbox software for any Xbox co
 
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1982461" src="//a.impactradius-go.com/gen-ad-code/5597632/1982461/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
 Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
@@ -89,12 +116,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
 **Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
@@ -104,19 +125,19 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

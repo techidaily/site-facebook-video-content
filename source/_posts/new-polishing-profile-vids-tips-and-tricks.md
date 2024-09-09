@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Polishing Profile Vids  Tips and Tricks\""
-date: 2024-09-03T12:10:08.211Z
-updated: 2024-09-04T12:10:08.211Z
+date: 2024-09-07T23:46:09.852Z
+updated: 2024-09-08T23:46:09.852Z
 tags:
   - ai video
   - ai facebook
@@ -21,12 +21,24 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
  Being the largest social media network on the globe, Facebook has come up as starting point of an individual’s introduction to the World Wide Web. Whenever a person searches for you on the internet the first thing s/he is going to see is your Facebook profile. Regardless of your privacy settings on Facebook, your profile picture along with the cover photo will be visible to all internet users. It goes without saying that your profile picture and the cover picture are of primary importance when it comes to your social media presence. Your profile picture has a great deal to say about you- about the person you are and about the mood you are in at any given time. These days the Facebook profile video option has given us the chance to create a stunning impression. However, not all of us knows how to create a superb impression of ourselves through Facebook profile video. In this article we are going to tell you how to come up with an impressive Facebook profile video with the help of the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Section 1: Making Facebook Profile Video
 
  Follow the steps given below to create your profile video on Facebook
@@ -47,6 +59,12 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
 ![filmora elements](https://images.wondershare.com/filmora/article-images/elements-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * First you need to hit the Elements tab in the tool bar and then choose the elements you want to use and drag them to the PIP track. For instance here I am selecting Element Emoji 8.
 
 ![filmora elements emoji](https://images.wondershare.com/filmora/article-images/elements-emoji.jpg)
@@ -63,6 +81,12 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
 ![emoji element preview](https://images.wondershare.com/filmora/article-images/emoji-preview.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Note: It needs to be noted here that you will be able to zoom in and zoom out the timeline so as to view all the clips in the timeline with clarity. In case the duration of the video is lengthy then you can alter the duration of the still photos or cut some of the clips from the video footage. In order to use other effects like overlays and filters you just need to depend on Filmora.
 
 #### 3\. Saving your video to the device
@@ -73,6 +97,12 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
  Note: Remember that the export isn’t going to transfer the videos to your mobile device directly. The video is going to be stored in the local hard disk.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Section 2: Uploading the Profile Video to Facebook
 
  Now that you have created a stunning profile video with the help of the Wondershare Filmora software, it’ time for you to upload it on Facebook. You can upload up to 7 seconds of video footage for your Facebook Profile Video. The profile video is going to appear in the place of your profile picture and everybody will be able to view it. Presently you are allowed to add only one profile video from your Apple or Android smartphone. Let us now find out how to upload the edited video to your Facebook page.
@@ -93,6 +123,12 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -162,9 +198,3 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

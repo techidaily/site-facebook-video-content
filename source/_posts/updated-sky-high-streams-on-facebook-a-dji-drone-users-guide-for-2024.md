@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Sky-High Streams on Facebook  A DJI Drone User's Guide for 2024\""
-date: 2024-09-03T12:10:01.647Z
-updated: 2024-09-04T12:10:01.647Z
+date: 2024-09-07T23:46:03.496Z
+updated: 2024-09-08T23:46:03.496Z
 tags:
   - ai video
   - ai facebook
@@ -15,6 +15,12 @@ keywords: "DJI Drone Guide,DJI Aerial Footage,DJI Drones for Media,DJI Drone Str
 thumbnail: https://thmb.techidaily.com/cb7e01d77e11396989975642eff6b3a0f5621896796311364cd34b031c122e69.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Sky-High Streams on Facebook: A DJI Drone User's Guide
 
 # How to live stream to facebook from DJI Drone?
@@ -35,6 +41,12 @@ thumbnail: https://thmb.techidaily.com/cb7e01d77e11396989975642eff6b3a0f56218967
 
 ![DJI go ](https://images.wondershare.com/filmora/article-images/dji-go.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2:** A New window will appear where you need to select the live broadcast platform.
 
 ![broadcast platform ](https://images.wondershare.com/filmora/article-images/broadcast-platform.jpg)
@@ -47,16 +59,34 @@ thumbnail: https://thmb.techidaily.com/cb7e01d77e11396989975642eff6b3a0f56218967
 
 ![facebook account drone ](https://images.wondershare.com/filmora/article-images/facebook-account-drone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 5:** You need to follow all suggested steps on screen just to authorize your DJI Go App to get connected with your provided facebook account.
 
 ![ DJI Go app](https://images.wondershare.com/filmora/article-images/dji-go-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 6:** As soon as these settings get finished, now your device will take you back to the DJI Go Application. Here you will find option to go live; hit this option and it will help you to live stream your content within few seconds.
 
 **Step 7:** Next window will ask you for little description about your video; fill that content with impressive words and then select your audience from available option below. Finally click on the Go Live option.
 
 ![click go live ](https://images.wondershare.com/filmora/article-images/click-go-live.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 8:** Application will starts a countdown timer from 3.
 
 ![start stream ](https://images.wondershare.com/filmora/article-images/start-stream.jpg)
@@ -65,10 +95,22 @@ thumbnail: https://thmb.techidaily.com/cb7e01d77e11396989975642eff6b3a0f56218967
 
 ![ left corner.](https://images.wondershare.com/filmora/article-images/left-corner.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Note that it captures audio from your smartphone instead of picking any audio information from drone. In case if you want to disable this audio content then hit the blue icon that is available on top left corner of your screen.
 
 ![ the top left](https://images.wondershare.com/filmora/article-images/the-top-left.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  It is also possible to disable comments and audio and you can easily make choices to end your live video at any moment. You will be able to get detailed summery of your post and if you close the application then facebook will automatically save content so that it can be viewed later.
 
 ![disable audio ](https://images.wondershare.com/filmora/article-images/disable-audio.jpg)
@@ -81,6 +123,12 @@ thumbnail: https://thmb.techidaily.com/cb7e01d77e11396989975642eff6b3a0f56218967
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -127,9 +175,3 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

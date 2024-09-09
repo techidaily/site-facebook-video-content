@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering 360 FB Live Broadcasts\""
-date: 2024-07-24T00:39:02.501Z
-updated: 2024-07-25T00:39:02.501Z
+date: 2024-09-07T23:36:45.588Z
+updated: 2024-09-08T23:36:45.588Z
 tags:
   - ai video
   - ai facebook
@@ -19,15 +19,18 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 
 # How to Live Stream 360 Videos on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Live 360?
 
  With some recent updates to Facebook platform so many new features have been added to it and one of the best out of this big list is ability to live stream 360 degree videos. If you have right equipment to capture 360 degree videos then you can definitely create wonders around. The ability to Live Stream on Facebook assists people to share their special moments of life immediately with friends. So are you ready to have the real fun? Let us start with the tricks to create live 360 videos but before that let us discuss about best compatible cameras to enjoy live 360.
@@ -36,8 +39,145 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
+## Specification for Live 360
+
+ Those who are searching for the tech specs related to live 360 degree feature must go through these points:
+
+* It offers maximum stream time of 4 hours while supporting 1080p resolution level at 2:1 aspect ratio.
+* This feature also extends its support to spatial audio.
+* In order to avail best streaming results ensure at least 4Mbps speed from your internet connection.
+* It is not possible to embed these 360 degree videos to any other site from Facebook.
+* Supported video frame rate is 30fps only.
+* It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Go Live 360?
+
+ You can use these two tricks to go live 360:
+
+1\. In case if you are going to use a camera having Facebook live integration feature then you can find all the guidelines on website of camera vender. Here we are going to consider Insta360 for exploring important details.
+
+2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
+
+## How to Go Live 360 with Instagram 360?
+
+ Step 1: First of all connect your Insta 360 camera and move to its home screen.
+
+ Step 2: Hit the yellow icon available on camera interface.
+
+ Step 3: Here you will find a live button; tap over it and further make selection for your streaming platform.
+
+ Step 4: As soon as you select Facebook as your live streaming environment on Insta360 interface, it will ask you to login with your Facebook account.
+
+ Step 5: Now make selection for your streaming profile, whether you want to update this post to a page, profile or group.
+
+ Note that streaming experience on all these platforms use to be the same but the only difference is that it is possible to edit page streams even after uploading them on network. Guide tool makes it possible.
+
+ Step 6: Adjust the privacy settings and choose your preferred audiences.
+
+ Step 7: It is time to add description for your live video and users can also adjust video streaming rate as per need.
+
+ Step 8: Now hit the broadcast button.
+
+ Step 9: Soon you will be able to collect so many reactions and comments from your viewers.
+
+ Step 10: Delete your video from timeline whenever you want.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to go Live 360 from Facebook Website Flow?
+
+ Step 1: Simply visit fb.com/live/create from your device.
+
+ Step 2: Choose “Create Live Stream” option.
+
+ Step 3: Make selection for Live 360 video.
+
+ Step 4: Choose Facebook as your post destination.
+
+ Step 5: Enter details about stream key and RTMP server URL.
+
+ Step 6: Finally hit stream button and have a preview of your video.
+
+ Step 7: Go live 360 on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How does Live 360 looks like?
+
+ Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Tips for Live 360
+
+* It is important to connect via strong internet connection.
+* Prefer to act as a narrator to engage your audience with 360 content.
+* Use some creative techniques like adding 2D videos, text or overlay graphics to make your live videos more interesting.
+* Manage a 20 to 30 feet distance between camera and objects being captured.
+* It is good to utilize Guide feature to assist your audience.
+* Users can edit spatial audios to Live 360 degree stream.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## What is Live 360?
+
+ With some recent updates to Facebook platform so many new features have been added to it and one of the best out of this big list is ability to live stream 360 degree videos. If you have right equipment to capture 360 degree videos then you can definitely create wonders around. The ability to Live Stream on Facebook assists people to share their special moments of life immediately with friends. So are you ready to have the real fun? Let us start with the tricks to create live 360 videos but before that let us discuss about best compatible cameras to enjoy live 360.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Compatible Cameras for Live 360
+
+ If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specification for Live 360
 
@@ -98,9 +238,6 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 
  Step 7: Go live 360 on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## How does Live 360 looks like?
 
  Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
@@ -126,15 +263,15 @@ Follow @Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## What is Live 360?
 
  With some recent updates to Facebook platform so many new features have been added to it and one of the best out of this big list is ability to live stream 360 degree videos. If you have right equipment to capture 360 degree videos then you can definitely create wonders around. The ability to Live Stream on Facebook assists people to share their special moments of life immediately with friends. So are you ready to have the real fun? Let us start with the tricks to create live 360 videos but before that let us discuss about best compatible cameras to enjoy live 360.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Compatible Cameras for Live 360
 
@@ -151,9 +288,6 @@ Follow @Shanoon Cox
 * Supported video frame rate is 30fps only.
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## How to Go Live 360?
 
  You can use these two tricks to go live 360:
@@ -162,6 +296,12 @@ Follow @Shanoon Cox
 
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Go Live 360 with Instagram 360?
 
  Step 1: First of all connect your Insta 360 camera and move to its home screen.
@@ -186,11 +326,6 @@ Follow @Shanoon Cox
 
  Step 10: Delete your video from timeline whenever you want.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## How to go Live 360 from Facebook Website Flow?
 
  Step 1: Simply visit fb.com/live/create from your device.
@@ -207,12 +342,27 @@ The powerful video editing program for your Windows PC</a>
 
  Step 7: Go live 360 on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How does Live 360 looks like?
 
  Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Tips for Live 360
 
@@ -235,14 +385,32 @@ Follow @Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Live 360?
 
  With some recent updates to Facebook platform so many new features have been added to it and one of the best out of this big list is ability to live stream 360 degree videos. If you have right equipment to capture 360 degree videos then you can definitely create wonders around. The ability to Live Stream on Facebook assists people to share their special moments of life immediately with friends. So are you ready to have the real fun? Let us start with the tricks to create live 360 videos but before that let us discuss about best compatible cameras to enjoy live 360.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Compatible Cameras for Live 360
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specification for Live 360
 
  Those who are searching for the tech specs related to live 360 degree feature must go through these points:
@@ -254,6 +422,18 @@ Follow @Shanoon Cox
 * Supported video frame rate is 30fps only.
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Go Live 360?
 
  You can use these two tricks to go live 360:
@@ -263,7 +443,10 @@ Follow @Shanoon Cox
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Go Live 360 with Instagram 360?
 
@@ -289,122 +472,6 @@ Follow @Shanoon Cox
 
  Step 10: Delete your video from timeline whenever you want.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
-## How to go Live 360 from Facebook Website Flow?
-
- Step 1: Simply visit fb.com/live/create from your device.
-
- Step 2: Choose “Create Live Stream” option.
-
- Step 3: Make selection for Live 360 video.
-
- Step 4: Choose Facebook as your post destination.
-
- Step 5: Enter details about stream key and RTMP server URL.
-
- Step 6: Finally hit stream button and have a preview of your video.
-
- Step 7: Go live 360 on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How does Live 360 looks like?
-
- Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
-
-## Tips for Live 360
-
-* It is important to connect via strong internet connection.
-* Prefer to act as a narrator to engage your audience with 360 content.
-* Use some creative techniques like adding 2D videos, text or overlay graphics to make your live videos more interesting.
-* Manage a 20 to 30 feet distance between camera and objects being captured.
-* It is good to utilize Guide feature to assist your audience.
-* Users can edit spatial audios to Live 360 degree stream.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## What is Live 360?
-
- With some recent updates to Facebook platform so many new features have been added to it and one of the best out of this big list is ability to live stream 360 degree videos. If you have right equipment to capture 360 degree videos then you can definitely create wonders around. The ability to Live Stream on Facebook assists people to share their special moments of life immediately with friends. So are you ready to have the real fun? Let us start with the tricks to create live 360 videos but before that let us discuss about best compatible cameras to enjoy live 360.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Compatible Cameras for Live 360
-
- If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
-## Specification for Live 360
-
- Those who are searching for the tech specs related to live 360 degree feature must go through these points:
-
-* It offers maximum stream time of 4 hours while supporting 1080p resolution level at 2:1 aspect ratio.
-* This feature also extends its support to spatial audio.
-* In order to avail best streaming results ensure at least 4Mbps speed from your internet connection.
-* It is not possible to embed these 360 degree videos to any other site from Facebook.
-* Supported video frame rate is 30fps only.
-* It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
-
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Go Live 360?
-
- You can use these two tricks to go live 360:
-
-1\. In case if you are going to use a camera having Facebook live integration feature then you can find all the guidelines on website of camera vender. Here we are going to consider Insta360 for exploring important details.
-
-2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
-
-## How to Go Live 360 with Instagram 360?
-
- Step 1: First of all connect your Insta 360 camera and move to its home screen.
-
- Step 2: Hit the yellow icon available on camera interface.
-
- Step 3: Here you will find a live button; tap over it and further make selection for your streaming platform.
-
- Step 4: As soon as you select Facebook as your live streaming environment on Insta360 interface, it will ask you to login with your Facebook account.
-
- Step 5: Now make selection for your streaming profile, whether you want to update this post to a page, profile or group.
-
- Note that streaming experience on all these platforms use to be the same but the only difference is that it is possible to edit page streams even after uploading them on network. Guide tool makes it possible.
-
- Step 6: Adjust the privacy settings and choose your preferred audiences.
-
- Step 7: It is time to add description for your live video and users can also adjust video streaming rate as per need.
-
- Step 8: Now hit the broadcast button.
-
- Step 9: Soon you will be able to collect so many reactions and comments from your viewers.
-
- Step 10: Delete your video from timeline whenever you want.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to go Live 360 from Facebook Website Flow?
 
  Step 1: Simply visit fb.com/live/create from your device.
@@ -436,6 +503,18 @@ Follow @Shanoon Cox
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -467,3 +546,64 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-forecasting-facebooks-video-trajectory-with-a-focus-on-brevity/"><u>[New] 2024 Approved Forecasting Facebook's Video Trajectory with a Focus on Brevity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-innovative-approaches-to-elevate-roi-in-your-fb-ads-with-animation/"><u>[New] 2024 Approved Innovative Approaches to Elevate ROI in Your FB Ads with Animation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-recording-review-and-examination/"><u>[New] 2024 Approved Recording Review and Examination</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-sky-high-success-on-social-media-mastering-dji-drone-streams/"><u>[New] 2024 Approved Sky-High Success on Social Media Mastering DJI Drone Streams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-practices-boosting-your-game-videos-with-tags-for-2024/"><u>[New] Best Practices Boosting Your Game Videos with Tags for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-discovering-facebooks-quintessential-updates-for-2024/"><u>[New] Discovering Facebook's Quintessential Updates for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-elevate-your-social-storytelling-with-added-musicality-for-2024/"><u>[New] Elevate Your Social Storytelling with Added Musicality for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebook-today-the-updated-guide-for-2024/"><u>[New] Facebook Today The Updated Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-friends-sharing-seeking-complete-viewability-via-smschat-services/"><u>[New] Friends’ Sharing Seeking Complete Viewability via SMS/Chat Services</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-trust-tales-decoding-the-power-of-selfies-for-2024/"><u>[New] Instagram's Trust Tales Decoding the Power of Selfies for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-navigating-instagram-marketing-ultimate-guide-to-video-success-for-2024/"><u>[New] Navigating Instagram Marketing Ultimate Guide to Video Success for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pinpointing-best-launch-dates-for-podcasts/"><u>[New] Pinpointing Best Launch Dates for Podcasts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-top-cover-photo-creators-facebook-edition-top-11-list-for-2024/"><u>[New] Top Cover Photo Creators Facebook Edition - Top 11 List for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-facebooks-full-screen-feature/"><u>[Updated] 2024 Approved A Comprehensive Guide to Facebook's Full Screen Feature</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instatilecraft-create-impressive-androidplusios-vids/"><u>[Updated] 2024 Approved InstaTilecraft Create Impressive Android+iOS Vids</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-learn-to-bring-text-alive-free-animation-for-vids/"><u>[Updated] 2024 Approved Learn to Bring Text Alive Free Animation for Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-a-comprehensive-guide-to-monetize-your-facebook-page-tips-and-tricks/"><u>[Updated] A Comprehensive Guide to Monetize Your Facebook Page Tips and Tricks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-dynamic-discussions-how-to-make-your-ig-stories-pop/"><u>[Updated] Dynamic Discussions How to Make Your IG Stories Pop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-financial-freedom-from-viewing-videos-effective-monetization-tactics-for-fb-for-2024/"><u>[Updated] Financial Freedom From Viewing Videos Effective Monetization Tactics for FB for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-guide-to-enable-windows-11-auto-hdr-settings/"><u>[Updated] Guide to Enable Windows 11 Auto-HDR Settings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-leveraging-your-roku-setup-for-exclusive-fb-live-content/"><u>[Updated] In 2024, Leveraging Your Roku Setup for Exclusive FB Live Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-art-of-transcribing-top-4-tactics-for-fb-chat-recordings/"><u>[Updated] In 2024, The Art of Transcribing Top 4 Tactics for FB Chat Recordings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-innovative-video-strategies-navigating-the-top-20-fb-marketing-tactics-for-2024/"><u>[Updated] Innovative Video Strategies Navigating the Top 20 FB Marketing Tactics for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-is-insta360-x3-superior-to-dji-and-gopro-in-capturing-lifes-moments/"><u>[Updated] Is Insta360 X3 Superior to DJI and GoPro in Capturing Life’s Moments?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-high-definition-video-production-in-the-facebook-era-for-2024/"><u>[Updated] Navigating High Definition Video Production in the Facebook Era for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-save-the-screen-facebook-live-downloads-for-2024/"><u>[Updated] Save the Screen Facebook Live Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-enigma-exchange-where-anonymity-meets-digital-riches-2023-edition-for-2024/"><u>[Updated] The Enigma Exchange Where Anonymity Meets Digital Riches, 2023 Edition for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-global-linguists-guide-to-top-28-applications-for-seamless-translation/"><u>[Updated] The Global Linguist's Guide to Top 28 Applications for Seamless Translation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-vidstreamer-for-social-platforms/"><u>[Updated] VIDStreamer for Social Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-11-cutting-edge-techniques-for-optimizing-your-fb-videos/"><u>2024 Approved 11 Cutting-Edge Techniques for Optimizing Your FB Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-captivate-with-time-lapse-artistry-on-samsung-phones/"><u>2024 Approved Captivate with Time-Lapse Artistry on Samsung Phones</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-skybound-streaming-engaging-your-audience-on-facebook/"><u>2024 Approved Skybound Streaming Engaging Your Audience on Facebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-uncover-the-power-of-sound-no-cost-voice-effects-at-your-fingertips/"><u>2024 Approved Uncover the Power of Sound No-Cost Voice Effects at Your Fingertips</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/a-full-review-for-itools-virtual-location-and-top-5-alternatives-for-apple-iphone-xsipad-drfone-by-drfone-virtual-ios/"><u>A Full Review for iTools Virtual Location and Top 5 Alternatives For Apple iPhone XS/iPad | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-key-ai-technologies-an-entry-level-overview-in-9-groups/"><u>Discover Key AI Technologies: An Entry-Level Overview in 9 Groups</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/efficient-facebook-video-extraction-procedures/"><u>Efficient Facebook Video Extraction Procedures</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/exploring-the-inherent-add-ons-of-chatgpt-and-their-functionalities/"><u>Exploring the Inherent Add-Ons of ChatGPT and Their Functionalities</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/forward-thinking-facebook-ad-strategies-the-2024-guide/"><u>Forward Thinking Facebook Ad Strategies – The 2024 Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-find-and-install-official-hp-printer-drivers-tips-and-links/"><u>How to Find and Install Official HP Printer Drivers – Tips & Links</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-curate-christian-chimes-for-devotion/"><u>In 2024, How to Curate Christian Chimes for Devotion</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-g2-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo G2 Through Google Earth?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-social-media-coverage-start-scale-resolution-length/"><u>In 2024, Social Media Coverage Start Scale, Resolution, Length</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-ultimate-7-private-film-access-tools/"><u>In 2024, Ultimate 7 Private Film Access Tools</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/live-capture-success-explore-4-effective-recording-strategies/"><u>Live Capture Success Explore 4 Effective Recording Strategies</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcome-the-launch-roadblock-in-the-witcher-3-wild-hunt-with-effective-solutions/"><u>Overcome the Launch Roadblock in The Witcher 3: Wild Hunt with Effective Solutions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pioneering-metaverse-brand-presence/"><u>Pioneering Metaverse Brand Presence</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/rescue-hidden-fb-watch-icon-for-2024/"><u>Rescue Hidden FB Watch Icon for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/seamless-searches-the-updated-guide-for-finding-youtube-on-fb-for-2024/"><u>Seamless Searches The Updated Guide for Finding YouTube on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/seamless-transfer-of-high-definition-fb-media/"><u>Seamless Transfer of High Definition FB Media</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/secrets-to-shooting-exceptional-micro-videos-for-2024/"><u>Secrets to Shooting Exceptional Micro Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/step-by-step-guide-to-facebook-mastery-pro-and-novice-edition/"><u>Step-by-Step Guide to Facebook Mastery Pro & Novice Edition</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/tailored-conversation-machines-creating-your-own-gpt/"><u>Tailored Conversation Machines: Creating Your Own GPT</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-quintessential-social-media-quartet-facebook-twitter-instagram-youtube-explained/"><u>The Quintessential Social Media Quartet: Facebook, Twitter, Instagram, YouTube Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-top-picks-excellent-fb-lite-video-downloaders-of-2023/"><u>The Top Picks Excellent FB Lite Video Downloaders of 2023</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-comprehensive-guide-to-computer-components/"><u>Tom's Tech Insights: Comprehensive Guide to Computer Components</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/webcapture-pro-live-chat-videos-for-2024/"><u>WebCapture Pro Live Chat Videos for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/why-didnt-we-see-an-october-2020-launch-for-assassins-creed-valhalla-answer/"><u>Why Didn't We See an October 2020 Launch for Assassin's Creed Valhalla? [Answer]</u></a></li>
+</ul></div>
