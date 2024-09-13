@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Elite 5  Facebook's Novel Innovations Spotlighted for 2024\""
-date: 2024-09-07T23:46:02.835Z
-updated: 2024-09-08T23:46:02.835Z
+date: 2024-09-10T21:10:15.280Z
+updated: 2024-09-13T20:41:58.551Z
 tags:
   - ai video
   - ai facebook
@@ -21,12 +21,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -36,11 +30,12 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -52,11 +47,12 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -66,16 +62,24 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
 
@@ -87,11 +91,12 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
@@ -99,68 +104,17 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-crossfade-mastery-in-professional-mixing-logic-pro-x-edition/"><u>[New] 2024 Approved  Crossfade Mastery in Professional Mixing - Logic Pro X Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-gaming-for-everyone-accessible-channels/"><u>[New] 2024 Approved  Gaming for Everyone  Accessible Channels</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-how-to-make-any-tiktok-audio-the-ultimate-cellphone-sound/"><u>[New] 2024 Approved  How To Make Any TikTok Audio, the Ultimate Cellphone Sound</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-paired-monitors-preservation/"><u>[New] Paired Monitors Preservation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-unlocking-google-meets-whiteboard-capabilities-on-diverse-tech-ecosystems-for-2024/"><u>[New] Unlocking Google Meet's Whiteboard Capabilities on Diverse Tech Ecosystems for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-exceptional-7-dslr-devices-for-expert-video-content-creators/"><u>[Updated] Exceptional 7 DSLR Devices For Expert Video Content Creators</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-whatsapp-sound-hacks-incorporating-melodies-for-2024/"><u>[Updated] WhatsApp Sound Hacks  Incorporating Melodies for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-android-sdk-update-essential-tools-for-fb-video-extraction/"><u>2024 Approved  Android SDK Update  Essential Tools for FB Video Extraction</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-clear-and-compelling-1080p-streaming-on-the-social-network/"><u>2024 Approved  Clear and Compelling 1080P Streaming on the Social Network</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-digital-doppelganger-deliberation-building-caricatured-characters/"><u>2024 Approved  Digital Doppelganger Deliberation  Building Caricatured Characters</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-discover-the-undiscovered-top-social-media-memes/"><u>2024 Approved  Discover the Undiscovered  Top Social Media Memes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-linking-method-for-youtube-video-content/"><u>2024 Approved  Facebook Linking Method for YouTube Video Content</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-can-i-watch-facebook-videos-on-my-apple-tv/"><u>2024 Approved  How Can I Watch Facebook Videos on My Apple TV?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigate-the-social-media-lands-cookie-with-youtubes-automatic-play-feature/"><u>2024 Approved  Navigate the Social Media Lands Cookie with YouTube's Automatic Play Feature</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-nostalgia-unleashed-a-guide-to-fb-archives/"><u>2024 Approved  Nostalgia Unleashed  A Guide to FB Archives</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-pro-gopro-filming-and-live-sharing-best-practices-for-facebookperiscope/"><u>2024 Approved  Pro Gopro Filming and Live Sharing  Best Practices for Facebook/Periscope</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-rectifying-partial-muted-sounds-in-facebook-media-shows/"><u>2024 Approved  Rectifying Partial Muted Sounds in Facebook Media Shows</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-saving-facebook-gifs-on-computer-phone-and-tablet/"><u>2024 Approved  Saving Facebook GIFs on Computer, Phone & Tablet</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-roadmap-for-effective-advertising-on-facebook/"><u>2024 Approved  The Roadmap for Effective Advertising on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-top-picks-for-fb-film-downloads-8-edition-23/"><u>2024 Approved  Top Picks for FB Film Downloads  #8 Edition '23</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-turbo-transfer-efficient-youtube-listings/"><u>2024 Approved  Turbo Transfer  Efficient YouTube Listings</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-zte-nubia-flip-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/androidios-resolve-youtube-freezing-for-2024/"><u>Android/iOS  Resolve YouTube Freezing for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/bio-essentials-the-ultimate-guide-to-crafting-impactful-social-media-profiles-for-2024/"><u>Bio Essentials  The Ultimate Guide to Crafting Impactful Social Media Profiles for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/captivate-crowds-secrets-to-screen-collaboration-via-social-media-for-2024/"><u>Captivate Crowds  Secrets to Screen Collaboration via Social Media for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebooks-easy-path-uploading-videos-via-pc-and-android-devices/"><u>Facebook's Easy Path  Uploading Videos via PC and Android Devices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/fix-file-not-loaded-completely-error-in-excel-2000-by-stellar-guide/"><u>Fix File Not Loaded Completely Error in Excel 2000</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-xiaomi-13t-pro-by-fonelab-android-recover-messages/"><u>How To  Restore Missing Messages Files from Xiaomi 13T Pro</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-iphone-8-by-drfone-ios/"><u>How To Change Your Apple ID Password On your iPhone 8</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-get-miracast-working-a-guide-on-fixing-graphics-driver-incompatibilities/"><u>How to Get Miracast Working: A Guide on Fixing Graphics Driver Incompatibilities</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-motorola-by-fonelab-android-recover-music/"><u>How to restore wiped music on Motorola</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-8-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 8 To Android/iOS? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-to-utilize-chatgpt-for-tailoring-your-watchlist-choices/"><u>How to Utilize ChatGPT for Tailoring Your Watchlist Choices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebooks-mystery-the-blue-icon-in-messaging/"><u>In 2024, Facebook's Mystery  The Blue Icon in Messaging</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-path-profile-picture-dimensions/"><u>In 2024, Path Profile Picture Dimensions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-seamless-sharing-of-vast-viewpoints-uploading-wide-angle-content-on-iosandroid/"><u>In 2024, Seamless Sharing of Vast Viewpoints  Uploading Wide Angle Content on iOS/Android</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-seeking-out-facebooks-streamed-movies-and-shows/"><u>In 2024, Seeking Out Facebook's Streamed Movies & Shows</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-charting-out-the-leading-audio-reverse-programs-a-targeted-review-for-computers-and-phones/"><u>New 2024 Approved Charting Out the Leading Audio Reverse Programs A Targeted Review for Computers & Phones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-infinix-smart-8-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Infinix Smart 8 Phone Hassle-Free</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-truth-about-chatgpt-on-windows-malware-alert-not-a-legitimate-client/"><u>The Truth About ChatGPT on Windows: Malware Alert, Not a Legitimate Client</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/top-3d-video-creation-tools-you-need-to-try-for-2024/"><u>Top 3D Video Creation Tools You Need to Try for 2024</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -168,3 +122,21 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-5-high-performance-hdds-built-for-xbox-use/"><u>[New] 5 High-Performance HDDs Built for Xbox Use</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-chatcam-downloader-high-quality/"><u>[New] ChatCam Downloader, High Quality</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-tailored-transfer-process-for-mobile-camera-roll-on-snapchat/"><u>[New] In 2024, Tailored Transfer Process for Mobile Camera Roll on Snapchat</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-decoding-instagrams-reels-and-stories-differences/"><u>[Updated] 2024 Approved Decoding Instagram's Reels and Stories Differences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unpacking-the-sequencing-of-a-20mb-file/"><u>[Updated] 2024 Approved Unpacking the Sequencing of a 20MB File</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-masterclass-carving-out-your-digital-self/"><u>[Updated] YouTube Masterclass Carving Out Your Digital Self</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-core-6-social-media-tools-for-corporate-engagement/"><u>2024 Approved Core 6 Social Media Tools for Corporate Engagement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-decoding-facebooks-absence-of-personalized-video-content/"><u>2024 Approved Decoding Facebook's Absence of Personalized Video Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-internet-idols-index-10-most-subscribed-global-creators/"><u>2024 Approved Internet Idols Index 10 Most Subscribed Global Creators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/beyond-basic-editing-innovative-use-of-luts-for-photography/"><u>Beyond Basic Editing Innovative Use of LUTs for Photography</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/direct-links-to-download-high-performance-amd-ryzen-motherboard-drivers/"><u>Direct Links to Download High-Performance AMD Ryzen Motherboard Drivers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elevating-roi-with-strategic-facebook-animation-ads-for-2024/"><u>Elevating ROI with Strategic Facebook Animation Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-charting-the-path-to-previous-imagery-a-facebook-centric-guide/"><u>In 2024, Charting the Path to Previous Imagery A Facebook-Centric Guide</u></a></li>
+</ul></div>
+
