@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB's Look Back Feature  Edit Tutorial for 2024\""
-date: 2024-09-08T19:36:32.387Z
-updated: 2024-09-13T21:04:22.861Z
+date: 2024-09-15T03:33:55.736Z
+updated: 2024-09-18T18:12:29.806Z
 tags:
   - ai video
   - ai facebook
@@ -56,25 +56,11 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -90,21 +76,7 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -117,27 +89,7 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -154,16 +106,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-decoding-the-art-of-successful-fb-cover-videos-for-2024/"><u>[New] Decoding the Art of Successful FB Cover Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-master-your-live-video-setting-up-dslr-on-laptop-or-desktop/"><u>[New] In 2024, Master Your Live Video Setting Up DSLR on Laptop or Desktop</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigating-the-social-landsayer-how-to-spark-fb-engagement/"><u>[New] Navigating the Social Landsayer How to Spark FB Engagement</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-top-mobile-video-assembly-software-for-smartphones-for-2024/"><u>[New] Top Mobile Video Assembly Software for Smartphones for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-bandicam-or-camtasia-best-recording-and-editing-software-in-2024/"><u>[Updated] Bandicam or Camtasia Best Recording & Editing Software, In 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-starting-free-youtube-ad-campaigns-a-step-by-step-tutorial/"><u>[Updated] Starting Free YouTube Ad Campaigns A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-streamline-your-education-mac-audio-recording-best-practices/"><u>2024 Approved Streamline Your Education Mac Audio Recording Best Practices</u></a></li>
-<li><a href="https://extra-information.techidaily.com/comprehensive-overview-of-final-cut-pro-techniques/"><u>Comprehensive Overview of Final Cut Pro Techniques</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-to-install-mods-for-fallout-4-on-your-pc-beginners-guide/"><u>How to Install Mods for Fallout 4 on Your PC - Beginner’s Guide</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-xiaomi-redmi-k70-pro-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Xiaomi Redmi K70 Pro</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/backward-in-time-reversing-youtube-media-for-2024/"><u>Step Backward in Time Reversing YouTube Media for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-from-start-to-finish-itunes-video-logging/"><u>[New] 2024 Approved From Start to Finish ITunes Video Logging</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-skaldic-epic-odins-final-stand/"><u>[New] In 2024, Skaldic Epic Odin's Final Stand</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-simplify-your-tech-life-capture-and-store-youtube-streaming-effortlessly-for-2024/"><u>[New] Simplify Your Tech Life Capture and Store YouTube Streaming Effortlessly for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-harnessing-altitude-live-streaming-with-dji-drones/"><u>[Updated] 2024 Approved Harnessing Altitude Live-Streaming with DJI Drones</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-make-a-lasting-impression-with-your-facebook-profile-story/"><u>[Updated] How to Make a Lasting Impression with Your Facebook Profile Story</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-virtual-venue-vaults-audiences-for-2024/"><u>[Updated] Virtual Venue Vaults Audiences for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/gentle-glide-of-noises-subdued-amplitude-adjustment/"><u>Gentle Glide of Noises Subdued Amplitude Adjustment</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-archivists-edge-cutting-edge-strategies-for-social-downloads/"><u>In 2024, The Archivist's Edge Cutting-Edge Strategies for Social Downloads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-into-the-world-of-precise-editing-tiktok-number-modification-for-2024/"><u>Step Into the World of Precise Editing TikTok Number Modification for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

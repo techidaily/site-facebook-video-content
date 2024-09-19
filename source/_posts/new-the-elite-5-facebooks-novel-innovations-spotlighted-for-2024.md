@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Elite 5  Facebook's Novel Innovations Spotlighted for 2024\""
-date: 2024-09-10T21:10:15.280Z
-updated: 2024-09-13T20:41:58.551Z
+date: 2024-09-11T22:17:31.836Z
+updated: 2024-09-18T16:08:48.160Z
 tags:
   - ai video
   - ai facebook
@@ -29,13 +29,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -46,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -61,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
@@ -75,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
@@ -91,10 +70,10 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Group Videos
@@ -102,13 +81,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -125,18 +97,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-5-high-performance-hdds-built-for-xbox-use/"><u>[New] 5 High-Performance HDDs Built for Xbox Use</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-chatcam-downloader-high-quality/"><u>[New] ChatCam Downloader, High Quality</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-tailored-transfer-process-for-mobile-camera-roll-on-snapchat/"><u>[New] In 2024, Tailored Transfer Process for Mobile Camera Roll on Snapchat</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-decoding-instagrams-reels-and-stories-differences/"><u>[Updated] 2024 Approved Decoding Instagram's Reels and Stories Differences</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unpacking-the-sequencing-of-a-20mb-file/"><u>[Updated] 2024 Approved Unpacking the Sequencing of a 20MB File</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-masterclass-carving-out-your-digital-self/"><u>[Updated] YouTube Masterclass Carving Out Your Digital Self</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-core-6-social-media-tools-for-corporate-engagement/"><u>2024 Approved Core 6 Social Media Tools for Corporate Engagement</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-decoding-facebooks-absence-of-personalized-video-content/"><u>2024 Approved Decoding Facebook's Absence of Personalized Video Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-internet-idols-index-10-most-subscribed-global-creators/"><u>2024 Approved Internet Idols Index 10 Most Subscribed Global Creators</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/beyond-basic-editing-innovative-use-of-luts-for-photography/"><u>Beyond Basic Editing Innovative Use of LUTs for Photography</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/direct-links-to-download-high-performance-amd-ryzen-motherboard-drivers/"><u>Direct Links to Download High-Performance AMD Ryzen Motherboard Drivers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevating-roi-with-strategic-facebook-animation-ads-for-2024/"><u>Elevating ROI with Strategic Facebook Animation Ads for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-charting-the-path-to-previous-imagery-a-facebook-centric-guide/"><u>In 2024, Charting the Path to Previous Imagery A Facebook-Centric Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigating-immediate-account-suspension-due-to-copyright-violations/"><u>[New] 2024 Approved Navigating Immediate Account Suspension Due to Copyright Violations</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-transferring-youtube-shorts-from-pcandroid-or-ios-for-2024/"><u>[New] How-To Transferring YouTube Shorts From PC/Android or iOS for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-leading-tools-top-6-fb-lite-video-extractors/"><u>[New] In 2024, Leading Tools TOP 6 FB Lite Video Extractors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-comprehensive-guide-to-crafting-great-documentary-narratives/"><u>[New] The Comprehensive Guide to Crafting Great Documentary Narratives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-can-televising-streaming-services-include-facebook-content/"><u>[Updated] Can Televising Streaming Services Include Facebook Content?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-youtube-content-editing-in-adobe-premiere-for-2024/"><u>[Updated] Elevate Your YouTube Content Editing in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-add-auto-captions-to-instagram-stories-and-reels-for-2024/"><u>[Updated] How to Add Auto Captions to Instagram Stories and Reels for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-transition-from-tv-to-facebook-lives/"><u>[Updated] In 2024, Seamless Transition From TV to Facebook Lives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-leverage-audience-engagement-through-strategic-posting/"><u>[Updated] Leverage Audience Engagement Through Strategic Posting</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cod-black-ops-cold-war-issue-resolved-solving-the-error-code-80070057-problem/"><u>COD: Black Ops Cold War Issue Resolved! Solving the Error Code 80070057 Problem</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/expertly-design-fb-ads-get-help-from-free-video-creation-toolkit-for-2024/"><u>Expertly Design FB Ads – Get Help From Free Video Creation Toolkit for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-poco-m6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/get-started-with-ease-facebook-insight-basics/"><u>Get Started with Ease Facebook Insight Basics</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-solidify-the-save-feature-on-nvidias-windows-control-center/"><u>How to Solidify the Save Feature on NVidia's Windows Control Center</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/transform-tales-gratuitous-enhancements-across-platforms/"><u>Transform Tales Gratuitous Enhancements Across Platforms</u></a></li>
 </ul></div>
 

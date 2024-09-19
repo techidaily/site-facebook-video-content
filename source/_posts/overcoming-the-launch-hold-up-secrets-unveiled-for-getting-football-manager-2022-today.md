@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Launch Hold-Up: Secrets Unveiled For Getting Football Manager 2022 Today"
-date: 2024-09-10T16:17:32.852Z
-updated: 2024-09-13T16:40:07.758Z
+date: 2024-09-13T10:19:35.662Z
+updated: 2024-09-19T03:50:46.345Z
 tags:
   - win11
   - win10
@@ -18,19 +18,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/fm-2022.jpeg)
 
  Football Manager 2022 PC players are reporting that the game is crashing at launch or not starting at all. Here is how to fix Football Manager 2022 not launching issue.
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to fix Football Manager 2022 launch issues?
 
@@ -89,35 +76,30 @@ After updating your drivers, restart your PC and test the gameplay.
 2) Go to LIBRARY, right-click on Football Manager 2022 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Once complete, launch the game to check if your game is working again.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5\. Delete the Caches and Preferences folder
@@ -131,10 +113,10 @@ Once complete, launch the game to check if your game is working again.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-8-1200x758.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
@@ -151,21 +133,7 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-9.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Locate the game’s executable and run the game as an administrator.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 7\. Open the game in windowed mode
 
@@ -174,22 +142,8 @@ Once complete, launch the game to check if your game is working again.
  1) Right-click on Football Manager 2021 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
 
@@ -223,13 +177,6 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Option 2 – Manually
 
  To check and restore your system file might take time and computer skills. You will need to run numerous commands, wait for the process to complete, or risk your data.
@@ -242,6 +189,13 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/cmd-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Click**Yes** when prompted for permission to make changes to your device.
 
  2) In the Command Prompt, type the following command and hit**Enter** .
@@ -251,13 +205,6 @@ sfc /scannow
  3) System File Check will begin to scan all system files and repair any corrupted or missing ones it detected. This may take 3-5 minutes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/scan-now.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) You may receive something like the following messages after the verification.
 
@@ -316,16 +263,18 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-story-complete-guide-what-is-it-and-how-to-use-it/"><u>[New] 2024 Approved Facebook Story Complete Guide What Is It and How to Use It?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-discover-creative-ways-to-enhance-your-fb-video-ads/"><u>[New] In 2024, Discover Creative Ways to Enhance Your FB Video Ads</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-beginners-guide-to-streaming-on-fb-live-2023/"><u>[Updated] In 2024, Beginner's Guide to Streaming on FB Live, 2023</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unveiling-the-power-of-three-tiers-in-crafting-fb-ad-engaging-messages/"><u>[Updated] In 2024, Unveiling the Power of Three Tiers in Crafting FB Ad Engaging Messages</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-prime-pc-idle-gaming-selections/"><u>[Updated] Prime PC Idle Gaming Selections</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-pathways-to-acquiring-facebooks-distinguished-verification/"><u>2024 Approved Pathways to Acquiring Facebook's Distinguished Verification</u></a></li>
-<li><a href="https://fox-links.techidaily.com/free-football-live-learn-and-cut-your-match-footage-for-2024/"><u>Free Football Live-Learn & Cut Your Match Footage for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-insights-ultimate-guide-to-understand-ig-data-for-2024/"><u>Instagram Insights Ultimate Guide to Understand IG Data for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/selecting-the-best-free-melodies-for-your-youtube-video/"><u>Selecting the Best Free Melodies for Your YouTube Video</u></a></li>
-<li><a href="https://driver-install.techidaily.com/transform-your-auditory-setup-windows-7-and-nvidia-update/"><u>Transform Your Auditory Setup: Windows 7 and Nvidia Update</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elite-mp4-media-sender/"><u>[New] 2024 Approved Elite MP4 Media Sender</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-the-maze-of-facebook-story-networking/"><u>[New] Navigating the Maze of Facebook Story Networking</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-scan-for-collective-shared-content-on-messenger/"><u>[Updated] In 2024, Scan for Collective Shared Content on Messenger</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tips-and-tricks-for-successful-social-media-video/"><u>[Updated] In 2024, Tips & Tricks for Successful Social Media Video</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-pros-and-cons-delving-into-the-world-of-video-downloading-methods/"><u>[Updated] Pros and Cons Delving Into the World of Video Downloading Methods</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-screenskip-videocapturer-kit/"><u>[Updated] ScreenSkip Videocapturer Kit</u></a></li>
+<li><a href="https://common-error.techidaily.com/amd-high-definition-sound-card-fix-unplugged-device-alert/"><u>AMD High Definition Sound Card - Fix Unplugged Device Alert</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elite-uploader-mp4-files-directly-for-fb-for-2024/"><u>Elite Uploader MP4 Files Directly for FB for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-8-plus-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 8 Plus without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-did-your-iphone-11-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>In 2024, Did Your iPhone 11 Passcode Change Itself? Unlock It Now</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-common-video-downloadupload-pitfalls-on-fb-for-2024/"><u>Navigating Common Video Download/Upload Pitfalls on FB for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-dji-mavic-2-pro-an-indisputable-champion-for-professionals/"><u>The Ultimate Verdict on DJI Mavic 2 Pro - An Indisputable Champion for Professionals</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-11-mastering-cross-device-sticky-note-functionality/"><u>Windows 11: Mastering Cross-Device Sticky Note Functionality</u></a></li>
 </ul></div>
 

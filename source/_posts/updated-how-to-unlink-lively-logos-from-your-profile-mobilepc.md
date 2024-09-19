@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Unlink Lively Logos From Your Profile (Mobile/PC)"
-date: 2024-09-12T18:04:50.372Z
-updated: 2024-09-13T17:54:59.942Z
+date: 2024-09-16T06:41:42.159Z
+updated: 2024-09-19T07:32:36.230Z
 tags:
   - ai video
   - ai facebook
@@ -48,13 +48,6 @@ Let's begin with the mobile Facebook application:
 
 ![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Delete Facebook Story from Desktop**
 
 **Step 1:** Visit Facebook via a browser. As the mobile app, it will show "your story" on the home page. Please click on that.
@@ -69,19 +62,6 @@ Let's begin with the mobile Facebook application:
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -91,13 +71,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 **Step 1:** Visit your Facebook account and click on your profile. On your profile, you will see three dots. Please click on the three dots. Once done, you will see a list of options; please click on the archive option.
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
@@ -129,20 +102,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -152,19 +111,19 @@ Facebook has made sharing stories easy because of the multiple features it offer
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -175,18 +134,18 @@ Visit the Stories section, and then tap on a story of a person that you don't wa
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Facebook stories are a great way to let people know what you are up to. It's short and does the job perfectly. But there will be moments when you will want to remove the story early, and to do that, we have shared all the essential tips that will help you. Now that you have learned **how to remove** a **story from Facebook, go on and delete your stories early**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -203,15 +162,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-crafting-soundscapes-how-to-use-auditions-fade-in-effect/"><u>[New] Crafting Soundscapes How to Use Audition's Fade In Effect</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-rise-through-the-instagram-rankings-fast-for-2024/"><u>[New] Rise Through the Instagram Rankings Fast for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-strategies-to-boost-your-facebook-pages-popularity-meter-for-2024/"><u>[New] Strategies to Boost Your Facebook Page's Popularity Meter for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-premium-roundup-best-3ds-on-pc-simulator-tools/"><u>[Updated] Premium Roundup Best 3Ds on PC Simulator Tools</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-100-killer-facebook-bios-to-make-profile-attractive2/"><u>2024 Approved 100 Killer Facebook Bios to Make Profile Attractive2</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/engage-grow-and-rise-triple-threat-tactics-for-facebook-pages-for-2024/"><u>Engage, Grow, and Rise Triple Threat Tactics for Facebook Pages for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/enhance-your-mobile-experience-with-these-8-premier-multi-number-apps/"><u>Enhance Your Mobile Experience with These 8 Premier Multi-Number Apps</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-find-and-install-toshiba-laptop-drivers-for-windows-systems/"><u>How to Find and Install Toshiba Laptop Drivers for Windows Systems</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/shift-twitter-video-preview-panel-for-2024/"><u>Shift Twitter Video Preview Panel for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/swiftly-resolving-delayed-videos-in-facebooks-chatting-application-for-mobile-devices/"><u>Swiftly Resolving Delayed Videos in Facebook's Chatting Application for Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unlocking-organic-growth-your-afb-playbook/"><u>[New] 2024 Approved Unlocking Organic Growth Your AFB Playbook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-virtual-venue-vaults-download-edition/"><u>[New] 2024 Approved Virtual Venue Vaults - Download Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-bridging-the-gap-between-classic-and-contemporary-videos/"><u>[New] Bridging the Gap Between Classic and Contemporary Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-assessing-splitcams-standards-in-the-videographer-space/"><u>[New] In 2024, Assessing SplitCam’s Standards in the Videographer Space</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-best-emulators-pc-edition-ps1-games/"><u>[New] In 2024, Best Emulators PC Edition - PS1 Games</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlock-the-power-of-personal-branding-insider-secrets-for-flawless-biographies/"><u>[New] In 2024, Unlock the Power of Personal Branding Insider Secrets for Flawless Biographies</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-how-to-change-name-in-google-meet-on-laptop-and-mobile-devices/"><u>2024 Approved How to Change Name in Google Meet on Laptop and Mobile Devices?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facesavedownloader-suite-mobile-pc/"><u>FaceSaveDownloader Suite (Mobile, PC)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-xs-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-synchronizing-tiktok-viewership-and-facebook-shares/"><u>In 2024, Synchronizing TikTok Viewership and Facebook Shares</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-8-gratis-video-cutting-tools-for-online-content-creation/"><u>In 2024, Top 8 Gratis Video Cutting Tools For Online Content Creation</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/inclusive-iptv-broadcast-architecture-for-2024/"><u>Inclusive IPTV Broadcast Architecture for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-installation-issues-with-the-windows-10-may-2019-build-1903-update/"><u>Overcoming Installation Issues with the Windows 10 May 2019 (Build 1903) Update</u></a></li>
 </ul></div>
 

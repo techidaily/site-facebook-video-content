@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step Into Reflection  Editing Your Facebook Past Videos\""
-date: 2024-09-11T16:34:23.924Z
-updated: 2024-09-13T18:32:22.442Z
+date: 2024-09-16T01:37:45.572Z
+updated: 2024-09-19T12:10:34.060Z
 tags:
   - ai video
   - ai facebook
@@ -48,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -63,37 +56,11 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -109,21 +76,7 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -135,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 * Burn to DVD to preserve or share.
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -160,20 +106,28 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-enhancing-authenticity-and-connection-via-fb-profile-covers-for-2024/"><u>[New] Enhancing Authenticity and Connection via FB Profile Covers for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-increasing-click-rates-and-revenue-the-power-of-engaging-fb-animation-ads/"><u>[New] In 2024, Increasing Click Rates & Revenue The Power of Engaging FB Animation Ads</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-how-to-share-twitter-videos-on-whatsapp-in-2024/"><u>[Updated] How to Share Twitter Videos on WhatsApp, In 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facestream-recorder-pro-messenger/"><u>[Updated] In 2024, FaceStream Recorder Pro-Messenger</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-linkedin-live-clarity-ending-the-partially-muted-frustration/"><u>[Updated] In 2024, LinkedIn Live Clarity - Ending the Partially Muted Frustration</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-transforming-vision-into-action-building-a-successful-fb-reel-channel/"><u>[Updated] In 2024, Transforming Vision Into Action Building a Successful FB Reel Channel</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unleash-creativity-for-captivating-fb-video-marketing-strategies/"><u>[Updated] In 2024, Unleash Creativity for Captivating Fb Video Marketing Strategies</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-art-of-video-marketing-11-tips-to-skyrocket-fb-traffic/"><u>[Updated] The Art of Video Marketing 11 Tips to Skyrocket FB Traffic</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhance-control-over-group-policy-in-windows-11/"><u>Enhance Control over Group Policy in Windows 11</u></a></li>
-<li><a href="https://windows11.techidaily.com/enhancing-windows-11-ease-of-use-with-improved-run-feature/"><u>Enhancing Windows 11 Ease of Use with Improved Run Feature</u></a></li>
-<li><a href="https://techidaily.com/exploring-vpn-tunneling-protocols-an-overview-and-typology/"><u>Exploring VPN Tunneling Protocols: An Overview and Typology</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-flash-dead-oppo-a1-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Oppo A1 5G Safely | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/lenovo-legion-5-pro-16-3d-amd-ryzen-7-latest-graphics-drivers-download/"><u>Lenovo Legion 5 Pro (16 3D, AMD Ryzen 7) - Latest Graphics Drivers Download</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-startup-obstacles-a-comprehensive-guide-for-playing-starfield-on-your-gaming-systems/"><u>Overcoming Startup Obstacles: A Comprehensive Guide for Playing Starfield on Your Gaming Systems</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-rank-5-premium-android-image-editing-tools-for-2024/"><u>The Ultimate Rank 5 Premium Android Image Editing Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-beginners-guide-to-streaming-on-fb-live-2023/"><u>[New] Beginner's Guide to Streaming on FB Live, 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-exclusive-list-of-8-best-apps-to-enhance-facebook-likes/"><u>[New] Exclusive List of 8 Best Apps To Enhance Facebook Likes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebook-videos-which-aspect-ratio-fits/"><u>[New] Facebook Videos Which Aspect Ratio Fits?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-step-into-the-full-screen-era-for-fb-video-viewing/"><u>[New] In 2024, Step Into the Full-Screen Era for FB Video Viewing</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-inventory-of-videography-items-for-exploration/"><u>[New] Inventory of Videography Items for Exploration</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-revisit-facebooks-top-watches-a-step-by-step-for-2024/"><u>[New] Revisit Facebook's Top Watches A Step-by-Step for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-blank-page-to-airwaves-writing-engaging-podcast-episodes/"><u>[Updated] From Blank Page to Airwaves Writing Engaging Podcast Episodes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-masterclass-splitting-your-screen-for-maximum-impact-on-facebook-live/"><u>[Updated] In 2024, Masterclass Splitting Your Screen for Maximum Impact on Facebook Live</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-latest-hit-a-guide-to-todays-top-8-online-videos-for-2024/"><u>[Updated] The Latest Hit A Guide to Today's Top 8 Online Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-tricks-and-tips-to-bypass-hidden-video-barriers/"><u>2024 Approved Tricks and Tips to Bypass Hidden Video Barriers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accelerating-windows-11-eradicate-delays-and-lags/"><u>Accelerating Windows 11: Eradicate Delays and Lags</u></a></li>
+<li><a href="https://article-posts.techidaily.com/dive-deep-into-windows-11-the-ultimate-guide-to-video-cutting-for-2024/"><u>Dive Deep Into Window's 11 The Ultimate Guide to Video Cutting for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-edit-blur-or-remove-photo-background/"><u>How to Edit, Blur or Remove Photo Background?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-x5-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Poco X5 Pro Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/reflection-photography-tips-for-iphone/"><u>Reflection Photography Tips for iPhone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unveiling-the-reasons-behind-a-laggy-ipad-top-strategies-for-speed-restoration/"><u>Unveiling the Reasons Behind a Laggy iPad: Top Strategies for Speed Restoration</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

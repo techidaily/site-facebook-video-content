@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering FB Video Promos  Access Free Video Toolkit\""
-date: 2024-09-07T20:47:18.822Z
-updated: 2024-09-13T20:24:27.904Z
+date: 2024-09-15T23:37:15.885Z
+updated: 2024-09-18T21:42:01.459Z
 tags:
   - ai video
   - ai facebook
@@ -31,25 +31,11 @@ If you have little to no experience with video ads, don’t feel stressed. We’
 
 **You may also like:** [Facebook Jail: 10 Secrets to Avoid Being Blocked / Get Out of It >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Create Video Using the Facebook Video Creation Kit \[step by step tutorial\]
 
 Wondershare Filmora is one of the [best video editing software](https://tools.techidaily.com/wondershare/filmora/download/) for making and editing social media videos sharing on YouTube, Facebook, or Instagram. It features lots of effects, transitions, templates and elements for creating video with fun. You can create videos in different aspect ratio such as 1:1, 9:16, 16:9, 4:3 or [customize the aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) as you like.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Well, although other social media platforms are gaining popularity, Facebook remains the top of the pops, and has [over 1.5 billion daily users](https://newsroom.fb.com/company-info/). Whatever your reason for needing a video ad, you can’t go wrong broadcasting it to this kind of audience.
 
@@ -64,19 +50,6 @@ Below is the detailed step by step tutorial about how to create video ads in Vid
 You’ll need to start in [Ads Manager](https://www.facebook.com/business/help/282701548912119), which is connected with your Facebook account and can be found on your home page in the left menu.
 
 ![where to find Facebook Ads Manager ](https://images.wondershare.com/filmora/article-images/facebook-ads-manager.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click on the   **Ads**  tab, and the **Create** button to get started. You can’t miss it - it’s **bright green**! You’ll be asked if you want to choose Guided Creation or Quick Creation. Either way is pretty easy to do, and you can experiment with both when you begin to see which works best for you.
 
@@ -109,19 +82,6 @@ Once you’ve gone through the initial info, you need to choose a format for you
 
 ![create Facebook ads - choose format ](https://images.wondershare.com/filmora/article-images/create-ad-choose-format.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Note: if you’ve enabled the Dynamic Creative option under Conversion in Ad Set tab, you’ll see the Single Image or Video format option only, since the Dynamic Creative allows you to upload individual images and headlines and generate combination automatically. Here, we’ll choose Single Image or Video format to show the next steps. Once you’ve got the hang of it, you can experiment with the other two.
 
 #### 3\.  Adding Your Media & Elements
@@ -148,13 +108,6 @@ If you choose use [video ad template](https://tools.techidaily.com/wondershare/f
 
 ![video creation kit  templates ](https://images.wondershare.com/filmora/article-images/video-creation-kit-available-template.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The template names are quite specific to what each one does, so you should have no problem choosing what would suit you:
 
 * Promote a Product
@@ -177,29 +130,9 @@ From here, you can upload your own images to fill the placeholders that the temp
 
 ![video creation kit  customize scene ](https://images.wondershare.com/filmora/article-images/video-creation-kit-customize-scene.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can also add your own logo, and if you’re feeling inspired or want to convey a particular message, choose a sticker to put on your vid!
 
 ![video creation kit  stickers ](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
@@ -245,10 +178,10 @@ As we said before, Facebook has billions daily users, and here are just a few re
 No matter what your business, video is a tool you should be taking advantage of, and with stats like these, Facebook is a great place to start getting your video ads out there!
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What Could You Use the Creation Kit For?
@@ -258,6 +191,19 @@ Whatever the purpose of your video, you’ll find the Facebook Video Creation Ki
 This is great for **promoting products and services, introducing new businesses or ideas, or simply sharing something cool** that you’ve created with your friends. Not only does it showcase your photos or products, you’ll be able to add your **own text, links**, and **info to promote** your stuff exactly the way you want to!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -282,21 +228,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-the-efficacy-of-quick-subscribing-in-video-platforms/"><u>[New] In 2024, The Efficacy of Quick-Subscribing in Video Platforms</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-upload-footage-seamlessly-to-facebook-pc-and-android-style/"><u>[New] In 2024, Upload Footage Seamlessly to Facebook, PC & Android Style</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unmatched-mac-tools-for-video-capture/"><u>[Updated] In 2024, Unmatched Mac Tools for Video Capture</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-sonic-storytelling-in-instagram-visuals/"><u>[Updated] Sonic Storytelling in Instagram Visuals</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-the-basics-of-facebook-membership-creation/"><u>[Updated] Unveiling the Basics of Facebook Membership Creation</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-breaking-barriers-download-and-store-your-fmb-conversations/"><u>2024 Approved Breaking Barriers Download & Store Your FMB Conversations</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-insight-on-apple-tv-4k-third-gen-version-assessment/"><u>Cutting-Edge Insight on Apple TV 4K - Third Gen Version Assessment</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevate-engagement-escalate-ranks-on-fb-pages/"><u>Elevate Engagement, Escalate Ranks on FB Pages</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevate-your-profiles-visual-appeal/"><u>Elevate Your Profile's Visual Appeal</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enhance-video-impact-two-tiktok-techniques/"><u>Enhance Video Impact Two TikTok Techniques</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/epson-xp-245-driver-downloads-optimize-your-printer-on-windows-os-from-v7-to-v10/"><u>Epson XP 245 Driver Downloads: Optimize Your Printer on Windows OS From V7 to V10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-pour-equilibrer-la-montoirie/"><u>Salutations Françaises Pour Équilibrer La Montoirie</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/seamless-integration-of-fb-video-on-tv-screens/"><u>Seamless Integration of Fb Video on TV Screens</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/televising-digital-media-integrating-fb-video/"><u>Televising Digital Media Integrating FB Video ?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/toshiba-bluetooth-drivers-download-guide-and-free-compatible-updates/"><u>Toshiba Bluetooth Drivers: Download Guide & Free Compatible Updates</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-engaging-in-larger-than-life-fb-videos/"><u>[New] 2024 Approved Engaging in Larger-Than-Life FB Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-comparative-reviews-beyond-the-norms-of-sharex-for-2024/"><u>[New] Comparative Reviews Beyond the Norms of ShareX for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-instagram-a-comprehensive-guide-to-video-posting-for-2024/"><u>[New] Instagram A Comprehensive Guide to Video Posting for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-soundsnatcher-recorder-software-overview/"><u>[New] SoundSnatcher Recorder Software Overview</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solved-mouse-lagging-and-stuttering-on-windows-11/"><u>[SOLVED] Mouse Lagging and Stuttering on Windows 11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-from-social-media-videos-to-audible-mp3s-one-click-conversion/"><u>2024 Approved From Social Media Videos to Audible MP3s - One Click Conversion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-no-budget-no-problem-the-finest-free-voice-alterer-for-valorant-players/"><u>2024 Approved No Budget? No Problem! The Finest Free Voice Alterer for Valorant Players</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/dynamic-dividends-boosting-social-media-roi-with-fb-ad-animations-for-2024/"><u>Dynamic Dividends Boosting Social Media ROI with FB Ad Animations for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-locked-iphone-xs-max-by-restoring-by-drfone-ios-unlock-ios-unlock/"><u>How to Unlock locked iPhone XS Max by restoring</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-sony-xperia-5-v-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Sony Xperia 5 V to Protect Your Individual Information</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-polling-puzzle-platforms-leading-politic-simulations/"><u>In 2024, Polling Puzzle Platforms Leading Politic Simulations</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-resource-for-choosing-great-podcast-names-with-examples/"><u>In 2024, The Ultimate Resource for Choosing Great Podcast Names, With Examples</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unpacking-facebooks-freshest-features-in-top-vids/"><u>In 2024, Unpacking Facebook's Freshest Features in Top Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/secure-mp4-conversion-at-your-fingertits-fb-only-for-2024/"><u>Secure MP4 Conversion at Your Fingertits – FB Only for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/troubleshooting-guide-effective-tips-for-when-itunes-refuses-to-start-up/"><u>Troubleshooting Guide: Effective Tips for When iTunes Refuses to Start Up</u></a></li>
 </ul></div>
 

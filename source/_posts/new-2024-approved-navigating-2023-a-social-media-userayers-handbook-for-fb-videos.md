@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating 2023  A Social Media User’ayer's Handbook for FB Videos\""
-date: 2024-09-11T19:32:53.994Z
-updated: 2024-09-13T18:59:53.759Z
+date: 2024-09-16T00:21:06.912Z
+updated: 2024-09-19T10:46:24.024Z
 tags:
   - ai video
   - ai facebook
@@ -43,316 +43,6 @@ Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
 
 Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Finding Saved Facebook Videos on PC
-
-Following is a step-by-step guide for finding saved Facebook videos on your PC.
-
-**Step 1: Go to Facebook**
-
-From your browser, access Facebook by going to the [website](https://www.facebook.com/).
-
-![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 2: Log in to Your Account**
-
-Here, log in to your Facebook account.
-
-![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
-
-**Step 3: Search for the "Saved” tab.**
-
-Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
-
-![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
-
-**Step 4: Click on Saved**
-
-Click on “Saved.” You will enter another interface where all your saved items will be visible.
-
-**Step 5: Choose Videos**
-
-On the right of these, you will see a filter icon where you can choose a specific type of item. Choose “Videos” in order to view all the videos you have ever saved.
-
-All the videos will be available, and you can watch whichever you want!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Finding Saved Facebook Videos on Mobile
-
-Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
-
-**Step 1: Open the Facebook app**
-
-From your home screen or apps list, open the Facebook app.
-
-![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 2: Go to Menu**
-
-From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
-
-![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 3: Go to Saved**
-
-In the Menu, scroll down to see the "Saved" tab. Click on it.
-
-![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 4: Click on “See All”**
-
-In order to view the saved video quickly, click on “See All” under the Most Recent tab.
-
-![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
-
-**Step 5: Filter the Items**
-
-Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
-
-![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
-
-**Step 6: Watch the Video**
-
-Scroll through the videos to find the one you want.
-
-The steps given above will lead you to your Saved videos.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 2\. How to Find Videos on Facebook You Recently Watched?
-
-Suppose you were watching a video that you wanted to save, but somehow it got displaced, and you cannot find it again. In that case, you can go to Facebook's recently watched videos.
-
-Here, we will help you find the Recently Watched Videos on PC and phone.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Finding Recently Watched Videos on Computer
-
-To find Facebook videos that you have watched recently on the computer, follow the steps given below.
-
-**Step 1: Log in to your Facebook**
-
-Open the browser and then go to the Facebook website. Log into your account.
-
-![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 2: Go to Your Profile**
-
-On the top right corner of the screen, you will see your name; click on it to go to your profile.
-
-**Step 3: Click on the Three Dots**
-
-Under your profile, on the right, you will see three dots. Click on them to access the dropdown menu.
-
-![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
-
-**Step 4: Go to Activity Log**
-
-From the dropdown menu, click on “Activity Log.”
-
-**Step 5: Select “Logged actions and other activity”**
-
-On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
-
-![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 6: Select “Videos you’ve watched”**
-
-From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
-
-![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Finding Recently Watched Videos on Phone
-
-Now, let's see how it works on the mobile. Follow the step-by-step guideline.
-
-**Step 1: Go to the Facebook App**
-
-Open the Facebook app and log in if you are not already logged in from your home screen or app list.
-
-**Step 2: Go to Menu**
-
-On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
-
-![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
-
-**Step 3: Go to Your Profile**
-
-From the Menu, click on your profile at the top of the screen.
-
-**Step 4: Click on the Three Dots**
-
-You will see three dots beside the "Add to Story" button. Click on them. This will take you to the Profile Settings.
-
-![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
-
-**Step 5: Go to “Activity Log”**
-
-From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
-
-![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
-
-**Step 6: Click on “Videos you’ve watched.”**
-
-From the list of activities, tap on “Videos you’ve watched.”
-
-![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Side note
-
-Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
-
-With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
-
-## Conclusion
-
-Facebook is such an all-rounded and well-thought-out application that it has everything and anything you require. It has so many useful features that assist you in expanding your social circle and easily interacting with friends and family.
-
-One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
-
-We hope it helps!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Social media apps have so much content that it almost becomes blurry while scrolling through it all. Out of all the apps, Facebook is the most used. It is one of the oldest apps with the most users and naturally has the most diversified content.
-
-We scroll past hundreds of videos daily. Some are interesting; others are not. However, there are times when we like something so much, or we wish to watch something later. So, we tap the "Save Post" option, and it gets added to our saved list.
-
-In this article, we will show you how you can access those saved Facebook videos on PC and Mobile.
-
-#### In this article
-
-Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
-
-Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
-
-## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
-
-Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
-
 ### Finding Saved Facebook Videos on PC
 
 Following is a step-by-step guide for finding saved Facebook videos on your PC.
@@ -385,13 +75,6 @@ On the right of these, you will see a filter icon where you can choose a specifi
 
 All the videos will be available, and you can watch whichever you want!
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding Saved Facebook Videos on Mobile
 
 Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
@@ -408,31 +91,11 @@ From the News Feed, click on the three bars at the bottom right corner of the sc
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Go to Saved**
 
 In the Menu, scroll down to see the "Saved" tab. Click on it.
 
 ![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Click on “See All”**
 
@@ -452,31 +115,11 @@ Scroll through the videos to find the one you want.
 
 The steps given above will lead you to your Saved videos.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Find Videos on Facebook You Recently Watched?
 
 Suppose you were watching a video that you wanted to save, but somehow it got displaced, and you cannot find it again. In that case, you can go to Facebook's recently watched videos.
 
 Here, we will help you find the Recently Watched Videos on PC and phone.
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Finding Recently Watched Videos on Computer
 
@@ -514,292 +157,6 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Finding Recently Watched Videos on Phone
-
-Now, let's see how it works on the mobile. Follow the step-by-step guideline.
-
-**Step 1: Go to the Facebook App**
-
-Open the Facebook app and log in if you are not already logged in from your home screen or app list.
-
-**Step 2: Go to Menu**
-
-On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
-
-![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 3: Go to Your Profile**
-
-From the Menu, click on your profile at the top of the screen.
-
-**Step 4: Click on the Three Dots**
-
-You will see three dots beside the "Add to Story" button. Click on them. This will take you to the Profile Settings.
-
-![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
-
-**Step 5: Go to “Activity Log”**
-
-From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
-
-![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
-
-**Step 6: Click on “Videos you’ve watched.”**
-
-From the list of activities, tap on “Videos you’ve watched.”
-
-![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
-
-The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
-
-## Side note
-
-Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
-
-With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Conclusion
-
-Facebook is such an all-rounded and well-thought-out application that it has everything and anything you require. It has so many useful features that assist you in expanding your social circle and easily interacting with friends and family.
-
-One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
-
-We hope it helps!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Social media apps have so much content that it almost becomes blurry while scrolling through it all. Out of all the apps, Facebook is the most used. It is one of the oldest apps with the most users and naturally has the most diversified content.
-
-We scroll past hundreds of videos daily. Some are interesting; others are not. However, there are times when we like something so much, or we wish to watch something later. So, we tap the "Save Post" option, and it gets added to our saved list.
-
-In this article, we will show you how you can access those saved Facebook videos on PC and Mobile.
-
-#### In this article
-
-Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
-
-Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
-
-## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
-
-Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Finding Saved Facebook Videos on PC
-
-Following is a step-by-step guide for finding saved Facebook videos on your PC.
-
-**Step 1: Go to Facebook**
-
-From your browser, access Facebook by going to the [website](https://www.facebook.com/).
-
-![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
-
-**Step 2: Log in to Your Account**
-
-Here, log in to your Facebook account.
-
-![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 3: Search for the "Saved” tab.**
-
-Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
-
-![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
-
-**Step 4: Click on Saved**
-
-Click on “Saved.” You will enter another interface where all your saved items will be visible.
-
-**Step 5: Choose Videos**
-
-On the right of these, you will see a filter icon where you can choose a specific type of item. Choose “Videos” in order to view all the videos you have ever saved.
-
-All the videos will be available, and you can watch whichever you want!
-
-### Finding Saved Facebook Videos on Mobile
-
-Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
-
-**Step 1: Open the Facebook app**
-
-From your home screen or apps list, open the Facebook app.
-
-![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 2: Go to Menu**
-
-From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
-
-![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 3: Go to Saved**
-
-In the Menu, scroll down to see the "Saved" tab. Click on it.
-
-![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
-
-**Step 4: Click on “See All”**
-
-In order to view the saved video quickly, click on “See All” under the Most Recent tab.
-
-![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
-
-**Step 5: Filter the Items**
-
-Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
-
-![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 6: Watch the Video**
-
-Scroll through the videos to find the one you want.
-
-The steps given above will lead you to your Saved videos.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 2\. How to Find Videos on Facebook You Recently Watched?
-
-Suppose you were watching a video that you wanted to save, but somehow it got displaced, and you cannot find it again. In that case, you can go to Facebook's recently watched videos.
-
-Here, we will help you find the Recently Watched Videos on PC and phone.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Finding Recently Watched Videos on Computer
-
-To find Facebook videos that you have watched recently on the computer, follow the steps given below.
-
-**Step 1: Log in to your Facebook**
-
-Open the browser and then go to the Facebook website. Log into your account.
-
-![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 2: Go to Your Profile**
-
-On the top right corner of the screen, you will see your name; click on it to go to your profile.
-
-**Step 3: Click on the Three Dots**
-
-Under your profile, on the right, you will see three dots. Click on them to access the dropdown menu.
-
-![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
-
-**Step 4: Go to Activity Log**
-
-From the dropdown menu, click on “Activity Log.”
-
-**Step 5: Select “Logged actions and other activity”**
-
-On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
-
-![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Step 6: Select “Videos you’ve watched”**
-
-From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
-
-![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -824,19 +181,6 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5: Go to “Activity Log”**
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
@@ -844,13 +188,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6: Click on “Videos you’ve watched.”**
 
@@ -904,25 +241,11 @@ From your browser, access Facebook by going to the [website](https://www.faceboo
 
 ![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Log in to Your Account**
 
 Here, log in to your Facebook account.
 
 ![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Search for the "Saved” tab.**
 
@@ -950,18 +273,18 @@ From your home screen or apps list, open the Facebook app.
 
 ![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Go to Menu**
 
 From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Go to Saved**
 
@@ -975,13 +298,6 @@ In order to view the saved video quickly, click on “See All” under the Most 
 
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5: Filter the Items**
 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
@@ -993,13 +309,6 @@ Click on the Filter icon, and a dropdown list will appear. To view all the video
 Scroll through the videos to find the one you want.
 
 The steps given above will lead you to your Saved videos.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Find Videos on Facebook You Recently Watched?
 
@@ -1027,13 +336,6 @@ Under your profile, on the right, you will see three dots. Click on them to acce
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4: Go to Activity Log**
 
 From the dropdown menu, click on “Activity Log.”
@@ -1044,38 +346,11 @@ On the left of your screen, you will see an Activity log panel. Click on "Logged
 
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6: Select “Videos you’ve watched”**
 
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Finding Recently Watched Videos on Phone
 
@@ -1109,13 +384,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
@@ -1123,11 +391,408 @@ From the list of activities, tap on “Videos you’ve watched.”
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
+
+## Side note
+
+Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
+
+With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
+
+## Conclusion
+
+Facebook is such an all-rounded and well-thought-out application that it has everything and anything you require. It has so many useful features that assist you in expanding your social circle and easily interacting with friends and family.
+
+One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
+
+We hope it helps!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Social media apps have so much content that it almost becomes blurry while scrolling through it all. Out of all the apps, Facebook is the most used. It is one of the oldest apps with the most users and naturally has the most diversified content.
+
+We scroll past hundreds of videos daily. Some are interesting; others are not. However, there are times when we like something so much, or we wish to watch something later. So, we tap the "Save Post" option, and it gets added to our saved list.
+
+In this article, we will show you how you can access those saved Facebook videos on PC and Mobile.
+
+#### In this article
+
+Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
+
+Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
+
+## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
+
+Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
+
+### Finding Saved Facebook Videos on PC
+
+Following is a step-by-step guide for finding saved Facebook videos on your PC.
+
+**Step 1: Go to Facebook**
+
+From your browser, access Facebook by going to the [website](https://www.facebook.com/).
+
+![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
+
+**Step 2: Log in to Your Account**
+
+Here, log in to your Facebook account.
+
+![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
+
+**Step 3: Search for the "Saved” tab.**
+
+Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
+
+![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
+
+**Step 4: Click on Saved**
+
+Click on “Saved.” You will enter another interface where all your saved items will be visible.
+
+**Step 5: Choose Videos**
+
+On the right of these, you will see a filter icon where you can choose a specific type of item. Choose “Videos” in order to view all the videos you have ever saved.
+
+All the videos will be available, and you can watch whichever you want!
+
+### Finding Saved Facebook Videos on Mobile
+
+Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
+
+**Step 1: Open the Facebook app**
+
+From your home screen or apps list, open the Facebook app.
+
+![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
+
+**Step 2: Go to Menu**
+
+From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
+
+![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
+
+**Step 3: Go to Saved**
+
+In the Menu, scroll down to see the "Saved" tab. Click on it.
+
+![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
+
+**Step 4: Click on “See All”**
+
+In order to view the saved video quickly, click on “See All” under the Most Recent tab.
+
+![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
+
+**Step 5: Filter the Items**
+
+Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
+
+![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
+
+**Step 6: Watch the Video**
+
+Scroll through the videos to find the one you want.
+
+The steps given above will lead you to your Saved videos.
+
+## Part 2\. How to Find Videos on Facebook You Recently Watched?
+
+Suppose you were watching a video that you wanted to save, but somehow it got displaced, and you cannot find it again. In that case, you can go to Facebook's recently watched videos.
+
+Here, we will help you find the Recently Watched Videos on PC and phone.
+
+### Finding Recently Watched Videos on Computer
+
+To find Facebook videos that you have watched recently on the computer, follow the steps given below.
+
+**Step 1: Log in to your Facebook**
+
+Open the browser and then go to the Facebook website. Log into your account.
+
+![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+
+**Step 2: Go to Your Profile**
+
+On the top right corner of the screen, you will see your name; click on it to go to your profile.
+
+**Step 3: Click on the Three Dots**
+
+Under your profile, on the right, you will see three dots. Click on them to access the dropdown menu.
+
+![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
+
+**Step 4: Go to Activity Log**
+
+From the dropdown menu, click on “Activity Log.”
+
+**Step 5: Select “Logged actions and other activity”**
+
+On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
+
+![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
+
+**Step 6: Select “Videos you’ve watched”**
+
+From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
+
+![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
+
+### Finding Recently Watched Videos on Phone
+
+Now, let's see how it works on the mobile. Follow the step-by-step guideline.
+
+**Step 1: Go to the Facebook App**
+
+Open the Facebook app and log in if you are not already logged in from your home screen or app list.
+
+**Step 2: Go to Menu**
+
+On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
+
+![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
+
+**Step 3: Go to Your Profile**
+
+From the Menu, click on your profile at the top of the screen.
+
+**Step 4: Click on the Three Dots**
+
+You will see three dots beside the "Add to Story" button. Click on them. This will take you to the Profile Settings.
+
+![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
+
+**Step 5: Go to “Activity Log”**
+
+From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
+
+![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
+
+![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+
+**Step 6: Click on “Videos you’ve watched.”**
+
+From the list of activities, tap on “Videos you’ve watched.”
+
+![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
+
+The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
+
+## Side note
+
+Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
+
+With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
+
+## Conclusion
+
+Facebook is such an all-rounded and well-thought-out application that it has everything and anything you require. It has so many useful features that assist you in expanding your social circle and easily interacting with friends and family.
+
+One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
+
+We hope it helps!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Social media apps have so much content that it almost becomes blurry while scrolling through it all. Out of all the apps, Facebook is the most used. It is one of the oldest apps with the most users and naturally has the most diversified content.
+
+We scroll past hundreds of videos daily. Some are interesting; others are not. However, there are times when we like something so much, or we wish to watch something later. So, we tap the "Save Post" option, and it gets added to our saved list.
+
+In this article, we will show you how you can access those saved Facebook videos on PC and Mobile.
+
+#### In this article
+
+Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
+
+Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
+
+## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
+
+Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
+
+### Finding Saved Facebook Videos on PC
+
+Following is a step-by-step guide for finding saved Facebook videos on your PC.
+
+**Step 1: Go to Facebook**
+
+From your browser, access Facebook by going to the [website](https://www.facebook.com/).
+
+![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
+
+**Step 2: Log in to Your Account**
+
+Here, log in to your Facebook account.
+
+![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
+
+**Step 3: Search for the "Saved” tab.**
+
+Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
+
+![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
+
+**Step 4: Click on Saved**
+
+Click on “Saved.” You will enter another interface where all your saved items will be visible.
+
+**Step 5: Choose Videos**
+
+On the right of these, you will see a filter icon where you can choose a specific type of item. Choose “Videos” in order to view all the videos you have ever saved.
+
+All the videos will be available, and you can watch whichever you want!
+
+### Finding Saved Facebook Videos on Mobile
+
+Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
+
+**Step 1: Open the Facebook app**
+
+From your home screen or apps list, open the Facebook app.
+
+![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
+
+**Step 2: Go to Menu**
+
+From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
+
+![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
+
+**Step 3: Go to Saved**
+
+In the Menu, scroll down to see the "Saved" tab. Click on it.
+
+![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
+
+**Step 4: Click on “See All”**
+
+In order to view the saved video quickly, click on “See All” under the Most Recent tab.
+
+![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
+
+**Step 5: Filter the Items**
+
+Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
+
+![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
+
+**Step 6: Watch the Video**
+
+Scroll through the videos to find the one you want.
+
+The steps given above will lead you to your Saved videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 2\. How to Find Videos on Facebook You Recently Watched?
+
+Suppose you were watching a video that you wanted to save, but somehow it got displaced, and you cannot find it again. In that case, you can go to Facebook's recently watched videos.
+
+Here, we will help you find the Recently Watched Videos on PC and phone.
+
+### Finding Recently Watched Videos on Computer
+
+To find Facebook videos that you have watched recently on the computer, follow the steps given below.
+
+**Step 1: Log in to your Facebook**
+
+Open the browser and then go to the Facebook website. Log into your account.
+
+![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+
+**Step 2: Go to Your Profile**
+
+On the top right corner of the screen, you will see your name; click on it to go to your profile.
+
+**Step 3: Click on the Three Dots**
+
+Under your profile, on the right, you will see three dots. Click on them to access the dropdown menu.
+
+![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
+
+**Step 4: Go to Activity Log**
+
+From the dropdown menu, click on “Activity Log.”
+
+**Step 5: Select “Logged actions and other activity”**
+
+On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
+
+![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
+
+**Step 6: Select “Videos you’ve watched”**
+
+From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
+
+![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
+
+### Finding Recently Watched Videos on Phone
+
+Now, let's see how it works on the mobile. Follow the step-by-step guideline.
+
+**Step 1: Go to the Facebook App**
+
+Open the Facebook app and log in if you are not already logged in from your home screen or app list.
+
+**Step 2: Go to Menu**
+
+On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
+
+![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+**Step 3: Go to Your Profile**
+
+From the Menu, click on your profile at the top of the screen.
+
+**Step 4: Click on the Three Dots**
+
+You will see three dots beside the "Add to Story" button. Click on them. This will take you to the Profile Settings.
+
+![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
+
+**Step 5: Go to “Activity Log”**
+
+From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
+
+![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
+
+![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+**Step 6: Click on “Videos you’ve watched.”**
+
+From the list of activities, tap on “Videos you’ve watched.”
+
+![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
@@ -1168,18 +833,15 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-miniature-harmonies-character-music-journey/"><u>[New] 2024 Approved Miniature Harmonies Character Music Journey</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-unveiling-iphone-features-producing-and-modifying-videos-at-a-tranquil-pace-for-2024/"><u>[New] Unveiling iPhone Features Producing and Modifying Videos at a Tranquil Pace for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fb-stream-to-sound-an-audio-conversion-tool/"><u>[Updated] 2024 Approved FB Stream to Sound An Audio Conversion Tool</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-avoid-facebook-video-ad-interruptions/"><u>[Updated] Avoid Facebook Video Ad Interruptions</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-iphone-users-learn-simple-screen-recording-now/"><u>[Updated] In 2024, Iphone Users, Learn Simple Screen Recording Now</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-social-snapshot-an-all-encompassing-2023-vlog-collection/"><u>[Updated] Social Snapshot An All-Encompassing 2023 Vlog Collection</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-turning-compressed-files-into-srt-speaking-texts-quickly/"><u>2024 Approved Turning Compressed Files Into .Srt Speaking Texts Quickly</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/best-concealed-vids-2023s-selective-8-software-guide/"><u>Best Concealed Vids - 2023'S Selective 8 Software Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/finding-the-perfect-video-dimensions-on-facebook-for-2024/"><u>Finding the Perfect Video Dimensions on Facebook for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-nubia-red-magic-9-proplus-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Nubia Red Magic 9 Pro+ Phones? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-iphone-xr-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From iPhone XR</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-tecno-pova-5-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Tecno Pova 5 Data? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mastering-network-diagnostics-how-to-employ-ping-command-for-assessing-internet-links/"><u>Mastering Network Diagnostics: How to Employ Ping Command for Assessing Internet Links</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-save-music-files-from-fb/"><u>[New] In 2024, Save Music Files From Fb</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-streaming-selection-saga-choose-between-engaging-podcasts-and-youtube-channels/"><u>[New] Streaming Selection Saga Choose Between Engaging Podcasts and YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-fans-access-more-from-your-twitch-channel-for-2024/"><u>[Updated] Facebook Fans Access More From Your Twitch Channel for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-screengrabzer-facebook-group/"><u>[Updated] ScreenGrabzer Facebook Group</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ideal-microphones-for-precision-in-4k-video-and-sound-recording/"><u>Ideal Microphones for Precision in 4K Video & Sound Recording</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-best-ios-tools-for-psp-gaming-top-5/"><u>In 2024, Best iOS Tools for PSP Gaming, Top 5</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-megafun-the-ultimate-funimate-manual/"><u>In 2024, MegaFun The Ultimate Funimate Manual</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/social-media-mastery-embedding-twitch-streams-on-fb-for-2024/"><u>Social Media Mastery Embedding Twitch Streams on FB for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/subtitle-making-from-compressed-file-extraction/"><u>Subtitle Making From Compressed File Extraction</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/transform-your-snapshots-into-shares-heres-how/"><u>Transform Your Snapshots Into Shares – Here's How</u></a></li>
 </ul></div>
 
