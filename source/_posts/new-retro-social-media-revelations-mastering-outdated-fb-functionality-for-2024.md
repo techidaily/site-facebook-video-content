@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Retro Social Media Revelations  Mastering Outdated FB Functionality for 2024\""
-date: 2024-09-13T07:43:01.111Z
-updated: 2024-09-19T09:12:57.181Z
+date: 2024-09-21T19:58:35.500Z
+updated: 2024-09-23T23:37:09.622Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,13 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -68,6 +75,13 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -87,6 +101,13 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -104,10 +125,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -132,13 +153,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -154,21 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-restarting-disrupted-streams-on-fb-fixes-for-todays-broadcasters/"><u>[New] 2024 Approved Restarting Disrupted Streams on FB Fixes for Today's Broadcasters</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-harnessing-new-trends-transmitting-fb-videos-through-whatsapp-for-2024/"><u>[New] Harnessing New Trends Transmitting FB Videos Through WhatsApp for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/orldwide-web-watchers-10-top-youtube-stars/"><u>[New] Worldwide Web Watchers 10 Top YouTube Stars</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-live-stream-screen-recorders-for-youtube/"><u>[Updated] 2024 Approved Best Live Stream Screen Recorders for YouTube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-creating-accessible-multilingual-content-on-igtv/"><u>[Updated] 2024 Approved Creating Accessible Multilingual Content on IGTV</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-decoding-the-process-of-capturing-facebooks-gifs-on-mobilepc-for-2024/"><u>[Updated] Decoding the Process of Capturing Facebook's GIFs on Mobile/PC for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-demystifying-the-symbolism-of-a-blue-marker-in-facebook-chats-for-2024/"><u>[Updated] Demystifying the Symbolism of a Blue Marker in Facebook Chats for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-your-buzz-factor-with-these-3-dynamic-approaches-to-youtube-video-reactions/"><u>[Updated] In 2024, Boost Your Buzz Factor with These 3 Dynamic Approaches to YouTube Video Reactions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-peek-at-all-shared-images-and-videos-in-chats/"><u>[Updated] In 2024, Peek at All Shared Images & Videos in Chats</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-perfecting-the-chorus-of-visual-content-on-facebook-through-music/"><u>[Updated] In 2024, Perfecting the Chorus of Visual Content on Facebook Through Music</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unleash-your-videos-convert-fb-content-to-mp4/"><u>[Updated] In 2024, Unleash Your Videos Convert FB Content to MP4</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-samsung-galaxy-m34-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Samsung Galaxy M34 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-erase-private-data-from-iphone-12-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Private Data From iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/improve-your-listening-experience-mastering-windows-10s-built-in-equalizer-features/"><u>Improve Your Listening Experience: Mastering Windows 10'S Built-In Equalizer Features</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/top-10-best-free-manga-sites-to-read-online-for-2024/"><u>Top 10 Best Free Manga Sites to Read Online for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/youtubes-iconic-counter-based-awards-system-for-2024/"><u>YouTube's Iconic Counter-Based Awards System for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-blurry-video-woes-solved-fix-on-mobile-devices/"><u>[New] 2024 Approved Blurry Video Woes Solved Fix on Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-master-10-social-media-movies/"><u>[New] 2024 Approved Master 10 Social-Media Movies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-steps-to-resume-interrupted-stream-on-fb/"><u>[New] In 2024, Steps to Resume Interrupted Stream on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-mastering-view-access-for-groups-shared-stuff/"><u>[Updated] 2024 Approved Mastering View Access for Group's Shared Stuff</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-deciphering-the-archive-reviewing-past-facebook-updates-on-pc-and-phone/"><u>[Updated] Deciphering the Archive Reviewing Past Facebook Updates on PC & Phone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-gastronomy-gurus-the-elite-of-food-vlogs/"><u>[Updated] Gastronomy Gurus The Elite of Food Vlogs</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-zero-cost-zest-the-ultimate-guide-to-free-game-film/"><u>[Updated] Zero Cost Zest The Ultimate Guide to Free Game Film</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-samsung-galaxy-f54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-repairing-failed-bluetooth-keyboard-links-with-your-computer-system/"><u>Diagnosing and Repairing Failed Bluetooth Keyboard Links with Your Computer System</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-direct-stream-from-youtube-to-facebook-without-pauses-or-holds/"><u>In 2024, Direct Stream From YouTube to Facebook without Pauses or Holds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-from-single-shots-to-spectaculary-screenshots/"><u>In 2024, From Single Shots to Spectaculary Screenshots</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-sleeper-strikers-top-10-undetected-fb-memes/"><u>In 2024, Sleeper Strikers Top 10 Undetected FB Memes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-google-pixel-8-pro-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Google Pixel 8 Pro Phone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-samsung-galaxy-f34-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Samsung Galaxy F34 5G</u></a></li>
 </ul></div>
 

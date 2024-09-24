@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Effortless FB Stream Setup  Using OBS on Laptops, Mac & PC\""
-date: 2024-09-16T11:45:41.845Z
-updated: 2024-09-19T07:04:02.213Z
+date: 2024-09-21T17:27:04.670Z
+updated: 2024-09-23T22:52:37.582Z
 tags:
   - ai video
   - ai facebook
@@ -60,6 +60,13 @@ Step 6: You also need to arrange the capture size for your videos. Adjust the ri
 
 ![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## B. Stream setting according to Facebook
 
 Once you are done with Part A then it is time to follow the guidelines as below:
@@ -68,13 +75,34 @@ Step 1: First of all you need to go to the settings.
 
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
@@ -98,6 +126,13 @@ Step 2: Now move back to your facebook page and then choose to preview.
 
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
 ![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
@@ -109,13 +144,6 @@ Step 4: Once your procedure for live streaming is complete then you are free to 
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Video tutorial
 
@@ -132,10 +160,10 @@ Step 5: This is all about how to live stream your videos over facebook directly 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -153,18 +181,25 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-yearly-recording-runners-fb-live-sessions/"><u>[New] In 2024, Yearly Recording Runners FB Live Sessions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-correcting-online-misrepresentation-seeing-yourself-elsewhere/"><u>[Updated] 2024 Approved Correcting Online Misrepresentation Seeing Yourself Elsewhere</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-immediate-audience-monitoring-tools/"><u>[Updated] 2024 Approved Immediate Audience Monitoring Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-creating-compelling-solo-videos-on-a-budget/"><u>[Updated] Creating Compelling Solo Videos on a Budget</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-your-time-best-ways-to-follow-facebook-live-for-2024/"><u>[Updated] Maximizing Your Time Best Ways to Follow Facebook Live for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-yesteryears-visions-with-reverse-scans-in-social-media-world-facebook-for-2024/"><u>[Updated] Unlocking Yesteryear's Visions with Reverse Scans in Social Media World (Facebook) for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-uploading-movies-instagram-guide/"><u>[Updated] Uploading Movies Instagram Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastering-facebooks-live-features-for-optimal-performance/"><u>2024 Approved Mastering Facebook's Live Features for Optimal Performance</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-sailing-the-streaming-seas-navigate-youtubes-numbers-for-profitability-and-popularity/"><u>2024 Approved Sailing the Streaming Seas Navigate YouTube's Numbers for Profitability & Popularity</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Does find my friends work on Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/seamless-streams-expert-guide-to-facebook-screen-sharing/"><u>Seamless Streams Expert Guide to Facebook Screen Sharing</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-epitome-of-engagement-celebrating-the-most-voted-posts-10/"><u>The Epitome of Engagement Celebrating the Most-Voted Posts (10)</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/top-3-unlimited-use-no-cost-windows-1110-dvd-ripping-tools-download-the-complete-software/"><u>Top 3 Unlimited-Use, No-Cost Windows 11/10 DVD Ripping Tools (Download the Complete Software)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-aspects-for-impactful-facebook-posts-and-videos/"><u>[New] Mastering Aspects for Impactful Facebook Posts & Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-streamsaver-fb-video-downloader-suite/"><u>[New] StreamSaver FB Video Downloader Suite</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-efficiently-stream-your-facebook-feed-on-pcmaclaptop/"><u>[Updated] 2024 Approved Efficiently Stream Your Facebook Feed on PC/Mac/Laptop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-highest-hits-facebooks-favorite-videos/"><u>[Updated] Highest Hits Facebook's Favorite Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-delete-facebook-story-in-2024/"><u>[Updated] How to Delete Facebook Story, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-8-free-and-online-facebook-link-downloaders/"><u>[Updated] In 2024, 8 Free And Online Facebook Link Downloaders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlocking-live-streams-rokus-path-to-fb-live/"><u>[Updated] In 2024, Unlocking Live Streams Roku's Path to FB LIVE</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-optimizing-television-access-to-facebook-events/"><u>[Updated] Optimizing Television Access to Facebook Events</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-troubleshooting-video-interruptions-on-facebook-live/"><u>[Updated] Troubleshooting Video Interruptions on Facebook LIVE</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2022-ice-dancing-showcase-review-for-2024/"><u>2022 Ice Dancing Showcase Review for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-deciphering-androids-lightroom-capabilities/"><u>2024 Approved Deciphering Android's Lightroom Capabilities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-from-basic-to-breakthrough-a-youtube-live-thumbnail-journey/"><u>2024 Approved From Basic to Breakthrough A YouTube Live Thumbnail Journey</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-quick-ways-to-retain-live-chat-transcripts/"><u>2024 Approved Quick Ways to Retain Live Chat Transcripts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/becoming-a-video-marketing-vanguard-on-facebook-with-these-20-methods/"><u>Becoming a Video Marketing Vanguard on Facebook with These 20 Methods</u></a></li>
+<li><a href="https://video-capture.techidaily.com/beyondbaselinecameras-whats-upnext-in-2024/"><u>BeyondBaselineCameras What's UpNext, In 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/circling-the-globe-in-one-shot-versus-layered-visuals-for-2024/"><u>Circling the Globe in One Shot Versus Layered Visuals for 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/explore-the-best-digital-book-management-with-calibre-e-reader-tool/"><u>Explore the Best Digital Book Management with Calibre E-Reader Tool</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-15-pro-by-drfone-ios/"><u>In 2024, Protecting Your Privacy How To Remove Apple ID From Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/laughterlink-join-now-and-start-your-journey-for-2024/"><u>LaughterLink Join Now & Start Your Journey for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-un65nu8000fxza-review-a-mediocre-smart-tv-at-a-high-price/"><u>Samsung UN65NU8000FXZA Review: A Mediocre Smart TV at a High Price</u></a></li>
 </ul></div>
 

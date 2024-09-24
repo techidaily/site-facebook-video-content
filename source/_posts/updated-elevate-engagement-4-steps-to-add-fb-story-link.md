@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Elevate Engagement  4 Steps to Add FB Story Link\""
-date: 2024-09-16T18:48:28.266Z
-updated: 2024-09-18T19:30:57.312Z
+date: 2024-09-18T22:47:11.660Z
+updated: 2024-09-23T16:51:22.908Z
 tags:
   - ai video
   - ai facebook
@@ -67,23 +67,31 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 
 ![add WhatsApp status](https://images.wondershare.com/filmora/article-images/add-whatsapp-status.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** On your status page, you can add the link you want people to see. Now, share the link. Once done, right below your My Status, you will see an option “Share to Facebook Story.” To cross-post your WhatsApp status with the link, please click on “Share to Facebook Story.”
 
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Add YouTube Video Link on Facebook Story?
@@ -93,6 +101,13 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 **Step 1:** First, launch the YouTube app on your mobile device or open it on a browser, and find the YouTube video and open it. Here I will show you how to share a YouTube video link to Facebook Story with a browser.
 
 ![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
@@ -112,15 +127,22 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 
 ![add swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-swipe-up-button-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** On your story page, you see a link icon. Click on that, and you will be able to add the link you want to add to the story. Choose any of the buttons, and the link will now be ready.
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Please note that the swipe option will be visible to your audience only after you have added the link.
@@ -144,25 +166,11 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 So, that’s it. These are some ways to **add a link to** your **Facebook story.** We hope this article has been helpful to you. Leverage this feature if you are a business page or an influencer and want more people to engage with your website and your brand.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -179,12 +187,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-tips-to-shield-your-viewing-experience-from-unwanted-ads/"><u>[New] In 2024, Tips to Shield Your Viewing Experience From Unwanted Ads</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-10-must-have-tech-gadgets-for-seamless-video-meetings/"><u>[Updated] 2024 Approved 10 Must-Have Tech Gadgets for Seamless Video Meetings</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-premium-free-excellence-analyzing-and-sharing-best-free-luts/"><u>2024 Approved Premium-Free Excellence Analyzing and Sharing Best Free LUTs</u></a></li>
-<li><a href="https://win-blog.techidaily.com/battlefield-10/"><u>Battlefield 지 드레이 제거 방법: 최고의 10가지 전략</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-captivate-and-convert-creating-high-roi-animated-ads-on-facebook/"><u>In 2024, Captivate and Convert Creating High-ROI Animated Ads on Facebook</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcoming-the-obstacles-of-final-release-expert-fixes-games/"><u>Overcoming the Obstacles of Final Release: Expert Fixes Games</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/turn-your-watched-fb-video-into-an-mp3-file/"><u>Turn Your Watched FB Video Into an MP3 File</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-all-access-fb-melodic-streaming-for-2024/"><u>[New] All-Access FB Melodic Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-master-10-social-media-movies/"><u>[Updated] 2024 Approved Master 10 Social-Media Movies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unveiling-past-images-3-approaches-for-fb-reverse-search/"><u>[Updated] 2024 Approved Unveiling Past Images 3 Approaches for FB Reverse Search</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-crafting-the-rhythm-adding-beats-and-melodies-to-your-fb-vids/"><u>[Updated] Crafting the Rhythm Adding Beats and Melodies to Your FB Vids</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-command-and-conquer-triumphant-tales-of-the-best-7-total-wars/"><u>[Updated] In 2024, Command & Conquer Triumphant Tales of the Best 7 Total Wars</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-watermarks-safeguard-your-digital-pictures/"><u>[Updated] In 2024, How Watermarks Safeguard Your Digital Pictures</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-utilizing-fb-features-for-broadcasting-historical-video-footage/"><u>[Updated] In 2024, Utilizing FB Features for Broadcasting Historical Video Footage</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-beyond-borders-with-virtual-reality-tours/"><u>2024 Approved Beyond Borders with Virtual Reality Tours</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-magical-image-maker-turning-pictures-into-cartoons-on-devices/"><u>2024 Approved Magical Image Maker Turning Pictures Into Cartoons on Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-music-video-madness-top-10-on-social-sphere/"><u>2024 Approved Music Video Madness Top 10 on Social Sphere</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/digital-broadcasting-service-review/"><u>Digital Broadcasting Service Review</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oneplus-nord-n30-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock OnePlus Nord N30 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-common-problems-getting-your-aol-mail-up-and-running-on-iphones-with-6-solutions/"><u>Overcoming Common Problems - Getting Your AOL Mail Up and Running on iPhones with 6 Solutions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/stream-media-manage-and-share-with-ms-vision/"><u>Stream Media, Manage & Share with MS Vision</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-gaming-pcs-within-budget-less-than-1500/"><u>Top-Rated Gaming PCs Within Budget: Less Than $1,500</u></a></li>
 </ul></div>
 
