@@ -527,16 +527,5 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-enhance-your-tv-experience-mastering-fb-live-and-roku-for-2024/"><u>[New] Enhance Your TV Experience Mastering FB Live and Roku for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-syncing-speed-and-quality-in-lunapic-edits-for-2024/"><u>[New] Syncing Speed and Quality in LunaPic Edits for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-uncover-clarity-a-detailed-guide-to-purging-backgrounds-with-affinity/"><u>[New] Uncover Clarity A Detailed Guide to Purging Backgrounds with Affinity</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-the-ultimate-8-top-collaborative-video-collage-tools-on-android-affordable/"><u>[Updated] The Ultimate 8 Top Collaborative Video Collage Tools on Android (Affordable)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-uncovering-your-just-watched-list-on-facebook-for-2024/"><u>[Updated] Uncovering Your Just-Watched List on Facebook for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-faces-data-collection-hurdles-with-ios-145/"><u>Facebook Faces Data Collection Hurdles with iOS 14.5</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebooks-visual-journey-capturing-videos/"><u>In 2024, Facebook's Visual Journey Capturing Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-zdsoft-capture-master-overview-and-evaluation/"><u>In 2024, ZDSoft Capture Master Overview & Evaluation</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Google Pixel 8? | Dr.fone</u></a></li>
-</ul></div>
+
 

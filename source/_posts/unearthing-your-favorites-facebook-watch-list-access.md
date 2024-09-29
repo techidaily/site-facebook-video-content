@@ -560,18 +560,5 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-explore-the-world-of-fb-live-broadcasting-for-2024/"><u>[New] Explore the World of FB Live Broadcasting for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-prime-8-the-elite-select-for-facebook-movies-in-23/"><u>[New] In 2024, Prime 8 The Elite Select for Facebook Movies in '23</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-engage-followers-effective-strategies-for-fb-slideshows/"><u>[Updated] 2024 Approved Engage Followers Effective Strategies for FB Slideshows</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-enable-youtube-videos-to-self-play-on-facebook/"><u>[Updated] 2024 Approved How to Enable Youtube Videos to Self-Play on Facebook</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-complete-capture-master-az-reviews-and-backups/"><u>[Updated] Complete Capture Master - AZ Reviews & Backups</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-elite-5-drones-perfect-choices-for-experts-for-2024/"><u>[Updated] Elite 5 Drones Perfect Choices for Experts for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-cutting-edge-simple-win-11-recorders/"><u>2024 Approved Cutting-Edge Simple Win 11 Recorders</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-reimagining-your-images-effective-uses-of-the-background-eraser-in-adobe-photoshop/"><u>2024 Approved Reimagining Your Images Effective Uses of the Background Eraser in Adobe Photoshop</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-vivo-y28-5g-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Vivo Y28 5G FRP Bypass Instantly</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/creating-a-strong-brand-voice-with-social-media-videos-for-2024/"><u>Creating a Strong Brand Voice with Social Media Videos for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-samsung-galaxy-a15-4g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Samsung Galaxy A15 4G? Fixed | Dr.fone</u></a></li>
-</ul></div>
+
 
