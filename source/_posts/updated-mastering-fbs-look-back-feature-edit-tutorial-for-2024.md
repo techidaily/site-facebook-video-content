@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB's Look Back Feature  Edit Tutorial for 2024\""
-date: 2024-09-20T22:16:44.361Z
-updated: 2024-09-23T20:25:05.377Z
+date: 2024-09-24T19:19:06.626Z
+updated: 2024-09-29T18:45:49.180Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3. Edit the audio of Look Back video
 
  To adjust the background music of Look Back video, double click the video on the Timeline. In the pop up editing panel, switch to Audio column and change the Speed, Volume, Pitch of the audio file or add the Fade in/out effect as you like.
@@ -71,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4. Add more effects to your Look Back video
@@ -86,10 +93,10 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
@@ -103,20 +110,13 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -132,5 +132,22 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-mastering-fb-video-in-hd-1080p-techniques/"><u>[New] 2024 Approved Mastering FB Video in HD 1080P Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-art-of-adding-audio-to-visual-content-for-facebook-sharing/"><u>[New] 2024 Approved The Art of Adding Audio to Visual Content for Facebook Sharing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-top-6-facebook-lite-video-downloaders/"><u>[New] 2024 Approved Top 6 Facebook Lite Video Downloaders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fbs-viral-anthems-list-crafting-your-number-one-song-for-2024/"><u>[New] FB's Viral Anthems List Crafting Your Number One Song for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-perfecting-the-chorus-of-visual-content-on-facebook-through-music/"><u>[Updated] 2024 Approved Perfecting the Chorus of Visual Content on Facebook Through Music</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-fb-sounds-unlimited-grab-and-go/"><u>[Updated] In 2024, FB Sounds Unlimited Grab & Go</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-learning-vector-artistry-an-overview-for-starters-and-software-picks/"><u>[Updated] Learning Vector Artistry An Overview for Starters & Software Picks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-strategies-for-penning-persuasive-vlogger-content-for-2024/"><u>[Updated] Strategies for Penning Persuasive Vlogger Content for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-superfast-fb-downloader-mp4-files-in-minutes-for-2024/"><u>[Updated] SuperFast FB Downloader MP4 Files in Minutes for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-maximizing-creativity-on-tiktok-essential-elements-overview/"><u>2024 Approved Maximizing Creativity on TikTok Essential Elements Overview</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/get-back-to-seamless-transfers-fixing-faulty-airdrop-links-for-2024/"><u>Get Back to Seamless Transfers Fixing Faulty Airdrop Links for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-comprehensible-guide-for-novices-crafting-professional-tiktok-edits/"><u>In 2024, Comprehensible Guide for Novices Crafting Professional TikTok Edits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-titling-techniques-an-after-effects-perspective/"><u>In 2024, Titling Techniques An After Effects Perspective</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-freestyle-producers-guide-2023s-no-cost-audio-mixing-leaders/"><u>The Freestyle Producers Guide 2023S No-Cost Audio Mixing Leaders</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-x8b-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on X8b without backup.</u></a></li>
+</ul></div>
 

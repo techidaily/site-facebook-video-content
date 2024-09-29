@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Facebook Slideshow  How to Create a Slideshow on Facebook\""
-date: 2024-09-19T01:14:10.248Z
-updated: 2024-09-23T23:51:18.559Z
+date: 2024-09-26T19:29:21.449Z
+updated: 2024-09-29T18:27:55.241Z
 tags:
   - ai video
   - ai facebook
@@ -51,13 +51,6 @@ Check the ultimate guide about [Making a slideshow with music and titles in Film
 
 ## Part 2: How to Create a Slideshow on Facebook Easily
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 1: Start making a Facebook slideshow
 
 First of all, you need to open the Facebook application on iOS and Android phones and then move to the Status Update section. Here you will find the slideshow option near the frequently used photo upload option. The second option is, whenever you find a new slideshow sharing from any of your friends on your Facebook timeline, you can tap the “Try it” button over this post, it will immediately take you to the slideshow creation section.
@@ -65,10 +58,23 @@ First of all, you need to open the Facebook application on iOS and Android phone
 ![start create facebook slideshow](https://images.wondershare.com/filmora/article-images/facebook-slideshow-update-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Now choose one theme
@@ -77,31 +83,24 @@ Now select photos that you wish to add to your slideshow, you can also add video
 
 ![facebook slideshow library](https://images.wondershare.com/filmora/article-images/facebook-slideshow-library.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3: Edit Facebook slideshow
 
 The Edit option allows you to delete an image and adjust the order of the photos and videos that you want them to appear in the slideshow. In case if you want to remove any of your added images from the slideshow then simply tap on that particular image and you will find a trash icon on the screen. Tap that option. There is a More button on your screen, using this button you can easily add titles at the beginning of your slideshow as well as put your friends in the tag list. Now go to the preview option and check the quality of your slide show. You can also watch videos in any editing stage and all changes can be updated immediately. Note that adding more photos or videos to the slideshow means you are going to have a lengthy slideshow.
 
 ![how to create a slideshow on facebook](https://images.wondershare.com/filmora/filmorapro/edit-facebook-slideshow.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 4: Publish Facebook slideshow
 
 Once you are satisfied with this newly created slideshow, then move to the right-hand cornet on top of your device screen and tap the Done button. Now your post will be ready for uploading on the timeline. It will now open a new screen where you can use the tag friends option, update location, feelings, or caption for slideshow. Once all these things are updated then tap the Post button.
 
 **Note:** Those who are not able to find the Slideshow preview option on their timeline can simply use the Try it features from any existing slideshow type post on their timeline.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Tips for Optimizing Your Slideshow Video for Facebook
 
@@ -119,15 +118,22 @@ Now, you must know how to make a Facebook slideshow. If you want to make a slide
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **You may also like:** [Create a Facebook Photo Slideshow with Music](https://tools.techidaily.com/wondershare/filmora/download/) with [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,5 +149,20 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-maximizing-engagement-with-dual-screen-broadcasting-techniques-in-facebook/"><u>[New] In 2024, Maximizing Engagement with Dual-Screen Broadcasting Techniques in Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-fbs-viral-hits-10-songs-that-scored-big-for-2024/"><u>[New] Mastering FB's Viral Hits - 10 Songs That Scored Big for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-solving-problems-missing-facebook-video-suggestions-for-2024/"><u>[New] Solving Problems Missing Facebook Video Suggestions for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-conceptualizing-shorter-vids-for-instagram-with-mac/"><u>[Updated] Conceptualizing Shorter Vids for Instagram with Mac</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-pursuit-of-excellence-tips-for-shooting-with-hero5-black/"><u>[Updated] In Pursuit of Excellence Tips for Shooting with Hero5 Black</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-engagement-choosing-your-fb-video-direction/"><u>[Updated] Maximizing Engagement - Choosing Your FB Video Direction</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-top-five-transformative-facebook-traits-for-2024/"><u>[Updated] Unlocking Top Five Transformative Facebook Traits for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-crafting-compelling-online-presence-incorporating-wirecast-into-fb-streams/"><u>In 2024, Crafting Compelling Online Presence Incorporating Wirecast Into FB Streams</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-moment-of-glory-snapshots-in-win-os/"><u>In 2024, Moment of Glory Snapshots in Win OS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/instant-recovery-of-vanished-reddit-topics/"><u>Instant Recovery of Vanished Reddit Topics</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-step-by-step-process-of-wiping-your-dell-pc/"><u>Ultimate Guide: Step-by-Step Process of Wiping Your Dell PC</u></a></li>
+</ul></div>
 

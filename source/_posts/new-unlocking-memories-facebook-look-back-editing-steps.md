@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Memories  Facebook Look Back Editing Steps\""
-date: 2024-09-17T04:31:08.922Z
-updated: 2024-09-19T07:27:55.696Z
+date: 2024-09-28T18:52:32.817Z
+updated: 2024-09-29T18:48:03.455Z
 tags:
   - ai video
   - ai facebook
@@ -56,11 +56,25 @@ thumbnail: https://thmb.techidaily.com/c6867ae9c4f4e3df3c9379b15f4163ebd35319a50
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -76,7 +90,21 @@ thumbnail: https://thmb.techidaily.com/c6867ae9c4f4e3df3c9379b15f4163ebd35319a50
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -104,12 +132,22 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-top-6-tools-to-download-lite-videos-from-facebook/"><u>[New] 2024 Approved Top 6 Tools to Download Lite Videos From Facebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unlocking-a-world-of-talent-with-the-top-10-low-cost-youtube-creators/"><u>[New] 2024 Approved Unlocking a World of Talent with the Top 10 Low-Cost YouTube Creators</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-masterful-mp4-transformation-tools-facebook-edition/"><u>[New] In 2024, Masterful MP4 Transformation Tools (Facebook Edition)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/parking-viewers-interest-top-youtube-themes-for-channels-for-2024/"><u>[New] Sparking Viewers' Interest Top YouTube Themes for Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-ultimate-strategy-for-creating-viral-hashtags-on-facebook-for-2024/"><u>[New] The Ultimate Strategy for Creating Viral Hashtags on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-power-play-enhancing-your-pages-popularity-ranking/"><u>[Updated] 2024 Approved The Power Play Enhancing Your Page's Popularity Ranking</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-cryptic-conundrums-bidding-on-the-invisible-artifacts-of-2023/"><u>[Updated] Cryptic Conundrums Bidding on the Invisible Artifacts of 2023</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-reverse-image-search-facebook/"><u>[Updated] How to Reverse Image Search Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-essential-guide-sync-your-screen-to-facebook-streams/"><u>[Updated] In 2024, Essential Guide Sync Your Screen to Facebook Streams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-novices-route-to-rapidly-play-videos-on-snapchat-for-2024/"><u>[Updated] The Novice's Route to Rapidly Play Videos on Snapchat for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Oppo K11 5G? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-locked-iphone-xs-by-restoring-by-drfone-ios-unlock-ios-unlock/"><u>How to Unlock locked iPhone XS by restoring</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ating-youtube-sharing-with-google-credentials-for-2024/"><u>Navigating YouTube Sharing with Google Credentials for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-fun-and-skills-the-ultimate-dji-robomaster-s1-drones-an-inspiring-tech-review/"><u>Unleashing Fun & Skills: The Ultimate DJI RoboMaster S1 Drones - An Inspiring Tech Review</u></a></li>
+</ul></div>
 
