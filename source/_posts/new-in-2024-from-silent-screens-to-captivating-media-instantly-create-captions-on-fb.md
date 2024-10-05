@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Silent Screens to Captivating Media  Instantly Create Captions on FB\""
-date: 2024-09-25T18:20:55.916Z
-updated: 2024-09-29T16:53:17.746Z
+date: 2024-10-04T06:07:10.166Z
+updated: 2024-10-05T02:05:06.453Z
 tags:
   - ai video
   - ai facebook
@@ -64,13 +64,6 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
@@ -78,10 +71,10 @@ It is convenient to create captions in Facebook with the automatic generate tool
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here are few simple to follow steps
@@ -91,10 +84,16 @@ Here are few simple to follow steps
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
@@ -117,13 +116,20 @@ Once you have finished the text based editing task then hit the Export option av
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -140,24 +146,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-android-music-integration-a-guide-to-social-media-playlists-for-2024/"><u>[Updated] Android Music Integration A Guide to Social Media Playlists for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-crafting-your-online-identity-a-facebook-tutorial/"><u>[Updated] Crafting Your Online Identity A Facebook Tutorial</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-apple-tv-and-facebook-integration-watching-videos-easily/"><u>[Updated] In 2024, Apple TV and Facebook Integration Watching Videos Easily</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-maximize-your-fb-watching-with-top-firefox-addons-and-downloaders/"><u>[Updated] Maximize Your FB Watching with Top Firefox Addons and Downloaders</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-smart-solutions-top-6-fb-lite-extractors-for-2024/"><u>[Updated] Smart Solutions #Top 6 FB Lite Extractors for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-adding-the-latest-social-media-snapchat-to-mac/"><u>2024 Approved Adding the Latest Social Media Snapchat to Mac</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-stop-motion-films-the-ultimate-15-list/"><u>2024 Approved Pioneering Stop-Motion Films - The Ultimate 15 List</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/exploring-the-fitbit-versa-2-a-detailed-insight-into-its-smartwatch-capabilities-and-fitness-tracking-excellence/"><u>Exploring the Fitbit Versa 2 – A Detailed Insight Into Its Smartwatch Capabilities and Fitness Tracking Excellence</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/o-monetize-your-youtube-shorts-simple-steps-for-2024/"><u>How to Monetize Your YouTube Shorts Simple Steps for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-digging-deep-into-facebooks-short-video-shift-the-2023-scenario/"><u>In 2024, Digging Deep Into Facebook's Short Video Shift The 2023 Scenario</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-master-your-fb-video-archive-with-1-5-choices/"><u>In 2024, Master Your FB Video Archive with #1-5 Choices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-top-8-best-kept-video-download-secrets/"><u>In 2024, Top 8 Best-Kept Video Download Secrets</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/keep-it-hot-ideas-for-uninterrupted-snapchat-connections/"><u>Keep It Hot - Ideas for Uninterrupted Snapchat Connections</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/pioneering-giants-in-vr-development-for-2024/"><u>Pioneering Giants in VR Development for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/quick-fixes-a-comprehensive-guide-to-downloading-and-setting-up-your-scansnap-s1100/"><u>Quick Fixes: A Comprehensive Guide to Downloading and Setting Up Your Scansnap S1100</u></a></li>
-<li><a href="https://os-tips.techidaily.com/safely-recovering-touch-id-and-settings-icons-on-an-iphone-a-step-by-step-tutorial/"><u>Safely Recovering Touch ID and Settings Icons on an iPhone: A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/steps-to-fix-disconnected-pc-from-wireless-lan/"><u>Steps to Fix Disconnected PC From Wireless LAN</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/the-irrelevance-of-licensing-in-truth/"><u>The Irrelevance of Licensing in Truth</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-oppo-a18-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Oppo A18 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2023s-leading-youtube-and-facebook-collaboration-8-essential-views/"><u>[New] 2023'S Leading YouTube & Facebook Collaboration - 8 Essential Views</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-sweep-through-your-contacts-with-speed-and-skill/"><u>[New] 2024 Approved Sweep Through Your Contacts with Speed and Skill</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-tailoring-your-content-for-split-screen-audiences-via-facebook-lives/"><u>[New] 2024 Approved Tailoring Your Content for Split Screen Audiences via Facebook Lives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-organize-and-download-fb-links-optimized-tools-for-23/"><u>[New] In 2024, Organize and Download FB Links Optimized Tools for '23</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-reddit-user-bio-image-guide-size-in-pixels-type-length/"><u>[Updated] 2024 Approved Reddit User Bio Image Guide Size in Pixels, Type, Length</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-countdown-chronicles-the-best-mobile-clocks-for-weddings/"><u>[Updated] Countdown Chronicles The Best Mobile Clocks For Weddings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-propel-your-presence-on-facebook-mastering-the-art-of-going-live/"><u>[Updated] In 2024, Propel Your Presence on Facebook Mastering the Art of Going Live</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-beyond-the-screen-ultimate-vr-gadget-guide/"><u>2024 Approved Beyond the Screen - Ultimate VR Gadget Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-expert-tips-for-maximizing-vscos-potential/"><u>2024 Approved Expert Tips for Maximizing VSCO's Potential</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-secrets-for-striking-fb-video-promos/"><u>2024 Approved Secrets for Striking FB Video Promos</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hassle-free-download-for-canon-ts6200-drivers-with-easy-update-feature/"><u>Hassle-Free Download for Canon TS6200 Drivers with Easy Update Feature</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-13-mini-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 13 mini</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/rise-and-shine-wondershare-filmora-easter-sale-brings-you-unbeatable-offers/"><u>Rise and Shine Wondershare Filmora Easter Sale Brings You Unbeatable Offers</u></a></li>
+<li><a href="https://driver-download.techidaily.com/solution-guide-getting-your-logitech-g433-microphone-working-again/"><u>Solution Guide: Getting Your Logitech G433 Microphone Working Again</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Xiaomi 13T | Dr.fone</u></a></li>
 </ul></div>
 

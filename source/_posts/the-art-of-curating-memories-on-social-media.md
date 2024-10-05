@@ -1,7 +1,7 @@
 ---
 title: "The Art of Curating Memories on Social Media"
-date: 2024-08-25T04:09:23.074Z
-updated: 2024-08-26T04:09:23.074Z
+date: 2024-10-02T18:14:46.300Z
+updated: 2024-10-04T17:52:05.729Z
 tags:
   - ai video
   - ai facebook
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -56,11 +63,25 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -77,6 +98,13 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -97,14 +125,29 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-ultimate-fb-media-downloader-optimized-for-firefox-use/"><u>[New] In 2024, Ultimate FB Media Downloader Optimized for Firefox Use</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-laughlens-lab-jestjokester-co/"><u>[New] LaughLens Lab JestJokester Co</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aster-the-art-of-live-streaming-with-google-meet-on-youtube/"><u>[New] Master the Art of Live Streaming with Google Meet on YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unlocking-social-networks-the-pathway-to-a-facebook-profile/"><u>[Updated] 2024 Approved Unlocking Social Networks The Pathway to a Facebook Profile</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-strategies-for-clearer-facebook-live-footage-viewing/"><u>[Updated] In 2024, Strategies for Clearer Facebook Live Footage Viewing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-synchronizing-tweeted-videos-on-social-media-hub-fb/"><u>2024 Approved Synchronizing Tweeted Videos on Social Media Hub FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/access-recovery-mastering-post-hack-facebook-fixes/"><u>Access Recovery Mastering Post-Hack Facebook Fixes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/advancing-audible-experience-safely-on-spotify-platforms/"><u>Advancing Audible Experience Safely on Spotify Platforms</u></a></li>
+<li><a href="https://techtrends.techidaily.com/gmail-two-factor-security-setup-easy-instructions-to-boost-email-safety/"><u>Gmail Two-Factor Security Setup: Easy Instructions to Boost Email Safety</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-top-techniques-for-effortless-documentation-of-your-online-classesmeets/"><u>In 2024, Top Techniques for Effortless Documentation of Your Online Classes/Meets</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/installing-bavarder-linuxs-chatgpt-routine/"><u>Installing Bavarder: Linux's ChatGPT Routine</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/maximizing-your-social-reach-with-dual-display-facebook-streaming-for-2024/"><u>Maximizing Your Social Reach with Dual Display Facebook Streaming for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/precision-editing-made-easy-top-5-techniques-for-trimming-and-cutting-vimeo-footage-for-2024/"><u>Precision Editing Made Easy Top 5 Techniques for Trimming & Cutting Vimeo Footage for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/transitioning-gaming-sessions-xbox-live-to-fb-live/"><u>Transitioning Gaming Sessions Xbox Live to FB Live</u></a></li>
+</ul></div>
+

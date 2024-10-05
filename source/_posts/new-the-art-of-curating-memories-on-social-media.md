@@ -1,7 +1,7 @@
 ---
 title: "[New] The Art of Curating Memories on Social Media"
-date: 2024-08-25T04:15:06.187Z
-updated: 2024-08-26T04:15:06.187Z
+date: 2024-10-01T04:57:17.933Z
+updated: 2024-10-04T20:33:06.305Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,13 @@ thumbnail: https://www.lifewire.com/thmb/P0QyF38Ep8_lzjW96Ki5Fahgu6k=/540x405/fi
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3. Edit the audio of Look Back video
 
  To adjust the background music of Look Back video, double click the video on the Timeline. In the pop up editing panel, switch to Audio column and change the Speed, Volume, Pitch of the audio file or add the Fade in/out effect as you like.
@@ -70,11 +77,25 @@ thumbnail: https://www.lifewire.com/thmb/P0QyF38Ep8_lzjW96Ki5Fahgu6k=/540x405/fi
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -91,13 +112,18 @@ thumbnail: https://www.lifewire.com/thmb/P0QyF38Ep8_lzjW96Ki5Fahgu6k=/540x405/fi
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -105,6 +131,18 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-capture-and-share-the-essentials-for-posting-video-in-every-direction-on-fb/"><u>[New] 2024 Approved Capture and Share The Essentials for Posting Video in Every Direction on FB</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-obs-setup-guide-for-macos-downloading-and-setting-up/"><u>[New] OBS Setup Guide for macOS Downloading & Setting Up</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-dimming-down-soundtracks-in-premiere-pro/"><u>[New] The Ultimate Guide to Dimming Down Soundtracks in Premiere Pro</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-mastering-the-art-of-setting-up-and-evaluating-facebooks-in-stream-ads/"><u>[Updated] 2024 Approved Mastering the Art of Setting Up & Evaluating Facebook's In-Stream Ads</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-e-learning-hubs-an-alternate-to-udemys-world-for-2024/"><u>[Updated] Elite E-Learning Hubs An Alternate to Udemy's World for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-autoplay-youtube-videos-on-facebook/"><u>[Updated] How to Autoplay Youtube Videos on Facebook?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tricks-for-making-fb-ads-pop-up-on-screen-for-2024/"><u>[Updated] Tricks for Making FB Ads Pop Up on Screen for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-nubia-z50s-pro-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Nubia Z50S Pro in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/step-by-step-troubleshooting-overcoming-the-data-recovery-attempt-issue-on-iphones/"><u>Step-by-Step Troubleshooting: Overcoming the 'Data Recovery Attempt' Issue on iPhones</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-for-inspecting-a-pc-for-hidden-spyware/"><u>Steps for Inspecting a PC for Hidden Spyware</u></a></li>
+</ul></div>
+
