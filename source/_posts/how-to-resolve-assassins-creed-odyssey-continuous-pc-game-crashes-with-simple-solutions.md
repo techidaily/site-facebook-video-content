@@ -1,7 +1,7 @@
 ---
 title: How to Resolve Assassin's Creed Odyssey Continuous PC Game Crashes with Simple Solutions
-date: 2024-08-17T18:00:40.426Z
-updated: 2024-08-18T18:00:40.426Z
+date: 2024-10-03T17:36:27.237Z
+updated: 2024-10-09T17:34:47.041Z
 tags:
   - win11
   - win10
@@ -50,6 +50,19 @@ Hell Let Loose
 5. **[Stop overclocking](https://tools.techidaily.com/drivereasy/download/)**
 6. [**Perform a clean boot**](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 1: Verify the game files
 
  Corrupted or missing game files may lead to game crashing issues. In this case, you need to verify and repair the game files. Don’t worry. It’s quite easy! Here’s how to do it:
@@ -59,14 +72,8 @@ Hell Let Loose
 2. Click **LOCAL FILES** on the left, then click **Verify integrity of game files…** . If Steam finds anything wrong with the game files, it will re-download them from official server. It may take some time to complete the verifying process.  
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
  Launch the game after the verifying process completed and see if HLL crashes again. If this issue persists, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## Fix 2: Update your graphics driver
 
  Graphics driver is essential to the functioning of video games. The outdated or broken graphics driver often crashes the game.
@@ -85,18 +92,36 @@ Hell Let Loose
 2. Run Driver Easy and click **Scan Now** . Driver Easy will then scan your computer and detect any problem drivers.  
 ![Driver Easy Scan Now](https://images.drivereasy.com/wp-content/uploads/2021/03/Driver-Easy-Scan-Now.jpg)
 3. Click the **Update** button next to a device to automatically download the correct version of their driver, then you can manually install the driver (you can do this with the FREE version).  
+
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Or click **Update All**  to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the [Pro version](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).  
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)
 4. Restart your PC after you finished updating your graphics driver.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  See if the latest graphics driver stops the Hell Let Loose from crashing. If not, don’t worry. Try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 3: Install the latest game patch
 
@@ -106,9 +131,6 @@ Hell Let Loose
 
  Run Hell Let Loose again to check whether the game crash issue has been resolved. If it didn’t work, or there was no new game patch available, move on to next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Fix 4: Disable Steam Overlay
 
  Although Overlays are handy, sometimes they may interfere with the game. According to some PC players, it seems that the Steam Overlay doesn’t pair well with HLL. Try disabling Steam Overlay for HLL and see if the game crashes again. Here is how to do it:
@@ -116,9 +138,14 @@ Hell Let Loose
 1. Launch Steam and navigate to **the LIBRARY tab** .**right-click** on _Hell Let Loose_ . Then select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 2. Uncheck**Enable Steam Overlay while in-game** .  
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Disable Steam Overlay](https://images.drivereasy.com/wp-content/uploads/2021/04/Disable-Steam-Overlay.jpg)
 
  If you’re using other apps with overlay features like Discord, Nvidia GeForce Experience, Twitch, etc., ensure that you’ve disabled the in-game overlay in those apps feature before you restart the game.
@@ -134,9 +161,12 @@ Hell Let Loose
  See if HLL crashes after you stopped overclocking. If this fix failed to resolve this issue, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Fix 6: Perform a clean boot
 
  Another possible cause of the HLL crashing issue is program conflicts. If there is a certain program conflicting with HLL, it will lead to the crashing issues. In this case, you need to perform a clean boot to find out the problematic program that crashes the game. Here's how to do it:
@@ -148,21 +178,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 3. Select the **Startup** tab and click **Open Task Manager** .  
 ![system configuration](https://images.drivereasy.com/wp-content/uploads/2019/08/system-configuration2.png)
 4. On the **Startup** tab in **Task Manager** , for **each** startup item, select the item and then click **Disable** .  
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![system configuration](https://images.drivereasy.com/wp-content/uploads/2019/08/system-configuration3.png)
 5. Go back to the **System Configuration** window and click **OK** .  
-![system configuration](https://images.drivereasy.com/wp-content/uploads/2019/08/system-configuration4.png)
-6. Click **Restart** to restart your PC.  
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![system configuration](https://images.drivereasy.com/wp-content/uploads/2019/08/system-configuration5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![system configuration](https://images.drivereasy.com/wp-content/uploads/2019/08/system-configuration4.png)
+6. Click **Restart** to restart your PC.  
+![system configuration](https://images.drivereasy.com/wp-content/uploads/2019/08/system-configuration5.png)
+
  Restart Windows OS and launch tha game to check if HLL crashes again. If HLL doesn't crash, you need to open the**System Configuration** window again to enable services and applications **one by one** until you find the problematic software that crashes HLL.
 
  After enabling each services, you need to restart your PC to apply the changes.
@@ -188,8 +217,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -197,4 +224,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-groupgaze-video-extractor/"><u>[New] In 2024, GroupGaze Video Extractor</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-prime-mkv-viewer-windows-android-apps/"><u>[New] Prime MKV Viewer Windows, Android Apps</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-strategic-planning-for-effective-live-video-production-on-fb/"><u>[Updated] 2024 Approved Strategic Planning for Effective Live Video Production on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-interactive-imaging-archive/"><u>[Updated] In 2024, Interactive Imaging Archive</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-fb-video-to-mp3-audio-conversion-techniques/"><u>[Updated] In 2024, Seamless FB Video to MP3 Audio Conversion Techniques</u></a></li>
+<li><a href="https://article-helps.techidaily.com/enhancing-detail-in-minecraft-worlds/"><u>Enhancing Detail in Minecraft Worlds</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-get-the-newest-graphics-drivers-for-your-msi-gs65-laptop-on-windows-os/"><u>How to Get the Newest Graphics Drivers for Your MSI GS65 Laptop on Windows OS</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-zte-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your ZTE</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-tecno-pop-8-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Tecno Pop 8 on Windows??</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-sharefake-location-on-whatsapp-for-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/identifying-iphone-battery-woes-is-replacement-needed/"><u>Identifying iPhone Battery Woes: Is Replacement Needed?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/physical-presence-vs-virtual-validation/"><u>Physical Presence vs Virtual Validation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/secrets-to-free-hd-video-grabs-from-facebook/"><u>Secrets to Free HD Video Grabs From Facebook</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Step-By Step Approach  Crafting Quality Subtitles for Facebook Videos in Minutes\""
-date: 2024-08-17T17:54:52.736Z
-updated: 2024-08-18T17:54:52.736Z
+date: 2024-10-03T03:43:34.385Z
+updated: 2024-10-10T08:44:22.229Z
 tags:
   - ai video
   - ai facebook
@@ -64,6 +64,13 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
@@ -76,11 +83,31 @@ Here are few simple to follow steps
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
@@ -93,6 +120,13 @@ Once you have finished the text based editing task then hit the Export option av
 
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -103,14 +137,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-combat-fuzzy-visuals-facebook-videos-tips-and-tricks/"><u>[New] 2024 Approved Combat Fuzzy Visuals Facebook Videos Tips & Tricks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigating-the-netizens-realm-youtube-videos-fb/"><u>[New] 2024 Approved Navigating the Netizen's Realm YouTube Videos FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-rights-overload-immediate-content-scrapping/"><u>[New] In 2024, Rights Overload Immediate Content Scrapping</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-secure-and-detailed-best-ways-to-document-fb-call-footage-for-2024/"><u>[New] Secure & Detailed Best Ways to Document FB Call Footage for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-music-merger-for-engaging-fb-video-content/"><u>[New] The Music Merger for Engaging FB Video Content</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-troubleshooting-a-non-functional-obs-capture-device-for-2024/"><u>[New] Troubleshooting a Non-Functional OBS Capture Device for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-prime-sites-where-your-presents-stand-out-in-a-sea-of-boxes/"><u>[Updated] 2024 Approved Prime Sites Where Your Presents Stand Out in a Sea of Boxes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebook-group-video-downloader/"><u>[Updated] In 2024, Facebook Group Video Downloader</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-playbackquality-study/"><u>[Updated] In 2024, PlaybackQuality Study</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlock-old-facebook-memories-with-a-click/"><u>[Updated] In 2024, Unlock Old Facebook Memories with a Click</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlocking-potential-with-facebooks-live-a-comprehensive-guide-for-creators/"><u>[Updated] In 2024, Unlocking Potential with Facebook’s LIVE A Comprehensive Guide for Creators</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-untold-elements-of-instagram-story-engagement/"><u>2024 Approved The Untold Elements of Instagram Story Engagement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/boost-your-online-presence-tips-and-techniques-for-exceptional-fb-profiles/"><u>Boost Your Online Presence Tips and Techniques for Exceptional FB Profiles</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-experts-resource-advanced-screen-capture-techniques-by-zd/"><u>In 2024, The Expert's Resource Advanced Screen Capture Techniques by ZD</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-level-gaming-performance-ps5-standard-edition-vs-ps5-slim-comparison/"><u>Next-Level Gaming Performance: PS5 Standard Edition vs PS5 Slim Comparison</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/soundscapes-in-action-capturing-music-videos-iphone-style/"><u>Soundscapes in Action Capturing Music Videos iPhone Style</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-motorola-moto-g14-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Motorola Moto G14 Phone Hassle-Free</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-(connector)-10-deactivating-touchpad-with-an-external-mouse-attached/"><u>Windows <Connector> 10: Deactivating Touchpad with an External Mouse Attached</u></a></li>
+</ul></div>
+

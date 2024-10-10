@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Optimized Visual Quality  Black Bar & Box Frame for Social Media Posts for 2024\""
-date: 2024-08-17T17:59:03.017Z
-updated: 2024-08-18T17:59:03.017Z
+date: 2024-10-04T17:28:12.954Z
+updated: 2024-10-10T00:03:36.983Z
 tags:
   - ai video
   - ai facebook
@@ -53,6 +53,13 @@ This method is suitable for users whose source videos are not in square format (
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
@@ -65,13 +72,24 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -84,24 +102,22 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
@@ -115,11 +131,19 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
@@ -128,13 +152,18 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -142,3 +171,18 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-key-fb-video-plays-for-optimal-engagement/"><u>[New] 2024 Approved Key FB Video Plays for Optimal Engagement</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-beginners-blueprint-for-yourwebcamrecord-for-2024/"><u>[Updated] Beginner's Blueprint for YourWebcamRecord for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-understanding-and-utilizing-facebooks-updated-marketing-techniques/"><u>2024 Approved Understanding & Utilizing Facebook’s Updated Marketing Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/canva-creative-editor-exploration/"><u>Canva Creative Editor Exploration</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-innovative-video-sharing-best-practices-for-live-monitor-display/"><u>In 2024, Innovative Video Sharing Best Practices for Live Monitor Display</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/instant-improvements-advanced-techniques-for-optimizing-shaders-in-star-wars-battlefront-ii/"><u>Instant Improvements: Advanced Techniques for Optimizing Shaders in Star Wars Battlefront II</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/launch-cutting-edge-av1-encode-tool-ready-for-immediate-use-on-both-hardware-and-software-platforms/"><u>Launch: Cutting-Edge AV1 Encode Tool Ready for Immediate Use on Both Hardware and Software Platforms</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/learning-leaders-expert-picks-of-10-best-classroom-recorders-for-2024/"><u>Learning Leaders Expert Picks of 10 Best Classroom Recorders for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-the-complexities-of-facebooks-copyright-enforcement/"><u>Navigating the Complexities of Facebook's Copyright Enforcement</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-smooth-audio-transitions-in-final-cut-pro-2-approaches/"><u>New Smooth Audio Transitions in Final Cut Pro 2 Approaches</u></a></li>
+</ul></div>
+

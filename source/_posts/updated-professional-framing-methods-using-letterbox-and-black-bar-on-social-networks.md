@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Professional Framing Methods  Using Letterbox & Black Bar on Social Networks\""
-date: 2024-08-17T17:52:37.222Z
-updated: 2024-08-18T17:52:37.222Z
+date: 2024-10-06T16:03:07.860Z
+updated: 2024-10-10T06:10:51.033Z
 tags:
   - ai video
   - ai facebook
@@ -70,8 +70,19 @@ And you can also go to the **Elements** tab, and add some creative elements such
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -80,9 +91,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
@@ -97,36 +105,59 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -134,11 +165,33 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>[New] 2024 Approved Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebook-videos-vertical-or-horizontal-in-2024/"><u>[New] Facebook Videos; Vertical or Horizontal, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-full-screen-feature-on-facebook-what-you-need-to-know/"><u>[New] In 2024, Full-Screen Feature on Facebook What You Need to Know</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-key-to-viral-posts-on-instagram-unveiled/"><u>[New] The Key to Viral Posts on Instagram Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-making-memorable-impressions-with-fb-slideshow-features/"><u>[Updated] 2024 Approved Making Memorable Impressions with FB Slideshow Features</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fixing-unintended-you-mistakes-while-chatting-online/"><u>[Updated] Fixing Unintended 'You' Mistakes While Chatting Online</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-content-strategy-after-the-facebook-revamp/"><u>[Updated] Mastering Content Strategy After the Facebook Revamp</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-securing-social-streaming-download-strategies-unveiled/"><u>[Updated] Securing Social Streaming Download Strategies Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tactics-for-effective-whatsapp-broadcast-with-facebook-videos/"><u>[Updated] Tactics for Effective WhatsApp Broadcast with Facebook Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-step-by-step-instructions-on-initiating-a-cross-platform-skype-conversation-with-ease/"><u>2024 Approved Step-by-Step Instructions on Initiating a Cross-Platform Skype Conversation with Ease</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ultimate-online-destinations-for-3d-shimmering-letters/"><u>2024 Approved Ultimate Online Destinations for 3D Shimmering Letters</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-venturing-beyond-reality-understanding-vr-basics/"><u>2024 Approved Venturing Beyond Reality Understanding VR Basics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo X100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/integrating-clips-flawlessly-using-blend-modes-for-2024/"><u>Integrating Clips Flawlessly Using Blend Modes for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-from-the-greats-strategies-for-confident-online-sharing/"><u>Learn From the Greats Strategies for Confident Online Sharing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-a-guide-to-16-thank-you-variations/"><u>Mastering German: A Guide To 16 Thank You Variations</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-fix-for-spellbreak-no-more-pc-freezing-or-crashing-issues/"><u>Ultimate Fix for Spellbreak - No More PC Freezing or Crashing Issues</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unleashing-potential-a-guide-to-setting-up-and-analyzing-instream-ads-in-fb-for-2024/"><u>Unleashing Potential A Guide to Setting Up & Analyzing Instream Ads in FB for 2024</u></a></li>
+</ul></div>
+

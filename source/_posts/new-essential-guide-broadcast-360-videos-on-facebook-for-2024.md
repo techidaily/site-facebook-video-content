@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Essential Guide  Broadcast 360 Videos on Facebook for 2024\""
-date: 2024-08-17T17:56:23.038Z
-updated: 2024-08-18T17:56:23.038Z
+date: 2024-10-08T03:31:59.580Z
+updated: 2024-10-09T16:01:44.773Z
 tags:
   - ai video
   - ai facebook
@@ -33,9 +33,6 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specification for Live 360
 
  Those who are searching for the tech specs related to live 360 degree feature must go through these points:
@@ -48,8 +45,12 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Go Live 360?
 
  You can use these two tricks to go live 360:
@@ -58,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
 
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## How to Go Live 360 with Instagram 360?
 
  Step 1: First of all connect your Insta 360 camera and move to its home screen.
@@ -87,8 +84,12 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
  Step 10: Delete your video from timeline whenever you want.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to go Live 360 from Facebook Website Flow?
 
  Step 1: Simply visit fb.com/live/create from your device.
@@ -106,15 +107,23 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
  Step 7: Go live 360 on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How does Live 360 looks like?
 
  Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Live 360
 
 * It is important to connect via strong internet connection.
@@ -132,11 +141,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-innovating-your-teaching-with-interactive-screencasts/"><u>[New] Innovating Your Teaching with Interactive Screencasts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-top-tips-navigating-the-latest-facebook-features-for-2024/"><u>[New] Top Tips Navigating the Latest Facebook Features for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-livetv-prowess-elevating-facebook-live-broadcasts/"><u>[Updated] 2024 Approved LiveTV Prowess Elevating Facebook Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-downloading-fb-audio-nuggets-for-2024/"><u>[Updated] Downloading FB Audio Nuggets for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-strangers-to-community-your-facebook-onboarding-journey-for-2024/"><u>[Updated] From Strangers to Community Your Facebook Onboarding Journey for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-comprehensively-ranking-free-screen-capture-tools-2023/"><u>[Updated] In 2024, Comprehensively Ranking Free Screen Capture Tools 2023</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-monetization-blueprint-for-your-youtube-ventures-on-fb/"><u>[Updated] The Monetization Blueprint for Your YouTube Ventures on FB</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/cutting-edge-conversion-tips-avi-to-gif-using-filmora-for-windowsmac-users-for-2024/"><u>Cutting-Edge Conversion Tips AVI to GIF Using Filmora for Windows/Mac Users for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/exploring-apowersofts-pc-screen-snap-recorder/"><u>Exploring Apowersoft's PC Screen Snap Recorder</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-splitcam-examination-camera-quality-showdown/"><u>In 2024, SplitCam Examination - Camera Quality Showdown?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-the-beat-architect-techniques-for-isolating-and-repurposing-kernels-in-audio/"><u>In 2024, The Beat Architect Techniques for Isolating and Repurposing Kernels in Audio</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-transform-your-video-cover-image-with-easy-steps/"><u>In 2024, Transform Your Video Cover Image with Easy Steps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovative-programming-enhancements-without-chatgpt/"><u>Innovative Programming Enhancements Without ChatGPT</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/is-it-time-to-air-fb-videos-on-traditional-screens-for-2024/"><u>Is It Time to Air FB Videos on Traditional Screens for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-the-art-of-acquiring-facebooks-prestigious-blue-badge/"><u>Mastering the Art of Acquiring Facebook's Prestigious Blue Badge</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/movavis-free-service-effortlessly-convert-mp4-file-formats-to-mp3-on-the-web/"><u>Movavi's Free Service - Effortlessly Convert MP4 File Formats to MP3 on the Web!</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-failed-mobile-hotspot-connectivity-on-windows-11/"><u>Troubleshooting Failed Mobile Hotspot Connectivity on Windows 11</u></a></li>
+</ul></div>
+

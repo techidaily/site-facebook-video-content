@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB's Look Back Feature  Edit Tutorial for 2024\""
-date: 2024-09-29T21:50:13.649Z
-updated: 2024-10-05T05:37:26.828Z
+date: 2024-10-05T13:37:09.912Z
+updated: 2024-10-09T21:35:28.696Z
 tags:
   - ai video
   - ai facebook
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -57,10 +64,16 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 2. Add texts to the Look Back video
@@ -77,25 +90,11 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -110,13 +109,32 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -134,24 +152,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-thrive-after-facebooks-content-algorithm-overhaul/"><u>[New] How to Thrive After Facebook's Content Algorithm Overhaul</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-complete-drone-equipment-collection-guide/"><u>[New] The Complete Drone Equipment Collection Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-youtube-video-dimension-standards-for-2024/"><u>[New] YouTube Video Dimension Standards for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-from-good-to-great-elevating-your-ads-facebook-impact/"><u>[Updated] 2024 Approved From Good to Great Elevating Your Ads' Facebook Impact</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-maximizing-views-optimal-youtube-thumbnails/"><u>[Updated] 2024 Approved Maximizing Views Optimal YouTube Thumbnails</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-effortless-hd-ready-turning-your-fb-videos-into-mp4-instantly/"><u>[Updated] Effortless HD-Ready Turning Your FB Videos Into MP4 Instantly</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-fb-link-mastery-8-powerful-free-extractor-tools-for-2024/"><u>[Updated] FB Link Mastery 8 Powerful FREE Extractor Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unseen-content-exposure-a-video-sharing-roadmap/"><u>[Updated] In 2024, Unseen Content Exposure A Video-Sharing Roadmap</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effortlessly-convert-your-ogv-videos-to-high-quality-mpeg-streams-no-cost-involved/"><u>Effortlessly Convert Your OGV Videos to High-Quality MPEG Streams - No Cost Involved!</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/fb-link-mastery-8-powerful-free-extractor-tools-for-2024/"><u>FB Link Mastery 8 Powerful FREE Extractor Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/from-adventure-to-audience-transforming-gopro-footage-with-social-media-for-2024/"><u>From Adventure to Audience Transforming Gopro Footage with Social Media for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/how-does-vidma-stack-up-as-a-screen-recorder-in-2024/"><u>How Does Vidma Stack Up as a Screen Recorder, In 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-vivo-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Vivo</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-fb-video-extraction-creating-mp3s-in-minutes/"><u>In 2024, FB Video Extraction Creating MP3s in Minutes</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/nahimic-driver-enhancement-made-simple-recent-improvements-revealed/"><u>Nahimic Driver Enhancement Made Simple – Recent Improvements Revealed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-essential-guide-to-mastering-the-top-steam-deck-games-of-2023/"><u>The Essential Guide to Mastering the Top Steam Deck Games of 202^[3]</u></a></li>
-<li><a href="https://android-frp.techidaily.com/top-5-nokia-c02-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Nokia C02 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-frame-rate-drops-and-glitches-in-fortnite-on-windows-systems/"><u>Troubleshooting Frame Rate Drops and Glitches in Fortnite on Windows Systems</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-dominate-your-digital-footprint-with-large-scale-fb-visuals/"><u>[New] Dominate Your Digital Footprint with Large-Scale Fb Visuals</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-comparing-youtube-policies-with-creative-commons/"><u>[Updated] 2024 Approved Comparing YouTube Policies with Creative Commons</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-free-guide-to-capturing-windows-3-quick-steps/"><u>[Updated] 2024 Approved Free Guide to Capturing Windows (3 Quick Steps)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-discoveries-10-facebook-meme-pages-that-surprise-you/"><u>[Updated] Discoveries 10 Facebook Meme Pages That Surprise You</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-finding-your-portal-to-youtubes-video-mastery-hub/"><u>[Updated] In 2024, Finding Your Portal to YouTube's Video Mastery Hub</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-premium-mp4-channel-updater/"><u>2024 Approved Premium MP4 Channel Updater</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/dollars-and-sense-profit-driven-techniques-for-fb-video-content/"><u>Dollars and Sense Profit-Driven Techniques for FB Video Content</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/grasping-the-greener-side-of-valheim-top-seeds-list-for-2024/"><u>Grasping the Greener Side of Valheim Top Seeds List for 2024</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/high-quality-premium-react-native-mobile-app-designs-by-creative-tim-start-building-now/"><u>High-Quality Premium React Native Mobile App Designs by Creative Tim - Start Building Now</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revive-zoo-audio-quality-easy-steps-to-follow/"><u>In 2024, Revive Zoo Audio Quality Easy Steps To Follow</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-vr-adventure-top-10-best-selling-mobile-games/"><u>In 2024, VR Adventure Top 10 Best-Selling Mobile Games</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide-for-2024/"><u>New Translate Videos Like a Pro with Subtitle Cat Your Essential Guide for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-level-voice-assistant-experience-with-the-new-4th-gen-echo-show/"><u>Next-Level Voice Assistant Experience with the New 4Th Gen Echo Show</u></a></li>
 </ul></div>
 

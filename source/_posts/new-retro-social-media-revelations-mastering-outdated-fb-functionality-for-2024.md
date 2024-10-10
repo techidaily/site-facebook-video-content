@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Retro Social Media Revelations  Mastering Outdated FB Functionality for 2024\""
-date: 2024-10-01T03:36:26.959Z
-updated: 2024-10-04T20:25:17.249Z
+date: 2024-10-04T03:04:07.181Z
+updated: 2024-10-10T07:53:03.424Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,16 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,10 +108,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -147,10 +153,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,14 +174,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-capture-and-connect-dslr-tips-for-live-streaming-to-pcmac/"><u>[New] Capture and Connect DSLR Tips for Live-Streaming to PC/Mac</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-seeking-entertainment-a-guide-to-watching-fb-videos/"><u>[New] Seeking Entertainment A Guide to Watching FB Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-watching-social-media-videos-on-appletv/"><u>[New] Watching Social Media Videos on AppleTV</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-turn-youtube-live-feeds-into-mp3-with-online-tools-2023/"><u>[Updated] 2024 Approved Turn YouTube Live Feeds Into MP3 with Online Tools 2023</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/golivefacebook-a-practical-guide-for-android-and-ios-enthusiasts-for-2024/"><u>GoLiveFacebook A Practical Guide for Android & iOS Enthusiasts for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-inexpensive-high-quality-cameras/"><u>In 2024, Inexpensive High-Quality Cameras</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-quick-reference-for-mac-writers-obsplusstreamlabs/"><u>In 2024, The Ultimate Quick Reference for Mac' Writers OBS+Streamlabs</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-vivo-v30-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Vivo V30? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/mastering-modern-photography-editing-with-polarr-insights-for-2024/"><u>Mastering Modern Photography Editing with Polarr Insights for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-enhance-watchability-with-full-screen-on-fb-videos/"><u>[New] 2024 Approved Enhance Watchability with Full-Screen on FB Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-mastering-the-art-of-creating-alluring-fb-video-ads/"><u>[New] 2024 Approved Mastering the Art of Creating Alluring FB Video Ads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-solve-facebook-videos-are-partially-muted-in-2024/"><u>[New] How to Solve Facebook Videos Are Partially Muted, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-roadmap-for-effective-advertising-on-facebook/"><u>[Updated] 2024 Approved The Roadmap for Effective Advertising on Facebook</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-trendsetters-pictures-origins-explored/"><u>[Updated] 2024 Approved Trendsetters' Pictures Origins Explored</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-film-the-face-of-your-fb-space-for-2024/"><u>[Updated] Film the Face of Your FB Space for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unraveling-the-process-of-gaining-facebooks-blue-badge/"><u>[Updated] In 2024, Unraveling the Process of Gaining Facebook's Blue Badge</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/core-framework-principles-for-engaging-online-promotions/"><u>Core Framework Principles for Engaging Online Promotions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/cutting-edge-techniques-to-elevate-fb-video-in-full-screen/"><u>Cutting Edge Techniques to Elevate FB Video in Full Screen</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-hp-deskjet-2540-printer-drivers-step-by-step-guide/"><u>Download and Update HP Deskjet 2540 Printer Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-zebra-printer-driver-software-for-your-windows-pc-here/"><u>Get the Newest Zebra Printer Driver Software for Your Windows PC Here</u></a></li>
+<li><a href="https://blog-min.techidaily.com/handbrake-capabilities-understanding-av1-file-compatibility-and-conversion-options/"><u>HandBrake Capabilities: Understanding AV1 File Compatibility and Conversion Options</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-12-mini-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone 12 mini to iPhone 8/X/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-creating-auditory-immersion-with-canvas-soundscape-tools/"><u>In 2024, Creating Auditory Immersion with Canva's Soundscape Tools</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-mousepad-malfunctions-for-laptops-running-windows-systems/"><u>Resolving Mousepad Malfunctions for Laptops Running Windows Systems</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-as-an-independent-youtube-entrepreneur-dodging-the-ad-dilemrante/"><u>Thriving as an Independent YouTube Entrepreneur Dodging the Ad Dilemrante</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-xiaomi-14-ultra-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Xiaomi 14 Ultra Screen | Dr.fone</u></a></li>
 </ul></div>
 

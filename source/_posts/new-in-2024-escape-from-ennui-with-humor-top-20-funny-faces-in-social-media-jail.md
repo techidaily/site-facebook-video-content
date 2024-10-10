@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Escape From Ennui with Humor  Top 20 Funny Faces in Social Media Jail\""
-date: 2024-08-17T17:56:51.637Z
-updated: 2024-08-18T17:56:51.637Z
+date: 2024-10-03T17:15:26.730Z
+updated: 2024-10-10T02:38:26.581Z
 tags:
   - ai video
   - ai facebook
@@ -50,17 +50,44 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 
 ![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
 #### 2\. Released from Facebook Jail
 
 ![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
 
 #### 3\. Fresh Outa Facebook Jail
 
 ![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This was me - Fresh out of Facebook jail in this morning!
 
@@ -85,6 +112,13 @@ This is how Funny Gary Out of Facebook Jail.
 #### 7\. Come Back from FB Jail
 
 ![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 How did I come back from Facebook jail and look for the MF that reported me.
 
@@ -115,8 +149,12 @@ We all come across many memes across social media and sometimes do feel that how
 ![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
 
 Also one of the best features of the Filmora meme generator is that it has a very processing time and in comparison to other tools exporting time is way less.
@@ -126,18 +164,26 @@ Also one of the best features of the Filmora meme generator is that it has a ver
 ![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
 
 #### 3\. Canva
 
 ![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Your Facebook Jail Meme?
 
@@ -151,18 +197,12 @@ So here below is the step by step guide you can follow to create a meme:
 
 ![drag memes filmora meme maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 Once you open the Filmora meme generator on your browser you would get an option of import. You need to click on that or drag to import your files. Also, you can even import YouTube and Vimeo links for creating video memes.
 
 **Step 2: Edit your memes**
 
 ![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 Once you import your file you would get some editing options such as text, color, size, style, etc. You can choose the right text and color as per your need. Also, you can get options inputting the text inside or outside and also to choose the file format too.
 
 **Step 3: Export and share**
@@ -175,16 +215,11 @@ So once you go through this article you would realize that the funny Facebook me
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -192,3 +227,19 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebooks-brief-broadcasts-unpacked/"><u>[New] Facebook's Brief Broadcasts Unpacked</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-discreetly-discovering-content-how-to-read-instagram-stories-privately-on-pcandroidios/"><u>[Updated] Discreetly Discovering Content How to Read Instagram Stories Privately on PC/Android/iOS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-instantly-stream-youtube-content-on-facebook-auto-play-guide-for-2024/"><u>[Updated] Instantly Stream YouTube Content on Facebook Auto-Play Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-understanding-facebook-reels-and-their-production-techniques-for-2024/"><u>[Updated] Understanding Facebook Reels and Their Production Techniques for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-profit-13-simple-money-making-ideas-on-reddit/"><u>[Updated] Unlocking Profit 13 Simple Money-Making Ideas on Reddit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-playing-fb-videos-on-your-apple-device/"><u>2024 Approved Playing FB Videos on Your Apple Device</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/pursue-excellence-in-play-and-artistry-via-gpt-my-bots-techniques/"><u>Pursue Excellence in Play and Artistry via GPT-My Bots Techniques</u></a></li>
+<li><a href="https://win11.techidaily.com/streamlined-steps-to-explore-iis-manager-interface/"><u>Streamlined Steps to Explore IIS Manager Interface</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-4-twitter-apps-for-easily-tracking-and-engaging-in-hashtag-conversations/"><u>Top 4 Twitter Apps for Easily Tracking and Engaging in #Hashtag Conversations</u></a></li>
+</ul></div>
+

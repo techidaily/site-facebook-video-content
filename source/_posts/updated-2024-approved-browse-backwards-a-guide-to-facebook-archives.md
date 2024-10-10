@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Browse Backwards  A Guide to Facebook Archives\""
-date: 2024-08-17T17:57:09.772Z
-updated: 2024-08-18T17:57:09.772Z
+date: 2024-10-07T10:49:05.826Z
+updated: 2024-10-10T14:34:52.923Z
 tags:
   - ai video
   - ai facebook
@@ -53,6 +53,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -60,6 +67,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -73,19 +87,27 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -95,16 +117,10 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -113,9 +129,6 @@ To attract more audience and gain more likes, comments all you need is a smart [
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Features:**
 
 4K Resolution Editing Support
@@ -158,16 +171,11 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -175,3 +183,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-expert-editions-selecting-high-quality-blu-ray-players-freepaid/"><u>[New] Expert Editions Selecting High-Quality Blu-Ray Players (Free/Paid)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-harnessing-new-trends-transmitting-fb-videos-through-whatsapp/"><u>[Updated] 2024 Approved Harnessing New Trends Transmitting FB Videos Through WhatsApp</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-capture-gameplay-prowess-on-android-screens/"><u>[Updated] Capture Gameplay Prowess on Android Screens</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-online-event-replay-collectors-for-2024/"><u>[Updated] Online Event Replay Collectors for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlock-facebook-ad-success-with-these-3-adapted-writing-techniques/"><u>[Updated] Unlock Facebook Ad Success with These 3 Adapted Writing Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-marketers-insight-sifting-through-false-social-endorsements/"><u>2024 Approved Marketer’s Insight Sifting Through False Social Endorsements</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-the-art-of-uploading-srt-text-in-digital-communities/"><u>2024 Approved Mastering the Art of Uploading SRT Text in Digital Communities</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-seeking-entertainment-a-guide-to-watching-fb-videos/"><u>2024 Approved Seeking Entertainment A Guide to Watching FB Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-videovault-youtube-extractor-fb/"><u>2024 Approved VideoVault YouTube Extractor FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/prehensive-look-at-youtuber-snippets/"><u>A Comprehensive Look at Youtuber Snippets</u></a></li>
+<li><a href="https://article-helps.techidaily.com/essential-tactics-in-creating-convincing-testimonial-content-for-2024/"><u>Essential Tactics in Creating Convincing Testimonial Content for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-infinix-hot-30-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Infinix Hot 30 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-decoding-the-purpose-why-does-fb-use-a-blue-icon/"><u>In 2024, Decoding the Purpose Why Does FB Use a Blue Icon?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/multi-user-android-calls-the-top-8-tools-for-2024/"><u>Multi-User Android Calls The Top 8 Tools for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/no-paywalls-here-learn-how-to-record-and-save-your-youtube-experience-for-free/"><u>No Paywalls Here! Learn How To Record and Save Your YouTube Experience For Free</u></a></li>
+</ul></div>
+

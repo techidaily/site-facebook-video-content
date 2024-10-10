@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Retrospective Facebook Viewing Techniques for Laptops and Phones"
-date: 2024-08-17T17:57:19.798Z
-updated: 2024-08-18T17:57:19.798Z
+date: 2024-10-07T16:12:29.103Z
+updated: 2024-10-09T23:14:15.338Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,13 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -69,9 +76,6 @@ Once you click on the story archive, all your **old stories** will appear in seq
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
 It is nearly impossible to view your friend’s story once it has disappeared. You cannot watch the stories even if they are achieved. However, there is one way to view old stories of your friends. Here is how:
@@ -91,8 +95,18 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -110,8 +124,12 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
 Facebook business pages help in enhancing business significantly, primarily if you use story features for customer interaction. If you want to keep track of old stories, you can use the following method:
@@ -135,15 +153,17 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -151,3 +171,27 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-a-critical-look-at-huawei-p10-for-photography-enthusiasts/"><u>[New] A Critical Look at Huawei P10 for Photography Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fundamental-blueprints-to-enhance-facebook-ad-engagement/"><u>[New] Fundamental Blueprints to Enhance Facebook Ad Engagement</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-revolutionize-your-workflow-with-lenovos-screen-capture-tools/"><u>[New] In 2024, Revolutionize Your Workflow with Lenovo's Screen Capture Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-most-popular-wedding-countdown-clocks-a-top-10-list-androidios/"><u>[New] The Most Popular Wedding Countdown Clocks A Top 10 List (Android/iOS)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-dive-deep-into-the-digital-world-adding-panoramic-photos-to-your-feed-for-2024/"><u>[Updated] Dive Deep Into the Digital World Adding Panoramic Photos to Your Feed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-content-horizontal-or-vertical-format-debate/"><u>[Updated] FB Content Horizontal or Vertical Format Debate</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-use-dslr-for-facebook-live-on-you-pc-or-mac-for-2024/"><u>[Updated] How to Use DSLR for Facebook Live on You PC or Mac for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-from-pixels-to-power-the-ultra-hd-world-of-samsung-ue590/"><u>[Updated] In 2024, From Pixels to Power The Ultra HD World of Samsung UE590</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-optimal-mp4-extractor-from-tiktok-videos/"><u>[Updated] In 2024, Optimal MP4 Extractor From TikTok Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-editing-skills-for-professional-facebook-reels-for-2024/"><u>[Updated] Mastering Editing Skills for Professional Facebook Reels for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-digital-dollars-at-a-click-monetization-made-simple-on-fb/"><u>2024 Approved Digital Dollars at a Click Monetization Made Simple on FB</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/dvd-shrink-dvd-decrypter/"><u>最新のトレンド：DVD Shrink DVD Decrypter使い方、エラー解決テクニック全部見せちゃう！</u></a></li>
+<li><a href="https://fox-links.techidaily.com/achieving-flawless-fb-live-via-zoom-streaming/"><u>Achieving Flawless FB Live via Zoom Streaming</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortless-setup-free-nvidia-3d-vision-support-for-windows-users/"><u>Effortless Setup: Free Nvidia 3D Vision Support for Windows Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/free-mp4-conversion-tutorial-from-facebooks-high-definition-videos-for-2024/"><u>Free MP4 Conversion Tutorial From Facebook's High-Definition Videos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/funimate-masterclass-quick-video-access-for-2024/"><u>Funimate Masterclass Quick Video Access for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-insiders-look-at-vlc-functionality-on-macbooks/"><u>In 2024, Insider's Look at VLC Functionality on MacBooks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-ultimate-guide-to-downloading-facebook-stories-anywhere/"><u>The Ultimate Guide to Downloading Facebook Stories Anywhere</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unveiling-the-secrets-of-facebook-video-content-success-for-2024/"><u>Unveiling the Secrets of Facebook Video Content Success for 2024</u></a></li>
+</ul></div>
+

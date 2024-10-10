@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Go From Gaming to Socializing  Streaming Xbox to FB Live\""
-date: 2024-09-28T04:51:35.761Z
-updated: 2024-10-04T18:13:18.292Z
+date: 2024-10-08T12:50:59.745Z
+updated: 2024-10-10T08:06:59.987Z
 tags:
   - ai video
   - ai facebook
@@ -51,16 +51,10 @@ b. Now you have to enable your smartglass connection. This can be done only from
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
@@ -74,28 +68,15 @@ c. Your home network is going to be scanned by the Xbox software for any Xbox co
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2:Streaming Xbox to computer with a capture card
 
@@ -113,6 +94,13 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
 **Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
@@ -121,20 +109,14 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,22 +133,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-explore-the-globe-in-one-frame-iphone-360-video-guide-for-2024/"><u>[New] Explore the Globe in One Frame IPhone 360 Video Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigate-networking-necessities-8-downloader-apps-for-fb-for-2024/"><u>[New] Navigate Networking Necessities - 8 Downloader Apps for FB for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-sell-more-grow-faster-discover-how-these-15-facebook-apps-can-help-for-2024/"><u>[New] Sell More, Grow Faster Discover How These 15 Facebook Apps Can Help for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-easily-stream-facebook-live-chats-with-roku/"><u>[Updated] 2024 Approved Easily Stream Facebook Live Chats with Roku</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-leading-edge-facebook-film-archives/"><u>[Updated] In 2024, Leading Edge Facebook Film Archives</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-simplifying-fb-live-sessions-on-roku-devices/"><u>[Updated] In 2024, Simplifying FB Live Sessions on Roku Devices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-secure-fb-links-8plus-comprehensive-no-cost-downloaders-for-23/"><u>[Updated] Secure FB Links 8+ Comprehensive, No-Cost Downloaders for '23</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-bring-your-facebook-live-back-on-track-interruption-fixes/"><u>2024 Approved Bring Your Facebook Live Back on Track Interruption Fixes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-video-stock-investment-guides/"><u>2024 Approved Essential Video Stock Investment Guides</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-streamlined-techniques-for-rapid-mac-screen-recording/"><u>2024 Approved Streamlined Techniques for Rapid Mac Screen Recording</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-deep-dive-into-streamlining-your-google-podcast-process/"><u>A Deep Dive Into Streamlining Your Google Podcast Process</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-value-shooters-with-full-spherical-capture-for-2024/"><u>Best Value Shooters with Full Spherical Capture for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-does-roku-express-stand-against-the-classic-roku-stick-a-detailed-analysis/"><u>How Does Roku Express Stand Against the Classic Roku Stick? A Detailed Analysis</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Samsung Galaxy S23 FE | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/innovative-ways-to-document-your-digital-collaboration-sessions-for-2024/"><u>Innovative Ways to Document Your Digital Collaboration Sessions for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/simplify-your-life-update-your-canon-printerscameras-on-windows-today/"><u>Simplify Your Life: Update Your Canon Printers/Cameras on Windows Today</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-take-your-videos-to-the-next-level-best-adobe-premiere-plugins-free-download/"><u>Updated In 2024, Take Your Videos to the Next Level Best Adobe Premiere Plugins (Free Download)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-essential-guide-for-perfecting-crossfade-artistry-with-audacity/"><u>[New] 2024 Approved The Essential Guide for Perfecting Crossfade Artistry with Audacity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-direct-dissemination-from-tiktok-to-social-networks-for-2024/"><u>[New] Direct Dissemination From TikTok to Social Networks for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-masterful-post-placement-to-surge-video-views-for-2024/"><u>[New] Masterful Post Placement to Surge Video Views for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-media-consumption-enable-automatic-playback-of-youtube-content-on-fb/"><u>[Updated] In 2024, Seamless Media Consumption Enable Automatic Playback of YouTube Content on FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimizing-your-video-call-zoom-and-fb-live-integration/"><u>[Updated] Optimizing Your Video Call ZOOM & FB Live Integration</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-expert-techniques-for-ps4-gameplay-documentation/"><u>2024 Approved Expert Techniques for PS4 Gameplay Documentation</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exclusive-offer-alert-score-20-off-on-plexs-unlimited-subscription-limited-time-only/"><u>Exclusive Offer Alert: Score 20% Off on Plex's Unlimited Subscription - Limited Time Only!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-your-vivo-v30-lite-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Vivo V30 Lite 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-maximize-attendee-visibility-with-google-meet-grids/"><u>In 2024, Maximize Attendee Visibility with Google Meet Grids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-newbies-top-french-literature-list/"><u>Novel Selection for Newbies: Top French Literature List</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-oppo-reno-11f-5g-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Oppo Reno 11F 5G Device</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unleash-potential-effective-desktop-sharing-on-livestreaming-platforms-for-2024/"><u>Unleash Potential Effective Desktop Sharing on Livestreaming Platforms for 2024</u></a></li>
 </ul></div>
 

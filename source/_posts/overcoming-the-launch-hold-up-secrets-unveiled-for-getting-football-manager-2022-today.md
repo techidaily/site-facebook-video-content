@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Launch Hold-Up: Secrets Unveiled For Getting Football Manager 2022 Today"
-date: 2024-10-04T01:41:38.534Z
-updated: 2024-10-05T03:42:24.297Z
+date: 2024-10-07T23:37:22.227Z
+updated: 2024-10-10T09:03:26.033Z
 tags:
   - win11
   - win10
@@ -32,23 +32,9 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 7. [**Open the game in windowed mode**](https://tools.techidaily.com/drivereasy/download/)
 8. **[Repair your system files](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1\. Check your PC specs
 
  Make sure you’re playing Football Manager 2022 in a 64-bit processor and operating system. If you’re on a 32-bit system, it’s recommended to upgrade your system and perhaps your device.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 2\. Add an exception to your antivirus
 
@@ -61,6 +47,19 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 * **[McAfee](https://service.mcafee.com/?page=shell&shell=article-view&articleId=TS102056)**
 
  Or you can uninstall your antivirus temporarily (note that disabling it won’t work) and be very careful about the websites you’re visiting.
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3\. Update your graphics driver
 
@@ -82,6 +81,13 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
 After updating your drivers, restart your PC and test the gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 4\. Verify the integrity of game files
 
  Football Manager 2022 not launching can be caused by corrupt or missing game files. In that case, you can perform an integrity check to solve this issue. Here’s how:
@@ -94,14 +100,14 @@ After updating your drivers, restart your PC and test the gameplay.
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Once complete, launch the game to check if your game is working again.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5\. Delete the Caches and Preferences folder
 
@@ -112,13 +118,6 @@ Once complete, launch the game to check if your game is working again.
  2) Go to**View** , and tick the**Hidden items option** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-8-1200x758.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
 
@@ -134,7 +133,27 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-9.png)
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Locate the game’s executable and run the game as an administrator.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 7\. Open the game in windowed mode
 
@@ -144,14 +163,21 @@ Once complete, launch the game to check if your game is working again.
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
 
@@ -185,13 +211,6 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Option 2 – Manually
 
  To check and restore your system file might take time and computer skills. You will need to run numerous commands, wait for the process to complete, or risk your data.
@@ -203,13 +222,6 @@ Once complete, launch the game to check if your game is working again.
  1) On your keyboard, press the Windows logo key and R at the same time to open the Run box. Type**cmd** and press**Ctrl+Shift+Enter** to run Command Prompt as administrator.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/cmd-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Click**Yes** when prompted for permission to make changes to your device.
 
@@ -278,19 +290,22 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-capturesocial-fb-videos-to-files/"><u>[New] 2024 Approved CaptureSocial FB Videos to Files</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-revolutionize-video-files-with-instant-fb-to-mp4-and-hd-upgrade/"><u>[New] 2024 Approved Revolutionize Video Files with Instant FB to MP4 & HD Upgrade</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-soar-high-and-stream-straight-dji-drone-techniques-for-facebook-live/"><u>[New] 2024 Approved Soar High & Stream Straight - DJI Drone Techniques for Facebook Live</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-harness-free-fb-link-downloaders/"><u>[New] In 2024, Harness Free FB Link Downloaders</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-streamline-video-communication-learn-to-add-timely-captions-on-fb-videos/"><u>2024 Approved Streamline Video Communication Learn to Add Timely Captions on FB Videos</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-assessment-of-the-lamicall-t-flexi-tablet-support-where-form-meets-function/"><u>Comprehensive Assessment of the Lamicall T-Flexi Tablet Support - Where Form Meets Function</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/create-personalized-stickers-using-the-power-of-microsofts-advanced-ai-technology/"><u>Create Personalized Stickers Using the Power of Microsoft's Advanced AI Technology</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-samsung-galaxy-z-flip-5-has-native-mov-support-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Samsung Galaxy Z Flip 5 has native MOV support?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-audiovisual-conjuring-apples-artistic-blend/"><u>In 2024, Audiovisual Conjuring Apple's Artistic Blend</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-insiders-guide-to-the-best-6-harnesses-for-capturing-life-with-gopro/"><u>In 2024, Insider's Guide to the Best 6 Harnesses for Capturing Life with GOPRO</u></a></li>
-<li><a href="https://windows11.techidaily.com/mend-cure-your-windows-11-function-key-woes/"><u>Mend: Cure Your Windows 11 Function Key Woes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/navigating-the-best-practices-for-fb-video-advertising-for-2024/"><u>Navigating the Best Practices for FB Video Advertising for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/troubleshooting-electric-car-charger-woes-a-guide-to-identifying-and-fixing-8-common-malfunctions/"><u>Troubleshooting Electric Car Charger Woes: A Guide to Identifying and Fixing 8 Common Malfunctions</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-for-common-csgo-performance-issues-and-crashes/"><u>Troubleshooting Guide for Common CS:GO Performance Issues & Crashes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-detailed-instructions-mastering-the-art-of-uploading-vr-media-to-fb-for-2024/"><u>[New] Detailed Instructions Mastering the Art of Uploading VR Media to FB for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-game-on-a-comprehensive-guide-to-xbox-one-captures-for-2024/"><u>[New] Game On A Comprehensive Guide to Xbox One Captures for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-livetv-and-facebook-integrating-fb-livestreams/"><u>[New] In 2024, LiveTV and Facebook Integrating FB Livestreams</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-fishermans-field-guide-to-prime-camers/"><u>[New] In 2024, The Fisherman's Field Guide to Prime Camers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-tips-for-optimizing-facebooks-auto-play-videos/"><u>[Updated] 2024 Approved Tips for Optimizing Facebook's Auto-Play Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-exclusive-access-8-top-fb-link-extractors/"><u>[Updated] Exclusive Access 8 Top FB Link Extractors</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-precision-screen-capturing-top-tools-reviewed-on-pcmac-for-2024/"><u>[Updated] Precision Screen Capturing Top Tools Reviewed on PC/Mac for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-rank-the-best-fb-video-downloaders-heres-how-for-2024/"><u>[Updated] Rank the Best FB Video Downloaders - Here's How for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-launch-your-own-fb-stream-on-pc-mac-and-laptop-using-obs/"><u>2024 Approved Launch Your Own FB Stream on PC, Mac & Laptop Using OBS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-silent-spectator-of-social-media-snippets/"><u>2024 Approved Silent Spectator of Social Media Snippets</u></a></li>
+<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-iphone-13-pro-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing iPhone 13 Pro Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://driver-error.techidaily.com/driver-alerted-ideport0-control-issue/"><u>Driver Alerted: Ideport0 Control Issue</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-fortnites-video-memory-crash-issue-solutions-inside/"><u>How to Fix Fortnite's Video Memory Crash Issue - Solutions Inside!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-cyberspace-cinema-collector/"><u>In 2024, Cyberspace Cinema Collector</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-se-2022-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-vivo-v30-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Vivo V30 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/revolutionary-hearing-aids-m06-wireless-review/"><u>Revolutionary Hearing Aids: M06 Wireless Review</u></a></li>
 </ul></div>
 

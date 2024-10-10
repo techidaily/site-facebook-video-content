@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Discarding Virtual Gatherings on FB, PC/Smartphones"
-date: 2024-08-17T17:58:49.791Z
-updated: 2024-08-18T17:58:49.791Z
+date: 2024-10-08T18:43:16.903Z
+updated: 2024-10-09T17:50:09.770Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,13 @@ Let's begin with the mobile Facebook application:
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -72,9 +79,23 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This is how you will remove the stories from Facebook archived.
 
@@ -90,12 +111,6 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -109,8 +124,18 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -121,9 +146,6 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
 If you don't want to see someone else’s story, then you can mute their stories. Once you do that, their stories will no longer appear on your News Feed. Here are the steps to follow:
@@ -133,24 +155,23 @@ Visit the Stories section, and then tap on a story of a person that you don't wa
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Conclusion**
 
 Facebook stories are a great way to let people know what you are up to. It's short and does the job perfectly. But there will be moments when you will want to remove the story early, and to do that, we have shared all the essential tips that will help you. Now that you have learned **how to remove** a **story from Facebook, go on and delete your stories early**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -158,3 +179,20 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-exclusive-top-5-list-of-fb-video-downloaders/"><u>[New] 2024 Approved Exclusive TOP 5 List of FB Video Downloaders</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-expert-picks-our-1-10-list-of-camera-lenses-for-the-best-shots/"><u>[New] In 2024, Expert Picks Our #1-10 List of Camera Lenses for the Best Shots</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-time-is-money-the-best-facebook-schedulers-reviewed/"><u>[New] In 2024, Time Is Money The Best Facebook Schedulers Reviewed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unveil-facebook-friends-8-seamless-downloads/"><u>[Updated] In 2024, Unveil Facebook Friends 8 Seamless Downloads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-complete-guide-to-360-video-submission-on-fb/"><u>[Updated] The Complete Guide to 360 Video Submission on FB</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-collaboration-unified-watch-experience-across-platforms/"><u>2024 Approved Channel Collaboration Unified Watch Experience Across Platforms</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/efficient-starry-data-wipe-setup-regular-deletion-on-windows/"><u>Efficient Starry Data Wipe: Setup Regular Deletion on Windows</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/escalate-video-display-in-public-profile/"><u>Escalate Video Display in Public Profile</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-remove-iphone-6-sim-lock-by-drfone-ios/"><u>In 2024, How to Remove iPhone 6 SIM Lock?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimal-system-transition-the-win7-win10-journey/"><u>Optimal System Transition: The Win7-Win10 Journey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/smartphone-image-editing-ios-and-androids-top-picks-2e-edition-for-2024/"><u>Smartphone Image Editing IOS & Android's Top Picks (2E Edition) for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/movavi-caf-to-m4a/"><u>すぐに始めるための無料ウェブベースのオーディオ変換: Movavi CAF to M4A</u></a></li>
+</ul></div>
+

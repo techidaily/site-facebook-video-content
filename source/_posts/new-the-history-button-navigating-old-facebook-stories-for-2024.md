@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The History Button  Navigating Old Facebook Stories for 2024\""
-date: 2024-08-17T17:59:56.146Z
-updated: 2024-08-18T17:59:56.146Z
+date: 2024-10-09T06:53:42.967Z
+updated: 2024-10-10T06:37:19.597Z
 tags:
   - ai video
   - ai facebook
@@ -53,17 +53,41 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -84,9 +108,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
@@ -95,30 +116,10 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -127,9 +128,6 @@ To attract more audience and gain more likes, comments all you need is a smart [
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 **Features:**
 
 4K Resolution Editing Support
@@ -157,8 +155,12 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -181,11 +183,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-leveraging-hdtv-for-fb-videos-playback/"><u>[New] 2024 Approved Leveraging HDTV for FB Videos Playback</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-elevating-roi-in-facebooks-animated-advertising-arena/"><u>[New] In 2024, Elevating ROI in Facebook's Animated Advertising Arena</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-step-by-step-process-for-integrating-music-in-facebook-videos-for-2024/"><u>[New] Step-by-Step Process for Integrating Music in Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-customizing-facebook-memories-with-look-back-edits/"><u>[Updated] Customizing Facebook Memories with Look Back Edits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-boosting-video-quality-hd-streaming-across-facebook/"><u>[Updated] In 2024, Boosting Video Quality HD Streaming Across Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-stop-the-sponsored-snippet-stops-in-fb/"><u>[Updated] Stop the Sponsored Snippet Stops in FB</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-zoom-mastering-screen-sharing-basics/"><u>[Updated] Zoom Mastering Screen-Sharing Basics</u></a></li>
+<li><a href="https://os-tips.techidaily.com/access-and-convert-your-itunes-content-without-drm-using-the-dearmob-tutorial/"><u>Access & Convert Your iTunes Content without DRM Using the DearMob Tutorial</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/breeze-through-your-latest-fb-watches-2023-edition-for-2024/"><u>Breeze Through Your Latest FB Watches 2023 Edition for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhancing-engagement-on-social-platforms-using-chatgpt-writing-tips/"><u>Enhancing Engagement on Social Platforms Using ChatGPT Writing Tips</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-the-latest-ios-beta-version-on-iphone-15-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS Beta Version on iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Ways to Change Spotify Location On Your Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-itel-p40plus-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Itel P40+?</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/overcome-write-failed-in-boot-directory-a-guide-to-solving-blue-screen-errors/"><u>Overcome Write Failed in Boot Directory – A Guide to Solving Blue Screen Errors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/time-hopping-through-facebook-stories-a-device-based-expedition/"><u>Time-Hopping Through Facebook Stories A Device-Based Expedition</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/unleashing-creativity-the-top-10-final-cut-pro-movies-for-2024/"><u>Unleashing Creativity The Top 10 Final Cut Pro Movies for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-portability-in-tire-inflation-a-comprehensive-review-of-jacos-smartpro-model/"><u>Unveiling the Power of Portability in Tire Inflation - A Comprehensive Review of Jaco's SmartPro Model</u></a></li>
+</ul></div>
+
