@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Unlink Lively Logos From Your Profile (Mobile/PC)"
-date: 2024-10-05T14:09:26.715Z
-updated: 2024-10-10T00:06:07.758Z
+date: 2024-10-14T20:58:09.008Z
+updated: 2024-10-16T16:33:59.074Z
 tags:
   - ai video
   - ai facebook
@@ -73,17 +73,31 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is how you will remove the stories from Facebook archived.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
@@ -109,20 +123,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -132,26 +132,13 @@ Facebook has made sharing stories easy because of the multiple features it offer
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -160,6 +147,13 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -182,22 +176,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elevate-engagement-4-steps-to-add-fb-story-link/"><u>[New] 2024 Approved Elevate Engagement 4 Steps to Add FB Story Link</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-online-event-replay-collectors/"><u>[New] Online Event Replay Collectors</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-harness-the-hype-tactics-to-supercharge-your-social-media-status/"><u>[Updated] 2024 Approved Harness the Hype Tactics to Supercharge Your Social Media Status</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-eight-essential-free-fb-link-extractors-for-2024/"><u>[Updated] Eight Essential Free FB Link Extractors for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cultivating-a-brighter-home-with-outdoor-help/"><u>[Updated] In 2024, Cultivating a Brighter Home with Outdoor Help</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-social-snagging-5-chrome-hdl-vids/"><u>[Updated] In 2024, Mastering Social Snagging 5 Chrome HDL Vids</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-tech-enthusiasts-review-the-top-10-sdk-enhanced-apps-for-fb-videos-on-android/"><u>[Updated] Tech Enthusiast's Review The Top 10 SDK-Enhanced Apps for FB Videos on Android</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-streamlined-techniques-for-transforming-vids-on-pinterest-to-mp3s/"><u>2024 Approved Streamlined Techniques for Transforming Vids on Pinterest to MP3s</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-top-creations-unique-and-chic-minecraft-dwellings/"><u>2024 Approved Top Creations Unique and Chic Minecraft Dwellings</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/como-gravar-e-compartilhar-sucessos-de-midia-social-no-tiktok-usando-o-software-de-edicao-do-movavi-compativel-com-todos-os-devices/"><u>Como Gravar E Compartilhar Sucessos De Mídia Social No TikTok Usando O Software De Edição Do Movavi: Compatível Com Todos Os Devices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/effective-ways-how-to-block-facebook-video-ads/"><u>Effective Ways | How to Block Facebook Video Ads?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-c53-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on C53</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-free-screen-snip-androids-highest-rated-recorders-countdown-eight-edition/"><u>In 2024, Free Screen Snip Android's Highest-Rated Recorders Countdown – Eight Edition</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/macx-dvd-ripper-professional-secure-dvd-copying-and-itunes-compatible-mp4-files-extraction-for-apple-devices/"><u>MacX DVD Ripper Professional - Secure DVD Copying & iTunes Compatible MP4 Files Extraction for Apple Devices</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/post-prime-day-blowout-snag-the-new-apple-ipad-10th-gen-for-only-299-tech-news-on-zdnet/"><u>Post-Prime Day Blowout: Snag the New Apple iPad (10Th Gen) for Only $299 - Tech News on ZDNet</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/superior-7-streamers-choice-for-videos/"><u>Superior 7 Streamer's Choice for Videos</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-messages-from-v27e-by-fonelab-android-recover-messages/"><u>Undelete lost messages from V27e</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-best-video-chatting-tools-for-remote-team-interactions/"><u>[New] In 2024, Best Video Chatting Tools for Remote Team Interactions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-prove-youre-a-pro-lightning-fast-editing-in-windows-11-videos/"><u>[Updated] In 2024, Prove You're a Pro Lightning-Fast Editing in Windows 11 Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twittersphere-treasures-primes-top-watchers-and-likes/"><u>[Updated] In 2024, Twittersphere Treasures Prime’s Top Watchers & Likes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-cross-media-broadcasting-4-strategies-to-air-fb-livests-on-tv/"><u>2024 Approved Cross-Media Broadcasting 4 Strategies to Air FB Livests on TV</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-enhance-clarity-in-social-video-downloads-for-smartphonestablets/"><u>2024 Approved Enhance Clarity in Social Video Downloads for Smartphones/Tablets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-social-screen-grabber-kit/"><u>2024 Approved Social Screen Grabber Kit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-top-choice-for-fb-vids-mp4-download-toolkit/"><u>2024 Approved Top Choice for FB Vids – MP4 Download Toolkit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-uncovering-facebooks-fresh-favorites-our-picks-of-top-vids/"><u>2024 Approved Uncovering Facebook's Fresh Favorites Our Picks of Top Vids</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-x50-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/best-practices-in-updating-your-social-network-backdrop-for-2024/"><u>Best Practices in Updating Your Social Network Backdrop for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effortless-ways-to-restore-your-pcs-audio-step-by-step-guide/"><u>Effortless Ways to Restore Your PC's Audio - Step by Step Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-advice-overcoming-known-issues-with-your-graphics-driver/"><u>Expert Advice: Overcoming 'Known Issues with Your Graphics Driver'</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-honor-v-purse-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-crafting-wealth-with-facebook-video-ads-a-comprehensive-guide/"><u>In 2024, Crafting Wealth with Facebook Video Ads A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-facebook-live-with-dji-drones-a-step-by-step-guide-for-2024/"><u>Mastering Facebook Live with DJI Drones A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/methods-for-extracting-video-tweets-from-twitter-and-youtube-into-mp3-format/"><u>Methods for Extracting Video Tweets From Twitter & YouTube Into MP3 Format</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/upgrade-to-the-latest-asrock-ab350-pro4-graphics-card-drivers-for-your-windows-pc-at-no-cost/"><u>Upgrade to the Latest Asrock AB350 Pro4 Graphics Card Drivers for Your Windows PC at No Cost</u></a></li>
 </ul></div>
 

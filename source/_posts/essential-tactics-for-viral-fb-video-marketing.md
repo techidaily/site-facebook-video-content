@@ -1,7 +1,7 @@
 ---
 title: "Essential Tactics for Viral FB Video Marketing"
-date: 2024-08-17T17:44:04.052Z
-updated: 2024-08-18T17:44:04.052Z
+date: 2024-10-14T17:09:58.274Z
+updated: 2024-10-16T17:35:14.380Z
 tags:
   - ai video
   - ai facebook
@@ -33,9 +33,6 @@ Facebook video marketing seems great where you can live interact with your consu
 
 ![facebook live video](https://images.wondershare.com/filmora/article-images/facebook-live-iphone.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### 2\. Upload Videos Directly to Facebook rather than YouTube
 
 Though videos on YouTube usually get views but uploading directly on to Facebook would bring more viewership for your social media video.
@@ -50,21 +47,28 @@ The video view counter helps you estimate the way your viral video fared. You ca
 
 ![upload video to facebook](https://images.wondershare.com/filmora/article-images/upload-video-to-facebook.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Keep your Facebook video short
 
 Like text content, your Facebook Marketing video should also be crisp and short. Video with a fresh and fascinatingly entertaining content becomes a potential viral video. Creating them in widely used language (such as English) would garner more popularity sans the cultural or geographical background of a person.
 
 Shorter videos between 2 minutes effectively perform in comparison to longer versions. But, ensure that the gist of your message should be delivered within that time frame. Make the video so understandable and connecting, that words just add charm to it and not solely define it.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook video short](https://images.wondershare.com/filmora/article-images/facebook-video-length.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4\. Shoot Facebook video vertically
 
 A majority of Facebook users watch videos on their mobile phone or tablets. So shooting your social media video in vertical mode is pleasing to the eyes, while viewing it on a mobile. Portrait (vertically-aligned) videos have a better hit rate compared to horizontal shots. Keeping that in mind, make sure to create your new videos in a mobile friendly manner.
@@ -72,13 +76,12 @@ A majority of Facebook users watch videos on their mobile phone or tablets. So s
 ![facebook vidoe vertical](https://images.wondershare.com/filmora/article-images/facebook-video-vertical.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 5\. Feature a Video on Facebook Page
 
 Just like featured photos on the about section of your Facebook page, you can add your Facebook marketing video as a featured video. When people love your video they keep on sharing it to their near and dear ones, be it about anything.
@@ -87,10 +90,21 @@ It will make your video get popular and go viral as well in case it gets shared 
 
 You can use it to promote an event, launch a product or service, or a teaser about some upcoming surprises. The clearer it gets on your page, the more clicks you will get from the audience.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![feature video facebook](https://images.wondershare.com/filmora/article-images/feature-video-facebook.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Carefully choose thumbnail
 
@@ -101,8 +115,12 @@ When there is a weak internet connection, the videos on Facebook might not auto-
 ![facebook thumbnail](https://images.wondershare.com/filmora/article-images/facebook-thumbnail.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 7\. Leverage Facebook 360 Videos
 
 Facebook introduced 360 videos are a rage among the users. Keeping virtual reality in mind, Facebook launched this feature to improve communication and social interaction.
@@ -111,14 +129,15 @@ With a social media video shot with Facebook 360-degree feature, your viewers wi
 
 These videos can be rotated, paned, and can be viewed from any angle they desire. They are loved 40 percent more than the traditional videos.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook 360 video](https://images.wondershare.com/filmora/article-images/facebook-360-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 8\. Mobile friendly
 
 Being the perfect partner to kill time, while waiting for someone, travelling alone, or in the queue in a supermarket, mobile phones certainly have more attention than other gadgets.
@@ -130,14 +149,8 @@ So, Facebook marketing videos need to cash on this aspect. These videos need to 
 * The visuals identify the brand clearly
 * Voiceover supports the visuals.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![mobile friendly](https://images.wondershare.com/filmora/article-images/mobile-users.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. Posting time is important
 
 Knowing the right time to post your social media video on Facebook or any other social media platform is vital.
@@ -146,9 +159,6 @@ People from diverse backgrounds or field of work consume different video content
 
 There are tools to study the statistics and analyze the most favorable time for posting your Facebook marketing video. You can use them to determine what’s your time to post and get more viewership.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![facebook posting time](https://images.wondershare.com/filmora/article-images/facebook-posting-time.JPG)
 
 ### 10\. Add call to action
@@ -158,6 +168,13 @@ Adding a call to action in your video is vital. Without a call to action, viewer
 You need to build the base, ask them to like, share, or comment on your Facebook videos or even push them gently to visit your website, check out the products/service. You can add a link using goo.gl or bit.ly to cut-short the link and guide them for more information about your services.
 
 ![facebook call to action](https://images.wondershare.com/filmora/article-images/facebook-call-to-action.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **11\. Choose a suitable video creator**
 
@@ -181,8 +198,6 @@ Facebook marketing videos would gain more focus and fan following, if you make u
 
 10 tips for Facebook video marketing
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -190,5 +205,26 @@ Facebook marketing videos would gain more focus and fan following, if you make u
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-what-is-blue-video-icon-on-facebook-messenger/"><u>[New] 2024 Approved What Is Blue Video Icon on Facebook Messenger?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fast-and-free-fb-video-conversion-tools-for-mp3-files-for-2024/"><u>[New] Fast and Free FB Video Conversion Tools for MP3 Files for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-favorite-frames-socials-1-8-vids-for-2024/"><u>[New] Favorite Frames Social's #1-#8 Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-skyrocketing-sales-with-high-roi-in-dynamic-fb-ad-creations/"><u>[New] Skyrocketing Sales with High ROI in Dynamic FB Ad Creations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-charting-a-course-to-riches-youtubes-monetary-milestones/"><u>[Updated] In 2024, Charting a Course to Riches YouTube's Monetary Milestones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-comprehensive-youtube-etiquette-guide/"><u>[Updated] In 2024, Comprehensive YouTube Etiquette Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-cutting-edge-content-tips-for-excelling-in-facebook-video-sharing/"><u>[Updated] In 2024, Cutting-Edge Content Tips for Excelling in Facebook Video Sharing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-evaluating-and-improving-your-facebook-in-stream-ad-campaigns/"><u>[Updated] In 2024, Evaluating & Improving Your Facebook In-Stream Ad Campaigns</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-masterful-fb-watching-essential-top-10-players/"><u>[Updated] In 2024, Masterful FB Watching Essential Top 10 Players</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-videos-made-simple-unified-techniques-for-desktop-and-mobile/"><u>2024 Approved Facebook Videos Made Simple Unified Techniques for Desktop & Mobile</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/androids-technique-for-retroactive-viewing/"><u>Android's Technique for Retroactive Viewing</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-asus-networking-devices-for-the-year-2024/"><u>Leading Asus Networking Devices for the Year 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/music-syncing-for-iphones-and-androids-in-fb-for-2024/"><u>Music Syncing for iPhones & Androids in FB for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-mkv-file-trimming-made-simple-top-3-mac-apps/"><u>New 2024 Approved MKV File Trimming Made Simple Top 3 Mac Apps</u></a></li>
+<li><a href="https://win11.techidaily.com/stop-system-spontaneities-fixing-windows-11-restarts/"><u>Stop System Spontaneities: Fixing WIndows 11 Restarts</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/synchronize-data-efficiently-with-clonezilla-disk-imaging-on-windows-xp-vista-and-2003/"><u>Synchronize Data Efficiently with Clonezilla Disk Imaging on Windows XP, Vista & 2003</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-reason-behind-closed-enrollments-for-chatgpt-seeking-answers-and-hopes-for-renewed-access/"><u>The Reason Behind Closed Enrollments for ChatGPT: Seeking Answers & Hopes for Renewed Access</u></a></li>
+<li><a href="https://games-able.techidaily.com/what-is-palworld-everything-you-need-to-know/"><u>What Is Palworld? Everything You Need to Know</u></a></li>
+</ul></div>
 

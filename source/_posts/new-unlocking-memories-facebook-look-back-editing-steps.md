@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Memories  Facebook Look Back Editing Steps\""
-date: 2024-10-03T11:49:52.491Z
-updated: 2024-10-10T11:38:52.868Z
+date: 2024-10-14T18:22:27.497Z
+updated: 2024-10-16T17:15:59.369Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/c6867ae9c4f4e3df3c9379b15f4163ebd35319a50
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3. Edit the audio of Look Back video
 
  To adjust the background music of Look Back video, double click the video on the Timeline. In the pop up editing panel, switch to Audio column and change the Speed, Volume, Pitch of the audio file or add the Fade in/out effect as you like.
@@ -71,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/c6867ae9c4f4e3df3c9379b15f4163ebd35319a50
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4. Add more effects to your Look Back video
@@ -84,26 +91,13 @@ thumbnail: https://thmb.techidaily.com/c6867ae9c4f4e3df3c9379b15f4163ebd35319a50
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -119,10 +113,10 @@ thumbnail: https://thmb.techidaily.com/c6867ae9c4f4e3df3c9379b15f4163ebd35319a50
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -140,19 +134,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-functionality-of-instagram-story-features/"><u>[New] 2024 Approved The Functionality of Instagram Story Features</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unveiling-the-blueprint-best-practices-for-social-media-video-publishing/"><u>[New] 2024 Approved Unveiling the Blueprint Best Practices for Social Media Video Publishing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-integrating-youtube-autoplay-smoothly-into-your-facebook-experience-for-2024/"><u>[New] Integrating Youtube Autoplay Smoothly Into Your Facebook Experience for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-5-iphone-apps-for-daily-podcasts-for-2024/"><u>[New] Top 5 iPhone Apps for Daily Podcasts for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-elevate-your-facebook-profile-with-these-11-superior-tools/"><u>[Updated] In 2024, Elevate Your Facebook Profile with These 11 Superior Tools</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facilitating-instant-sharing-tiktok-videos-on-facebook/"><u>[Updated] In 2024, Facilitating Instant Sharing TikTok Videos on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-leveraging-social-media-power-optimal-use-of-hash-tags-on-fb/"><u>[Updated] In 2024, Leveraging Social Media Power Optimal Use of Hash Tags on FB</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-top-tech-tool-extract-facebook-videos-as-mp4/"><u>[Updated] Top Tech Tool Extract Facebook Videos as MP4</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-top-6-facebook-lite-video-exporters-2023-edition/"><u>2024 Approved Top 6 Facebook Lite Video Exporters - 2023 Edition</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fixing-iframe-dll-malfunctions-in-windows-systems-effortlessly/"><u>Fixing iFrame DLL Malfunctions in Windows Systems Effortlessly</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-infinix-note-30-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Infinix Note 30 has been deleted.</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/restoring-usb-health-in-windows-a-troubleshooting-checklist/"><u>Restoring USB Health in Windows: A Troubleshooting Checklist</u></a></li>
-<li><a href="https://facebook.techidaily.com/room-exploration-essentials-for-the-messaging-novice/"><u>Room Exploration Essentials for the Messaging Novice</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-11-how-to-restore-missing-desktop-icons-effectively/"><u>Windows 11: How to Restore Missing Desktop Icons Effectively</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-movie-watchlists-streamlining-screen-time/"><u>[New] Ultimate Movie Watchlists Streamlining Screen Time</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-capture-and-share-best-social-media-tools-of-the-year/"><u>2024 Approved Capture and Share Best Social Media Tools of the Year</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/1716098051207-2024-approved-facebook-videos-vertical-or-horizontal/"><u>2024 Approved Facebook Videos Vertical or Horizontal?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-pioneering-the-path-to-digital-dominance-wirecast-livestreams-on-facebook/"><u>2024 Approved Pioneering the Path to Digital Dominance Wirecast Livestreams on Facebook</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-storytellers-portal/"><u>2024 Approved Ultimate Storytellers' Portal</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlocking-online-potential-essential-fb-advice-for-businesses/"><u>2024 Approved Unlocking Online Potential Essential FB Advice for Businesses</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/autonomy-in-speech/"><u>Autonomy in Speech</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/essential-guide-broadcast-360-videos-on-facebook/"><u>Essential Guide Broadcast 360 Videos on Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme GT 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-tecno-camon-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-s17-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Vivo S17 Pro PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unveiling-a-world-of-live-content-roku-and-facebook-integration/"><u>In 2024, Unveiling a World of Live Content Roku and Facebook Integration</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-solution-reactivating-your-unresponsive-roku-tv-set/"><u>Step-by-Step Solution: Reactivating Your Unresponsive Roku TV Set</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-tutorial-get-vidmate-up-and-running-on-windowsmac-with-top-backup-options/"><u>Step-by-Step Tutorial: Get VidMate Up & Running on Windows/Mac, With Top Backup Options!</u></a></li>
 </ul></div>
 

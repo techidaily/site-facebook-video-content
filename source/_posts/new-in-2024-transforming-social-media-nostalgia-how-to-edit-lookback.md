@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Transforming Social Media Nostalgia  How to Edit Lookback\""
-date: 2024-09-27T19:53:22.870Z
-updated: 2024-09-29T17:01:44.345Z
+date: 2024-10-09T17:58:42.047Z
+updated: 2024-10-16T19:55:08.820Z
 tags:
   - ai video
   - ai facebook
@@ -56,18 +56,18 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -77,20 +77,27 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 5. Save or share the edited Look Back video
 
@@ -104,26 +111,13 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -140,21 +134,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-video-capture-clash-go-obs-against-shadowgl/"><u>[New] In 2024, Video Capture Clash Go OBS! Against ShadowGL</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-zooming-in-a-step-by-step-guide-to-perfect-screenshare/"><u>[Updated] 2024 Approved Zooming In A Step-by-Step Guide to Perfect Screenshare</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-broadcast-your-previous-video-a-guide-to-live-streaming-on-facebook/"><u>[Updated] Broadcast Your Previous Video A Guide to Live-Streaming on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-legal-considerations-when-uploading-videos-to-social-network-sites-for-2024/"><u>[Updated] Legal Considerations When Uploading Videos to Social Network Sites for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-the-minefield-suddenly-banned-videos-on-social-media/"><u>[Updated] Navigating the Minefield Suddenly Banned Videos on Social Media</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-sync-up-with-successful-facebook-feeds-for-2024/"><u>[Updated] Sync Up with Successful Facebook Feeds for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-samsung-galaxy-m54-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Samsung Galaxy M54 5G FRP</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/accelerate-the-performance-of-your-instagram-videos/"><u>Accelerate the Performance of Your Instagram Videos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/adjusting-sound-settings-gently-in-windowsmacos-for-2024/"><u>Adjusting Sound Settings Gently in Windows/macOS for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/comprehensively-guide-to-transferring-videos-onto-facebook-from-pc-and-android/"><u>Comprehensively Guide to Transferring Videos Onto Facebook From PC & Android</u></a></li>
-<li><a href="https://games-able.techidaily.com/elgato-stream-decks-recommendations-for-every-budget/"><u>Elgato Stream Decks: Recommendations for Every Budget</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-updated-epson-wf-3620-driver-software-for-windows-operating-systems-including-windows-1187/"><u>Get Updated Epson WF-3620 Driver Software for Windows Operating Systems Including Windows 11/8/7</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-react-when-your-face-appears-in-video-calls-accidentally/"><u>In 2024, How To React When Your Face Appears In Video Calls Accidentally</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-xiaomi-14-ultra-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Xiaomi 14 Ultra? Fixed | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/journey-to-joyrides-top-6-essential-mc-house-plans/"><u>Journey to Joyrides Top 6 Essential MC House Plans</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/uncharted-territory-in-facebooks-meme-landscape-for-2024/"><u>Uncharted Territory in Facebook's Meme Landscape for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oost-your-content-access-free-vocal-sfx-for-2024/"><u>[New] Boost Your Content Access Free Vocal SFX for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-bridging-audio-gaps-the-complete-guide-to-smooth-blending-in-audacity/"><u>[New] Bridging Audio Gaps The Complete Guide to Smooth Blending in Audacity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mirth-in-monotony-best-humored-fb-jail-cell-captures/"><u>[New] Mirth in Monotony Best-Humored Fb Jail Cell Captures</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-exclusive-update-selecting-the-premium-top-10-fb-video-downloading-apps/"><u>[Updated] 2024 Approved Exclusive Update Selecting the Premium Top 10 FB Video Downloading Apps</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facebook-video-integration-for-pc-and-android-users-explained/"><u>[Updated] 2024 Approved Facebook Video Integration for PC & Android Users Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unleash-your-stories-gratis-facebook-enhancers-online-and-on-the-go-for-2024/"><u>[Updated] Unleash Your Stories Gratis, Facebook Enhancers Online & On-The-Go for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breaking-barriers-in-operating-systems-post-windows-11/"><u>Breaking Barriers in Operating Systems: Post-Windows 11</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-the-latest-version-of-hp-laserjet-p1007-printer-drivers/"><u>Download & Install the Latest Version of HP LaserJet P1007 Printer Drivers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/eac-launch-problem-solved-confirm-your-game-has-easy-anti-cheat-enabled/"><u>EAC Launch Problem Solved? Confirm Your Game Has Easy Anti-Cheat Enabled</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-honor-magic-5-lite-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Honor Magic 5 Lite to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/peering-into-facebooks-2023-video-landscape-a-focus-on-short-clips-for-2024/"><u>Peering Into Facebook's 2023 Video Landscape A Focus on Short Clips for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solve-house-flipper-2-instability-issues-on-your-windows-computer/"><u>Solve House Flipper 2 Instability Issues on Your Windows Computer</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-5-pro-digital-cameras-for-smooth-twitch-broadcasts-for-2024/"><u>Top 5 Pro Digital Cameras for Smooth Twitch Broadcasts for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-nokia-c110-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Nokia C110 FRP Bypass</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-merge-videos-without-ads-7-leading-software-choices-for-2024/"><u>Updated Merge Videos Without Ads 7 Leading Software Choices for 2024</u></a></li>
 </ul></div>
 

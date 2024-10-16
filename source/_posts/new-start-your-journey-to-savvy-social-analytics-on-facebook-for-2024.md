@@ -1,7 +1,7 @@
 ---
 title: "[New] Start Your Journey to Savvy Social Analytics on Facebook for 2024"
-date: 2024-09-28T16:47:03.460Z
-updated: 2024-09-29T18:04:18.113Z
+date: 2024-10-09T17:27:34.214Z
+updated: 2024-10-16T19:06:33.596Z
 tags:
   - ai video
   - ai facebook
@@ -41,6 +41,13 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -56,10 +63,16 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -72,13 +85,6 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Post Reach
 
  The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
@@ -90,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
  In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
@@ -108,10 +121,10 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. People Analytics
@@ -133,20 +146,13 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -163,18 +169,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-in-class-chromebook-recording-app/"><u>[New] Best in Class Chromebook Recording App</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-converting-your-clips-into-perfect-instagram-stories/"><u>[New] In 2024, Converting Your Clips Into Perfect Instagram Stories</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-mastering-mac-recording-settings-for-snapchat-use/"><u>[New] Mastering Mac Recording Settings for Snapchat Use</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-top-9-fb-scraper-apps-for-films/"><u>[New] Top 9 FB Scraper Apps for Films</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-becoming-a-broadcast-guru-1080p-facebook-streaming-essentials/"><u>2024 Approved Becoming a Broadcast Guru 1080P Facebook Streaming Essentials</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fix-intermittent-media-on-chrome-browser/"><u>2024 Approved Fix Intermittent Media on Chrome Browser</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-watch-out-these-are-the-8-most-popular-facebook-videos-right-now/"><u>2024 Approved Watch Out! These Are the 8 Most Popular Facebook Videos Right Now</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/dealing-with-mistakes-self-representation-during-online-chats/"><u>Dealing with Mistakes Self-Representation During Online Chats</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/dissecting-video-production-mastery-with-xmedia-studio-suite/"><u>Dissecting Video Production Mastery with XMedia Studio Suite</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-stable-iphone-cinematography-three-tactics-inside/"><u>In 2024, Stable iPhone Cinematography Three Tactics Inside</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/resolving-fixme20dll-file-absence-a-step-by-step-guide/"><u>Resolving 'FixMe20.dll' File Absence - A Step-by-Step Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/solved-unraveling-the-mystery-of-auto-start-issues-in-your-windows-11-machine/"><u>Solved: Unraveling the Mystery of Auto-Start Issues in Your Windows 11 Machine</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/video-to-photo-windows-11-methodology/"><u>Video to Photo Windows 11 Methodology</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-best-iphoneipad-apps-to-enjoy-your-favorite-psp-games/"><u>[New] 2024 Approved Best iPhone/iPad Apps to Enjoy Your Favorite PSP Games</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-overcoming-instagram-video-errors-solutions-now-for-2024/"><u>[New] Overcoming Instagram Video Errors Solutions Now for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unleashing-the-power-of-tales-complimentary-apps-galore/"><u>[Updated] 2024 Approved Unleashing the Power of Tales Complimentary Apps Galore</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/genius-widecam-f100-review/"><u>Genius WideCam F100 Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-htc-u23-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your HTC U23 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-depth-look-at-sonys-x1000v-hd-recorder/"><u>In-Depth Look at Sony's X1000V HD Recorder</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-the-newest-nvidia-rtx-2n60-super-drivers-supporting-windows-1011-operating-systems/"><u>Install the Newest NVIDIA RTX 2N60 Super Drivers: Supporting Windows 10/11 Operating Systems</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/perfect-past-moments-on-fb-a-look-back-edition-for-2024/"><u>Perfect Past Moments on FB A Look Back Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/simplifying-the-process-of-finding-facebook-watch-history/"><u>Simplifying the Process of Finding Facebook Watch History</u></a></li>
 </ul></div>
 

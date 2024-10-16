@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Story Reach Through Linked Profile Ties"
-date: 2024-09-24T16:10:35.151Z
-updated: 2024-09-29T19:59:10.284Z
+date: 2024-10-11T19:42:40.184Z
+updated: 2024-10-16T17:25:44.604Z
 tags:
   - ai video
   - ai facebook
@@ -51,16 +51,16 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 ![create Facebook Page story](https://images.wondershare.com/filmora/article-images/create-story-on-facebook-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** You need to type the website name and, on the top, you will see the link icon. Once you are ready with the website name, click on the link icon. Now can choose some buttons based on what kind of link you have shared. For example, shop now, book now, call now, and so on.
 
 ![add link to Facebook Page story](https://images.wondershare.com/filmora/article-images/add-link-to-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 And that’s it; your story will be added to Facebook Story.
 
@@ -81,10 +81,16 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 **Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Add YouTube Video Link on Facebook Story?
@@ -101,20 +107,13 @@ You will be redirected to the Facebook app. There you will be asked if you want 
 
 ![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And you will see the Story with YouTube video link at the top of your Story section.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Add A Swipe Up Link on Facebook Story?
@@ -127,20 +126,34 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 
 ![add swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-swipe-up-button-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** On your story page, you see a link icon. Click on that, and you will be able to add the link you want to add to the story. Choose any of the buttons, and the link will now be ready.
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Please note that the swipe option will be visible to your audience only after you have added the link.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Social Media Video Maker and Editor
 
@@ -158,13 +171,6 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -187,20 +193,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-visual-stories-a-detailed-magix-video-pro-x-review/"><u>[New] In 2024, Crafting Visual Stories A Detailed Magix Video Pro X Review</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-shuttered-creations-sudden-delete-incidents/"><u>[New] In 2024, Shuttered Creations Sudden Delete Incidents</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-venmo-photo-frame-guidelines/"><u>[New] In 2024, Venmo Photo Frame Guidelines</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-fraps-to-video-an-evaluation-review/"><u>[Updated] Fraps to Video An Evaluation Review</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-maximizing-your-reach-live-360-videos-on-facebook/"><u>[Updated] In 2024, Maximizing Your Reach Live 360 Videos on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-strengthening-your-brand-with-high-quality-fb-covers/"><u>[Updated] In 2024, Strengthening Your Brand with High-Quality FB Covers</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-z-flip-5-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy Z Flip 5 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-watch-hulu-outside-us-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From Apple iPhone 14 Pro Max</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/network-neutralizer-overcoming-facebook-intrusion-for-2024/"><u>Network Neutralizer Overcoming Facebook Intrusion for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-steps-for-integrating-sound-into-the-latest-avi-format/"><u>New Steps for Integrating Sound Into the Latest AVI Format</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resetting-steam-symbols-on-pc/"><u>Resetting Steam Symbols on PC</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/skyrocket-your-e-commerce-with-these-15-facebook-analytics-for-2024/"><u>Skyrocket Your E-Commerce with These 15 Facebook Analytics for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-guide-to-updating-device-drivers-on-windows-11/"><u>Step-by-Step Guide to Updating Device Drivers on Windows 11</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-solution-resolve-the-windows-update-error-error-id-0x8007001f/"><u>Step-by-Step Solution: Resolve the Windows Update Error (Error ID: 0X8007001f)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-journeying-through-yesteryears-facebook-posts-on-mobilelaptop/"><u>[New] In 2024, Journeying Through Yesteryear's Facebook Posts on Mobile/Laptop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-real-time-storytelling-on-the-rise-navigating-and-thriving-in-a-social-media-world/"><u>[New] In 2024, Real-Time Storytelling on the Rise Navigating and Thriving in a Social Media World</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-seeking-awareness-complete-view-of-sharable-media-in-messages-for-2024/"><u>[New] Seeking Awareness Complete View of Sharable Media in Messages for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-striking-the-perfect-balance-in-profile-videos-for-2024/"><u>[New] Striking the Perfect Balance in Profile Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-art-of-crafting-captivating-facebook-stories/"><u>[New] The Art of Crafting Captivating Facebook Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-enhance-your-page-posts-amidst-facebooks-shift/"><u>[Updated] 2024 Approved How to Enhance Your Page Posts Amidst Facebook's Shift</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-recipe-realms-stepwise-food-videography/"><u>[Updated] 2024 Approved Recipe Realms Stepwise Food Videography</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-quick-dive-into-video-ratios-the-aspect-ratio-essentials-for-youtubers/"><u>[Updated] In 2024, A Quick Dive Into Video Ratios The Aspect Ratio Essentials for YouTubers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-enhanced-mp4-streaming-for-facebook-networks/"><u>[Updated] In 2024, Enhanced MP4 Streaming for Facebook Networks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigating-facebook-analytics-simplified/"><u>[Updated] In 2024, Navigating Facebook Analytics Simplified</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-motorola-defy-2-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Motorola Defy 2 for Free? | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/immediate-delivery-ultimate-solution-for-iphone-pixel-fixes/"><u>Immediate Delivery: Ultimate Solution for iPhone Pixel Fixes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-iphone-11-pro-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From iPhone 11 Pro Smoothly</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-6s-plus-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 6s Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/switching-off-default-everyone-alerts/"><u>Switching Off Default Everyone Alerts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-resolving-forza-horizon-5-pc-game-crashes/"><u>Troubleshooting Steps for Resolving Forza Horizon 5 PC Game Crashes</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-s-top-free-cctv-software-for-home-and-business-security/"><u>Updated S Top Free CCTV Software for Home and Business Security</u></a></li>
 </ul></div>
 

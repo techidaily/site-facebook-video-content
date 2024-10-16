@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Facebook Slideshow  How to Create a Slideshow on Facebook\""
-date: 2024-10-08T10:04:15.956Z
-updated: 2024-10-09T21:16:39.152Z
+date: 2024-10-11T20:11:25.559Z
+updated: 2024-10-16T17:04:53.398Z
 tags:
   - ai video
   - ai facebook
@@ -51,13 +51,6 @@ Check the ultimate guide about [Making a slideshow with music and titles in Film
 
 ## Part 2: How to Create a Slideshow on Facebook Easily
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 1: Start making a Facebook slideshow
 
 First of all, you need to open the Facebook application on iOS and Android phones and then move to the Status Update section. Here you will find the slideshow option near the frequently used photo upload option. The second option is, whenever you find a new slideshow sharing from any of your friends on your Facebook timeline, you can tap the “Try it” button over this post, it will immediately take you to the slideshow creation section.
@@ -65,10 +58,10 @@ First of all, you need to open the Facebook application on iOS and Android phone
 ![start create facebook slideshow](https://images.wondershare.com/filmora/article-images/facebook-slideshow-update-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Now choose one theme
@@ -78,10 +71,10 @@ Now select photos that you wish to add to your slideshow, you can also add video
 ![facebook slideshow library](https://images.wondershare.com/filmora/article-images/facebook-slideshow-library.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Edit Facebook slideshow
@@ -91,10 +84,10 @@ The Edit option allows you to delete an image and adjust the order of the photos
 ![how to create a slideshow on facebook](https://images.wondershare.com/filmora/filmorapro/edit-facebook-slideshow.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 4: Publish Facebook slideshow
@@ -113,22 +106,35 @@ Everyone can create a slideshow but not everyone can create appealing slideshows
 
 ![tips for making slideshow on facebook](https://images.wondershare.com/filmora/filmorapro/slideshow-example.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 Now, you must know how to make a Facebook slideshow. If you want to make a slideshow in an easier way with powerful features. try [slideshow maker Filmora](https://tools.techidaily.com/wondershare/filmora/download/). With the well-designed filters and effects of the Wondershare Filmora platform, you can immediately design eye-catching slideshows. There are so many stunning text collections, motion elements, overlays, and special effects. Some of the most lovable feature offerings are Holiday Set, Education Set, Travel Set, Food Set, Fitness Set, Fashion Set, Beauty Set, and many more in [Filmstock (effects store)](https://tools.techidaily.com/wondershare/filmora/download/). This collection is capable enough to decorate all important moments of your life in the form of slide shows. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **You may also like:** [Create a Facebook Photo Slideshow with Music](https://tools.techidaily.com/wondershare/filmora/download/) with [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,18 +151,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-effective-group-meetings-googles-top-solutions-4/"><u>[New] 2024 Approved Effective Group Meetings Google's Top Solutions (#4)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-fixing-sound-discrepan-points-in-facebook-streams/"><u>[New] 2024 Approved Fixing Sound Discrepan Points in Facebook Streams</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-complete-connoisseurs-manual-for-expertise-in-morphvox-voice-changing-for-2024/"><u>[New] Complete Connoisseur’s Manual for Expertise in MorphVOX Voice Changing for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-efficient-methods-to-block-facebook-adverts-for-2024/"><u>[New] Efficient Methods to Block Facebook Adverts for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-social-media-strategy-fb-video-angles-for-2024/"><u>[New] Social Media Strategy – FB Video Angles for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-ideal-film-equipment-for-novice-cinematographers-35mm-to-pands/"><u>[Updated] Ideal Film Equipment for Novice Cinematographers (35Mm to P&S)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-evaluating-the-benefits-of-instagrams-selfie-credentials/"><u>[Updated] In 2024, Evaluating the Benefits of Instagram’s Selfie Credentials</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-transforming-your-ad-strategy-with-animation-for-max-roi/"><u>[Updated] In 2024, Transforming Your Ad Strategy with Animation for Max ROI</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-quick-and-simple-free-fb-video-to-mp4-hd-conversion-tutorial-online/"><u>[Updated] Quick and Simple Free FB Video to MP4 (HD) Conversion Tutorial Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-tales-for-twilight-film-analysis/"><u>[Updated] Tales for Twilight Film Analysis</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-tecno-spark-10-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c12-plus-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Nokia C12 Plus Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dial-up-the-impact-with-50-free-branding-graphics/"><u>[New] 2024 Approved Dial Up the Impact with 50 FREE Branding Graphics</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-exploring-new-dimensions-choose-the-best-vr-headsets-for-metaverse/"><u>[New] Exploring New Dimensions Choose the Best VR Headsets for Metaverse</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-soundsnatcher-free-guide-and-assessment/"><u>[New] SoundSnatcher Free Guide & Assessment</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-maximize-reach-with-effective-igtv-video-posts/"><u>[Updated] 2024 Approved Maximize Reach with Effective IGTV Video Posts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-best-8-private-video-downloaders/"><u>2024 Approved Best 8 Private Video Downloaders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastering-the-art-of-uploading-and-sharing-videos-on-instagram/"><u>2024 Approved Mastering the Art of Uploading and Sharing Videos on Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-optimal-mp4-transporter-to-fb-hub/"><u>2024 Approved Optimal MP4 Transporter to FB Hub</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-periscope-presentation-outline-width-height-time/"><u>2024 Approved Periscope Presentation Outline Width, Height, Time</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-seamless-viewing-of-time-honored-facebook-stories/"><u>2024 Approved Seamless Viewing of Time-Honored Facebook Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/breaking-down-facebooks-latest-developments-for-2024/"><u>Breaking Down Facebook's Latest Developments for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/dissecting-deceptive-accounts-in-your-ad-audience-for-2024/"><u>Dissecting Deceptive Accounts in Your Ad Audience for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/ideal-methods-to-archive-playstation-4-gaming-sessions-for-2024/"><u>Ideal Methods to Archive PlayStation 4 Gaming Sessions for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-lenovo-thinkphone-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Lenovo ThinkPhone by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-sparking-social-media-stories-facebook-fame-techniques/"><u>In 2024, Sparking Social Media Stories Facebook Fame Techniques</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-oppo-reno-8t-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Oppo Reno 8T Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722898480698-mac-users-rejoice-how-to-reset-your-dns-records-effortlessly/"><u>Mac Users Rejoice: How to Reset Your DNS Records Effortlessly</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-insider-guide-whatsapp-audio-talks/"><u>The Insider Guide WhatsApp Audio Talks</u></a></li>
 </ul></div>
 
