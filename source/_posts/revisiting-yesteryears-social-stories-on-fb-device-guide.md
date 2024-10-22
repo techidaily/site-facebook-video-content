@@ -1,7 +1,7 @@
 ---
 title: "\"Revisiting Yesteryear's Social Stories on FB  Device Guide\""
-date: 2024-10-13T18:31:57.804Z
-updated: 2024-10-16T20:45:22.436Z
+date: 2024-10-21T03:03:35.399Z
+updated: 2024-10-22T02:20:33.421Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,13 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -70,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -95,10 +102,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -116,13 +123,6 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -147,10 +147,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,15 +168,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-broadcast-success-master-the-art-of-monitor-sharing-on-fb-for-2024/"><u>[New] Broadcast Success Master the Art of Monitor Sharing on FB for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-toggle-between-normal-and-picture-in-picture-view-for-youtube-on-iphone/"><u>[New] Toggle Between Normal and Picture In Picture View for Youtube on iPhone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-deleting-facebook-stories-laptop-and-mobile-guide/"><u>[Updated] 2024 Approved Deleting Facebook Stories Laptop & Mobile Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-how-to-stream-on-mixer-macos/"><u>[Updated] How to Stream on Mixer MacOS</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-streamlining-virtual-collaborations-a-comprehensive-scheduling-and-recording-manual-for-slack-plus-filmora/"><u>[Updated] In 2024, Streamlining Virtual Collaborations A Comprehensive Scheduling & Recording Manual for Slack + Filmora</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/digital-doppelganger-drawing-crafting-caricatured-emblems-for-2024/"><u>Digital Doppelganger Drawing Crafting Caricatured Emblems for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-imagination-to-illustration-ranking-the-best-8-iphone-drawing-software/"><u>In 2024, From Imagination to Illustration Ranking the Best 8 iPhone Drawing Software</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-shooting-spectacular-igtv-videos-with-your-phone-or-dslr/"><u>In 2024, Shooting Spectacular IGTV Videos with Your Phone or DSLR</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/top-facebook-song-videos-unveiled-a-making-of-chronicle/"><u>Top Facebook Song Videos Unveiled A Making-Of Chronicle</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transcode-music-files-from-mp3-to-m4a-at-no-cost-using-movavis-web-service/"><u>Transcode Music Files From MP3 to M4A at No Cost Using Movavi's Web Service</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-new-wave-on-youtube-and-fb-discover-the-hottest-8-trends/"><u>[New] 2024 Approved The New Wave on YouTube & FB Discover the Hottest 8 Trends</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-3-best-ways-to-get-pinterest-video-to-mp3-downloaded/"><u>[Updated] 3 Best Ways to Get Pinterest Video to MP3 Downloaded</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-affordable-action-camera-deals-top-6-for-less-than-100-only/"><u>[Updated] Affordable Action Camera Deals Top 6 for Less Than $100 Only</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-elevating-movie-experience-adding-subtitles-to-windows-media-player/"><u>[Updated] Elevating Movie Experience Adding Subtitles to Windows Media Player</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-feed-flourish-elevating-engagement-from-ordinary-posts-for-2024/"><u>[Updated] Feed Flourish Elevating Engagement From Ordinary Posts for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-mastering-free2x-camera-recorder-features/"><u>[Updated] In 2024, Mastering Free2X Camera Recorder Features</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-the-complete-guide-to-live-streaming-on-instagram-via-obs/"><u>[Updated] In 2024, The Complete Guide to Live Streaming on Instagram via OBS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-optimizing-video-sharing-whatsapp-and-facebook-integration/"><u>[Updated] Optimizing Video Sharing WhatsApp & Facebook Integration</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-streamline-your-internet-use-with-these-5-chromium-addons-for-vids/"><u>[Updated] Streamline Your Internet Use With These 5 Chromium Addons for Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-ultimate-selection-of-8-stealth-downloads-for-2024/"><u>[Updated] Ultimate Selection of 8 Stealth Downloads for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-realme-v30-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Realme V30 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-ensure-privacy-from-chatgpt-complete-opt-out-tutorial/"><u>How to Ensure Privacy From ChatGPT - Complete Opt-Out Tutorial</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-streamlining-the-experience-accessing-facebooks-video-features-through-apple-tv/"><u>In 2024, Streamlining the Experience Accessing Facebook's Video Features Through Apple TV</u></a></li>
 </ul></div>
 

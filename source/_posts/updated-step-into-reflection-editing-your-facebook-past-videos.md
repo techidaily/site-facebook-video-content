@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step Into Reflection  Editing Your Facebook Past Videos\""
-date: 2024-10-11T19:00:40.776Z
-updated: 2024-10-16T20:31:23.745Z
+date: 2024-10-16T04:39:16.798Z
+updated: 2024-10-21T20:36:15.814Z
 tags:
   - ai video
   - ai facebook
@@ -56,24 +56,18 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -83,26 +77,32 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
@@ -116,14 +116,14 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -140,19 +140,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-bridging-the-gap-youtube-and-facebook-content-collaboration/"><u>[New] 2024 Approved Bridging the Gap YouTube and Facebook Content Collaboration</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-ultimate-list-top-8-fb-movies-to-download-in-23/"><u>[New] 2024 Approved Ultimate List Top 8 FB Movies to Download in '23</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-youtube-studios-secret-for-seamless-video-editing/"><u>[New] 2024 Approved YouTube Studio's Secret for Seamless Video Editing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-essential-strategies-for-iosandroid-streamers-on-facebook/"><u>[New] In 2024, Essential Strategies for iOS/Android Streamers on Facebook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-ideal-history-streams-the-10-premier-channels-for-students-study/"><u>[New] In 2024, Ideal History Streams The 10 Premier Channels for Students' Study</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-maximizing-team-output-8-excellent-facebook-planners-revealed-for-2024/"><u>[New] Maximizing Team Output 8 Excellent Facebook Planners Revealed for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-efficient-writing-techniques-for-impactful-ad-creation-for-2024/"><u>[Updated] Efficient Writing Techniques for Impactful Ad Creation for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-harmonious-hush-techniques-for-quieting-tunes/"><u>[Updated] Harmonious Hush Techniques for QUIETing Tunes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-mute-non-stop-fb-video-ad-content/"><u>[Updated] In 2024, How to Mute Non-Stop FB Video Ad Content</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-post-tomorrow-assessment-original-ideas/"><u>[Updated] In 2024, Post-Tomorrow Assessment Original Ideas</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-instagrams-reel-downloads-with-ease-and-versatility/"><u>[Updated] Navigating Instagram's Reel Downloads with Ease and Versatility</u></a></li>
-<li><a href="https://games-able.techidaily.com/are-macs-the-future-of-pc-gaming/"><u>Are Macs the Future of PC Gaming?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/enthralling-narratives-discover-the-top-8-story-centric-universities/"><u>Enthralling Narratives Discover the Top 8 Story-Centric Universities</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-constructing-imagery-wonders-with-montages/"><u>In 2024, Constructing Imagery Wonders with Montages</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-become-a-yt-hub-pro-complete-guide-revealed/"><u>[New] 2024 Approved Become a YT Hub Pro Complete Guide Revealed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-can-your-tv-play-facebook-content-like-youtube-now-in-2024/"><u>[New] Can Your TV Play Facebook Content Like YouTube Now, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unveiling-facebooks-forgotten-archive-easy-guide-for-devices/"><u>[New] In 2024, Unveiling Facebook's Forgotten Archive Easy Guide for Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-your-videos-first-moment-with-these-trendy-intros/"><u>[Updated] In 2024, Mastering Your Video's First Moment with These Trendy Intros</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-navigating-the-digital-maze-to-save-snaps-from-social-media/"><u>[Updated] In 2024, Navigating the Digital Maze to Save Snaps From Social Media</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-startup-zoom-navigating-participant-groups-for-2024/"><u>[Updated] Startup Zoom Navigating Participant Groups for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-propel-your-social-impact-with-strategic-facebook-video-ads/"><u>2024 Approved Propel Your Social Impact with Strategic Facebook Video Ads</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-tecno-pova-5-pro-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-maximizing-engagement-with-dual-screen-broadcasting-techniques-in-facebook/"><u>In 2024, Maximizing Engagement with Dual-Screen Broadcasting Techniques in Facebook</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-the-art-of-eliminating-fps-drops-and-lag-in-your-borderlands-3-adventure/"><u>Master the Art of Eliminating FPS Drops & Lag in Your Borderlands 3 Adventure</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/save-big-on-roku-streaming-players-this-prime-day/"><u>Save Big on Roku Streaming Players This Prime Day</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208011914-windows-11-touchpad-woes-heres-how-to-keep-your-cursor-visible/"><u>Windows 11 Touchpad Woes? Here's How to Keep Your Cursor Visible!</u></a></li>
 </ul></div>
 
