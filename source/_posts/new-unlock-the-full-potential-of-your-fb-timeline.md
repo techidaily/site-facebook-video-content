@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlock the Full Potential of Your FB Timeline"
-date: 2024-10-21T00:47:41.611Z
-updated: 2024-10-21T16:36:48.760Z
+date: 2024-10-25T22:44:26.100Z
+updated: 2024-10-27T19:55:35.694Z
 tags:
   - ai video
   - ai facebook
@@ -49,10 +49,16 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -64,10 +70,10 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 2. Add texts to the Look Back video
@@ -75,13 +81,6 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -97,14 +96,14 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -118,6 +117,13 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -134,20 +140,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-virtual-venue-vaults-download-edition/"><u>[New] 2024 Approved Virtual Venue Vaults - Download Edition</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-fifth-place-winners-excellent-recorder-apps/"><u>[New] In 2024, Fifth Place Winners Excellent Recorder Apps</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-recording-tech-evaluation-blueprint/"><u>[New] In 2024, Recording Tech Evaluation Blueprint</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlock-the-power-of-personal-branding-insider-secrets-for-flawless-biographies/"><u>[New] In 2024, Unlock the Power of Personal Branding Insider Secrets for Flawless Biographies</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-increase-fb-engagement-and-sales-the-15-most-effective-analyzers-for-2024/"><u>[New] Increase FB Engagement & Sales The 15 Most Effective Analyzers for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-the-integration-of-b-roll-footage/"><u>[New] Mastering the Integration of B-Roll Footage</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-fix-chromium-and-youtube-streams/"><u>[Updated] 2024 Approved Fix Chromium and YouTube Streams</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-real-time-storytelling-on-the-rise-navigating-and-thriving-in-a-social-media-world/"><u>[Updated] Real-Time Storytelling on the Rise Navigating and Thriving in a Social Media World</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-power-play-enhancing-your-pages-popularity-ranking-for-2024/"><u>[Updated] The Power Play Enhancing Your Page's Popularity Ranking for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-uploading-and-showcasing-videos-on-instagram-made-easy/"><u>[Updated] Uploading and Showcasing Videos on Instagram Made Easy</u></a></li>
-<li><a href="https://techtrends.techidaily.com/amazingly-unexplored-aspects-the-hidden-world-of-emoji-trivia/"><u>Amazingly Unexplored Aspects: The Hidden World of Emoji Trivia</u></a></li>
-<li><a href="https://driver-install.techidaily.com/guarded-logitech-cam-driver-for-windows/"><u>Guarded Logitech Cam Driver for Windows</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/hear-the-game-of-thrones-in-your-phone-top-sites-listed/"><u>Hear the Game of Thrones in Your Phone - Top Sites Listed</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-saving-smiles-techniques-for-capturing-twitters-gifs/"><u>In 2024, Saving Smiles Techniques for Capturing Twitter's GIFs</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/tapping-into-trending-topics-for-videography-ideas-via-google-for-2024/"><u>Tapping Into Trending Topics for Videography Ideas via Google for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-circumventing-video-send-blockages-in-facebook-chat-apps/"><u>[New] In 2024, Circumventing Video Send Blockages in Facebook Chat Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-smartphone-lens-creating-sweeping-panos/"><u>[New] The Smartphone Lens Creating Sweeping Panos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-easy-walkthrough-for-old-facebook-stories-on-laptops-and-phones/"><u>[Updated] 2024 Approved Easy Walkthrough for Old Facebook Stories on Laptops & Phones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-twitter-videos-a-beginners-tutorial/"><u>[Updated] 2024 Approved Mastering Twitter Videos A Beginner's Tutorial</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-livestream-success-on-television-four-pathways-for-2024/"><u>[Updated] FB Livestream Success on Television Four Pathways for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-elevate-your-reality-best-of-samsung-gear-vr-titles/"><u>[Updated] In 2024, Elevate Your Reality Best of Samsung Gear VR Titles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/account-takeover-restoring-access-in-the-new-year/"><u>Account Takeover? Restoring Access in the New Year</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-advice-repairing-and-preventing-windows-error-0x80n04cf-network-failures/"><u>Expert Advice: Repairing and Preventing Windows Error 0X80n04CF Network Failures</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-top-5-ios-tools-to-download-facebook-movies-and-clips/"><u>In 2024, Top 5 iOS Tools to Download Facebook Movies & Clips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/into-the-code-labyrinastr-facebooks-message-extraction-guide/"><u>Into the Code Labyrinastr - Facebook's Message Extraction Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/kinemasters-comprehensive-guide-to-green-screen-usage-for-2024/"><u>Kinemaster's Comprehensive Guide to Green Screen Usage for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/lullabies-on-a-screen-analysis-of-story-tapes-for-sleep-for-2024/"><u>Lullabies on a Screen Analysis of Story Tapes for Sleep for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-motorola-moto-g73-5g-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Motorola Moto G73 5G</u></a></li>
+<li><a href="https://article-helps.techidaily.com/ultimate-workshop-designers-app/"><u>Ultimate Workshop Designer's App</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-oppo-a58-4g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Oppo A58 4G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

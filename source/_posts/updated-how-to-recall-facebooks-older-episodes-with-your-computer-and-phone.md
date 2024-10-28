@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Recall Facebook's Older Episodes with Your Computer & Phone"
-date: 2024-10-11T16:01:40.646Z
-updated: 2024-10-16T18:41:19.001Z
+date: 2024-10-27T06:31:08.115Z
+updated: 2024-10-28T04:43:52.668Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,13 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -70,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -95,10 +102,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -116,13 +123,6 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -147,10 +147,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,15 +168,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-optimizing-your-social-media-wirecast-on-facebook-streaming/"><u>[New] In 2024, Optimizing Your Social Media Wirecast on Facebook Streaming</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-master-the-art-of-garnering-more-facebook-fans/"><u>[Updated] In 2024, Master the Art of Garnering More Facebook Fans</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-visual-storytelling-live-broadcasts-of-360-videos-on-facebook/"><u>[Updated] In 2024, Mastering Visual Storytelling Live Broadcasts of 360 Videos on Facebook</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-tecno-phantom-v-fold-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Tecno Phantom V Fold to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-oppo-reno-11f-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Oppo Reno 11F 5G Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-transform-tweets-converting-video-to-gifs-at-no-cost/"><u>In 2024, Transform Tweets Converting Video to GIFs at No Cost</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-solving-the-issue-of-your-pc-not-shutting-down-in-windows-10/"><u>Resolved: Solving the Issue of Your PC Not Shutting Down in Windows 10</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/seamless-transition-of-video-files-to-facebook-for-pcandroid-for-2024/"><u>Seamless Transition of Video Files to Facebook for PC/Android for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-nokia-c02-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Nokia C02 Location | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-verse-vane-eliminator-fabricate-original-track-foundations-for-2024/"><u>Updated Verse Vane Eliminator Fabricate Original Track Foundations for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-film-resource-highlights-where-to-start-your-search/"><u>[New] 2024 Approved Free Film Resource Highlights Where to Start Your Search</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unveiling-the-secrets-of-ifunny-meme-app-usage/"><u>[New] 2024 Approved Unveiling the Secrets of iFunny Meme App Usage</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pinnacle-business-cloud-haven/"><u>[Updated] Pinnacle Business Cloud Haven</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-twitch-user-introduction-measurements-format-duration-for-2024/"><u>[Updated] Twitch User Introduction Measurements, Format, Duration for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/expertly-choosing-the-leading-5-facebook-video-grabers-for-2024/"><u>Expertly Choosing the Leading 5 Facebook Video Grabers for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-htc-u23-is-unlocked-by-drfone-android/"><u>How To Check if Your HTC U23 Is Unlocked</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-from-cameras-to-obs-a-step-by-step-mac-and-pc-broadcast-setup/"><u>In 2024, From Cameras to OBS A Step-by-Step Mac & PC Broadcast Setup</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop Life360 from Tracking You On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-ultimate-checklist-for-fb-cover-video-excellence/"><u>In 2024, The Ultimate Checklist for FB Cover Video Excellence</u></a></li>
+<li><a href="https://win-bits.techidaily.com/top-rated-video-platforms-expert-picks-beyond-youtube/"><u>Top Rated Video Platforms: Expert Picks Beyond YouTube</u></a></li>
+<li><a href="https://os-tips.techidaily.com/ultimate-selection-of-apple-watch-customizable-face-designs-for-any-occasion/"><u>Ultimate Selection of Apple Watch Customizable Face Designs for Any Occasion</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/your-quick-and-easy-guide-removing-backgrounds-in-picsart/"><u>Your Quick & Easy Guide Removing Backgrounds in Picsart</u></a></li>
 </ul></div>
 

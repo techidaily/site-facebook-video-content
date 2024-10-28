@@ -1,7 +1,7 @@
 ---
 title: "Unlock Old Facebook Memories with a Click"
-date: 2024-10-09T16:04:33.866Z
-updated: 2024-10-16T19:56:11.515Z
+date: 2024-10-26T01:52:18.488Z
+updated: 2024-10-27T18:08:51.861Z
 tags:
   - ai video
   - ai facebook
@@ -53,26 +53,26 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
@@ -91,16 +91,16 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -115,10 +115,10 @@ An old highlighted story shared by your friend would appear on your friend’s p
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -186,21 +186,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-free-tools-for-marketing-mavens-the-best-fb-video-creators-reviewed/"><u>[New] 2024 Approved Free Tools for Marketing Mavens The Best FB Video Creators Reviewed</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-which-angle-works-better-for-social-sharing-vertical-or-horizontal/"><u>[New] 2024 Approved Which Angle Works Better for Social Sharing Vertical or Horizontal?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-mastering-fb-reel-creation-step-by-step-guide/"><u>[New] In 2024, Mastering FB Reel Creation Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlocking-the-archive-of-yesteryear-how-to-view-facebook-past-content/"><u>[New] In 2024, Unlocking the Archive of Yesteryear How To View Facebook Past Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aximize-engagement-and-impact-premier-tracking-applications-for-content-creators/"><u>[New] Maximize Engagement and Impact Premier Tracking Applications for Content Creators</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-premium-visual-enhancer-cutting-edge-conversion/"><u>[New] Premium Visual Enhancer Cutting-Edge Conversion</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-ranking-the-best-ios-devices-tools-to-download-fb-movies-and-tunes/"><u>[Updated] Ranking the Best iOS Devices' Tools to Download FB Movies & Tunes</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-craft-crisp-composites-online-with-top-frameer-tools/"><u>2024 Approved Craft Crisp Composites Online with Top Frameer Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-pro-bokeh-tips-for-captivating-instagram-snaps/"><u>2024 Approved Pro Bokeh Tips for Captivating Instagram Snaps</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/hassle-free-installation-amd-ryzen-5-2600-driver-downloads-at-lightning-speed/"><u>Hassle-Free Installation: AMD Ryzen 5 2600 Driver Downloads at Lightning Speed</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-oppo-find-x6-pro-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Oppo Find X6 Pro for Streaming | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/master-the-art-of-resetting-your-iphone-techniques-for-immediate-power-off-and-initiating-recovery-settings/"><u>Master the Art of Resetting Your iPhone: Techniques for Immediate Power-Off and Initiating Recovery Settings</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-transform-your-videos-with-a-robust-64-bit-editor-for-windows/"><u>New In 2024, Transform Your Videos with a Robust 64-Bit Editor for Windows</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/quick-guide-how-to-revamp-facebook-profile-imagery-for-2024/"><u>Quick Guide How to Revamp Facebook Profile Imagery for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-create-stunning-invites-best-video-apps-for-ios-and-android/"><u>Updated 2024 Approved Create Stunning Invites Best Video Apps for iOS & Android</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/videosnap-messenger-edition/"><u>VideoSnap – Messenger Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-rethink-your-classic-movies-best-swaps-7/"><u>[New] 2024 Approved Rethink Your Classic Movies - Best Swaps #7</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-a-comprehensive-guide-to-producing-engaging-subtitles-and-captions-for-fb/"><u>[New] A Comprehensive Guide to Producing Engaging Subtitles and Captions for FB</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-apple-podcasts-get-your-audio-fix-instantly/"><u>[New] Apple Podcasts Get Your Audio Fix Instantly</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-crafting-facebook-videos-a-step-by-step-guide-for-2024/"><u>[New] Crafting Facebook Videos A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-immersion-and-interaction-the-high-definition-shift-of-hp-envy-27/"><u>[New] Immersion and Interaction The High-Definition Shift of HP Envy 27</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-facebook-update-essential-strategies-for-social-media-savvy/"><u>[New] In 2024, Facebook Update Essential Strategies for Social Media Savvy</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unveiling-the-best-fb-movie-grabs-8-edition/"><u>[New] In 2024, Unveiling the Best FB Movie Grabs #8 Edition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-twitter-video-series-breakdown-area-format-duration/"><u>[New] Twitter Video Series Breakdown Area, Format, Duration</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-websites-for-downloading-copyright-free-gaming-music/"><u>[New] Websites for Downloading Copyright -Free Gaming Music</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-leading-the-virtual-conversation-with-social-media/"><u>[Updated] 2024 Approved Leading the Virtual Conversation with Social Media</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-newest-camstudio-capture-and-review-2023-update/"><u>[Updated] 2024 Approved Newest CamStudio Capture & Review 2023 Update</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-get-people-to-subscribe-by-asking-the-right-way/"><u>[Updated] How to Get People to Subscribe by Asking the Right Way</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-virtual-gathering-film-cutter-for-2024/"><u>[Updated] Virtual Gathering Film Cutter for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-what-if-my-videos-removed-immediately-due-to-copyright-in-2024/"><u>[Updated] What If My Videos Removed Immediately Due to Copyright, In 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-effortless-complimentary-mac-recorder/"><u>2024 Approved Effortless, Complimentary Mac Recorder</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebook-story-viewer-view-facebook-stories-anonymously-for-2024/"><u>Facebook Story Viewer View Facebook Stories Anonymously for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-get-final-cut-pro-with-cheapest-price-check-education-bundle/"><u>New 2024 Approved Get Final Cut Pro With Cheapest Price, Check Education Bundle</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-10-webcams-elevating-audio-quality-in-podcasts/"><u>Top 10 Webcams Elevating Audio Quality in Podcasts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-5-advantages-why-choose-a-samsung-galaxy-tablet-over-the-apple-ipad/"><u>Top 5 Advantages: Why Choose a Samsung Galaxy Tablet Over the Apple iPad?</u></a></li>
 </ul></div>
 
