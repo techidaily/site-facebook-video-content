@@ -1,7 +1,7 @@
 ---
 title: "\"Revisiting Yesteryear's Social Stories on FB  Device Guide\""
-date: 2024-10-22T22:56:12.098Z
-updated: 2024-10-28T01:26:32.098Z
+date: 2024-10-28T20:40:28.997Z
+updated: 2024-11-02T17:38:35.860Z
 tags:
   - ai video
   - ai facebook
@@ -55,13 +55,6 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -77,10 +70,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,10 +95,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -125,10 +118,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -153,6 +146,13 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -168,18 +168,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-2023s-leading-vr-game-development-tools-for-2024/"><u>[Updated] 2023'S Leading VR Game Development Tools for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-ideal-app-for-aspiring-filmmakers-a-reel-crafting-list/"><u>[Updated] 2024 Approved Ideal App for Aspiring Filmmakers A Reel-Crafting List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigating-through-time-with-historical-fb-features-device-guide/"><u>[Updated] In 2024, Navigating Through Time with Historical FB Features Device Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-step-by-step-integrating-songs-in-microsofts-presentation-maker-for-2024/"><u>[Updated] Step-by-Step Integrating Songs in Microsoft's Presentation Maker for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-cutting-edge-ipad-voice-recording-tools-3p/"><u>2024 Approved Cutting-Edge iPad Voice Recording Tools 3P</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-creative-expression-master-device-based-filters-and-effects/"><u>2024 Approved Unlock Creative Expression Master Device-Based Filters and Effects</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-youtubes-best-practices-for-maximum-impact-thumbnails/"><u>2024 Approved YouTube's Best Practices for Maximum Impact Thumbnails</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convert-3gp-files-to-mp4-for-free-using-moveavis-web-service/"><u>Convert 3GP Files to MP4 for Free Using MOVEAVI's Web Service</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-cutting-down-curated-content-how-to-delete-fb-story-pc-and-phone/"><u>In 2024, Cutting Down Curated Content How to Delete FB Story (PC & Phone)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-jump-into-the-moment-with-these-8-trendy-videos-on-fb/"><u>In 2024, Jump Into the Moment with These 8 Trendy Videos on FB</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/movavi-aim4vmp4/"><u>Movavi AIフリーウェブサイトのマルチメディアM4VからMP4への変換ガイド</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unleash-your-potential-on-facebook-keyword-strategies-reviewed/"><u>Unleash Your Potential on Facebook Keyword Strategies Reviewed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-advanced-conversion-mp4-to-facebook-2023/"><u>[New] Advanced Conversion MP4 to FaceBook 2023</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-crafting-content-that-captivates-a-guide-to-facebook-reels-for-2024/"><u>[New] Crafting Content that Captivates A Guide to Facebook Reels for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-chromebook-screen-capture-4-easy-techniques/"><u>[New] In 2024, Chromebook Screen Capture 4 Easy Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-distinctive-fb-video-aspects/"><u>[Updated] Distinctive FB Video Aspects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-one-minute-color-magic-for-2024/"><u>[Updated] One Minute Color Magic for 2024</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/1728473721515-mpeg/"><u>「どうやって紛失したMPEGファイルを効果的に再生する？」</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/135-deal-on-the-premium-asus-prime-x670-p-wifi-am5-mobo-dont-miss-out/"><u>$135 Deal on the Premium Asus Prime X670-P WiFi AM5 Mobo - Don't Miss Out</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/common-fixes-for-when-red-dead-redemption-2-wont-launch-comprehensive-solutions/"><u>Common Fixes for When Red Dead Redemption 2 Won't Launch: Comprehensive Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Infinix Smart 7 HD? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-introducing-top-tier-facebook-update-insights/"><u>In 2024, Introducing Top-Tier Facebook Update Insights</u></a></li>
+<li><a href="https://extra-information.techidaily.com/step-by-step-selection-of-tiktok-screenshots/"><u>Step-by-Step Selection of TikTok Screenshots</u></a></li>
 </ul></div>
 

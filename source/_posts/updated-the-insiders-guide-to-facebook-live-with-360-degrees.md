@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Insider's Guide to Facebook Live with 360 Degrees"
-date: 2024-10-21T03:28:05.091Z
-updated: 2024-10-28T07:55:25.783Z
+date: 2024-11-01T21:52:14.643Z
+updated: 2024-11-03T03:07:34.262Z
 tags:
   - ai video
   - ai facebook
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specification for Live 360
 
  Those who are searching for the tech specs related to live 360 degree feature must go through these points:
@@ -44,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 * Supported video frame rate is 30fps only.
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Go Live 360?
 
  You can use these two tricks to go live 360:
@@ -51,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 1\. In case if you are going to use a camera having Facebook live integration feature then you can find all the guidelines on website of camera vender. Here we are going to consider Insta360 for exploring important details.
 
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Go Live 360 with Instagram 360?
 
@@ -84,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
  Step 10: Delete your video from timeline whenever you want.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to go Live 360 from Facebook Website Flow?
@@ -107,28 +114,15 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
  Step 7: Go live 360 on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How does Live 360 looks like?
 
  Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips for Live 360
 
@@ -156,22 +150,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximizing-tv-viewing-watching-fb-videos-directly/"><u>[New] 2024 Approved Maximizing TV Viewing Watching FB Videos Directly</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-visual-storytelling-on-facebook-crafting-compelling-slideshows/"><u>[New] 2024 Approved Visual Storytelling on Facebook Crafting Compelling Slideshows</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-harmony-in-minutes-no-credit-due-for-2024/"><u>[New] Harmony in Minutes, No Credit Due for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-seamless-searches-the-updated-guide-for-finding-youtube-on-fb/"><u>[Updated] 2024 Approved Seamless Searches The Updated Guide for Finding YouTube on FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-from-confinement-to-comedy-selecting-lighthearted-fb-incarceration-moments/"><u>2024 Approved From Confinement to Comedy Selecting Lighthearted FB Incarceration Moments</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-apple-iphone-7-plus-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>4 Methods to Turn off Life 360 On Apple iPhone 7 Plus without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/boosting-fluidity-in-age-of-empires-iv-solutions-for-framerate-problems/"><u>Boosting Fluidity in Age of Empires IV: Solutions for Framerate Problems</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/essential-steps-to-overcome-fb-video-transmission-failure-iosandroid-for-2024/"><u>Essential Steps to Overcome FB Video Transmission Failure (iOS/Android) for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-6-proven-strategies-to-add-facebook-live-features/"><u>In 2024, 6 Proven Strategies to Add Facebook Live Features</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/is-watching-facebook-on-the-television-set-a-future-possibility-in-2024/"><u>Is Watching Facebook on the Television Set a Future Possibility, In 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/rapid-setup-for-stellar-users/"><u>Rapid Setup for Stellar Users</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-escape-from-tarkovs-anticheat-disconnect-error/"><u>Resolving Escape From Tarkov's 'Anticheat Disconnect Error'</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/m-reversal-top-10-audio-distortors-for-devices-for-2024/"><u>Rhythm Reversal Top 10 Audio Distortors for Devices for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/shielding-against-unauthorized-ai-interaction-leaks/"><u>Shielding Against Unauthorized AI Interaction Leaks</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/solve-windows-11-performance-issues-top-8-simple-solutions/"><u>Solve Windows 11 Performance Issues: Top 8 Simple Solutions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unlocking-facebooks-potential-with-top-video-strategies/"><u>Unlocking Facebook's Potential with Top Video Strategies</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-unveiling-the-secrets-of-apple-music-in-videos/"><u>[New] 2024 Approved Unveiling the Secrets of Apple Music in Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-facebooks-copyright-enforcement-on-live-feeds-for-2024/"><u>[New] Navigating Facebook's Copyright Enforcement on Live Feeds for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-art-and-science-of-fb-video-ads-unveiling-20-crucial-steps/"><u>[New] The Art and Science of FB Video Ads Unveiling 20 Crucial Steps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-top-6-simple-minecraft-house-ideas/"><u>[Updated] In 2024, Top 6 Simple Minecraft House Ideas</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlock-free-music-anytime-facebook-app/"><u>[Updated] In 2024, Unlock Free Music, Anytime - Facebook App</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-preventing-social-media-platforms-intrusive-ads-for-2024/"><u>[Updated] Preventing Social Media Platform's Intrusive Ads for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-drone-buying-roadmap-pre-purchase-essentials-for-2024/"><u>[Updated] The Ultimate Drone Buying Roadmap Pre-Purchase Essentials for 2024</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/festplatten-unformatieren-in-windows-11-kostenfrei-tipps-und-tricks-zum-umgestalten-des-datentragers/"><u>Festplatten Unformatieren in Windows 11 Kostenfrei - Tipps Und Tricks Zum Umgestalten Des Datenträgers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fixing-missing-or-not-found-an-in-depth-look-at-btballoondll-issues/"><u>Fixing 'Missing' Or 'Not Found': An In-Depth Look at BTBalloon.DLL Issues</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-samsung-galaxy-f34-5g-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Samsung Galaxy F34 5G</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-boost-your-visibility-fast-instagram-likes-and-vids/"><u>In 2024, Boost Your Visibility Fast Instagram Likes & Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-critical-analysis-facebooks-top-10-video-plays/"><u>In 2024, Critical Analysis Facebook's Top 10 Video Plays</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/invest-in-success-unveiling-the-highest-earning-posts/"><u>Invest in Success Unveiling the Highest Earning Posts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/pick-your-favorites-top-6-fb-lite-videos-downloaders/"><u>Pick Your Favorites Top 6 FB Lite Videos Downloaders</u></a></li>
 </ul></div>
 

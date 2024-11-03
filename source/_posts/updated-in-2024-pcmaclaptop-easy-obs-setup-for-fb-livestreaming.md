@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, PC/Mac/Laptop  Easy OBS Setup for FB Livestreaming\""
-date: 2024-10-21T22:12:16.671Z
-updated: 2024-10-28T07:14:08.237Z
+date: 2024-10-31T00:24:17.515Z
+updated: 2024-11-02T16:57:13.055Z
 tags:
   - ai video
   - ai facebook
@@ -69,10 +69,10 @@ Step 1: First of all you need to go to the settings.
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
@@ -88,10 +88,10 @@ Step 4: Now you need to visit the facebook page and then click on the video, go 
 ![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
@@ -103,10 +103,10 @@ Step 6: Now come back to your OBS settings page and choose stream option. From l
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## C. Preview and Test your before go live
@@ -115,22 +115,15 @@ Step 1: It is time to hit the button “Start Streaming”.
 
 ![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Now move back to your facebook page and then choose to preview.
 
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
@@ -138,6 +131,13 @@ Step 3: It is time to add your title as per preferences, make selection for your
 ![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
@@ -148,10 +148,10 @@ Step 5: This is all about how to live stream your videos over facebook directly 
 ## Video tutorial
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook stream parameter requirements
@@ -181,18 +181,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-infinite-storage-pathways-select-services-showcase/"><u>[New] In 2024, Infinite Storage Pathways Select Services Showcase</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-youtubes-puzzling-buffering-patterns/"><u>[New] In 2024, Navigating YouTube's Puzzling Buffering Patterns</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-art-of-echo-chambers-hits-that-amplify-on-fb/"><u>[New] In 2024, The Art of Echo Chambers Hits that Amplify on FB</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-incredible-mobile-photography-and-videography-apps-for-iosandroid/"><u>[Updated] 2024 Approved Incredible Mobile Photography & Videography Apps for iOS/Android</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-superior-workplace-data-cloud-hubs/"><u>[Updated] 2024 Approved Superior Workplace Data Cloud Hubs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-guide-to-overcoming-mobile-video-sending-problems-in-fb-chat/"><u>2024 Approved Guide to Overcoming Mobile Video Sending Problems in FB Chat</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/dissecting-the-functionality-of-runtime-brokers-on-your-pc/"><u>Dissecting the Functionality of Runtime Brokers on Your PC</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-samsung-galaxy-a15-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Samsung Galaxy A15 5G Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-maximum-capacity-choices-ultimate-cloud-service-list/"><u>In 2024, Maximum Capacity Choices Ultimate Cloud Service List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-transforming-social-media-nostalgia-how-to-edit-lookback/"><u>In 2024, Transforming Social Media Nostalgia How to Edit Lookback</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/le-top-6-applicazioni-di-intelligenza-artificiale-per-lupscaling-dei-video-piu-efficienti/"><u>Le Top 6 Applicazioni Di Intelligenza Artificiale per L'Upscaling Dei Video Più Efficienti</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/navigate-to-facebooks-recently-viewed-videos-for-2024/"><u>Navigate to Facebook's Recently Viewed Videos for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/new-partnership-unveils-chatgpt-on-apple-devices-explore-the-future-of-ai-with-openai/"><u>New Partnership Unveils ChatGPT on Apple Devices: Explore the Future of AI with OpenAI</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-the-art-of-aspect-ratios-on-youtube-videosshortsads/"><u>[New] 2024 Approved Mastering the Art of Aspect Ratios on YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-best-of-the-best-top-facebook-memes-to-find/"><u>[New] 2024 Approved The Best of the Best – Top Facebook Memes to Find</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-favorite-frames-socials-1-8-vids-for-2024/"><u>[New] Favorite Frames Social's #1-#8 Vids for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unleashing-instagrams-filter-power-free-searches-revealed/"><u>[New] In 2024, Unleashing Instagram's Filter Power – Free Searches Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-delving-into-mr-beasts-economic-dominance-for-2024/"><u>[Updated] Delving Into Mr. Beast's Economic Dominance for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-evaluating-and-improving-your-facebook-in-stream-ad-campaigns/"><u>[Updated] In 2024, Evaluating & Improving Your Facebook In-Stream Ad Campaigns</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-videos-made-simple-unified-techniques-for-desktop-and-mobile/"><u>2024 Approved Facebook Videos Made Simple Unified Techniques for Desktop & Mobile</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/automatisierter-ordner-spiegelung-auf-dem-netzlaufwerk-eine-sichere-losung/"><u>Automatisierter Ordner-Spiegelung Auf Dem Netzlaufwerk: Eine Sichere Lösung</u></a></li>
+<li><a href="https://fox-access.techidaily.com/classic-cinema-in-paperback-examining-the-goofy-story/"><u>Classic Cinema in Paperback Examining 'The Goofy Story'</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-lags-and-crashes-a-players-manual-for-optimizing-pubg-performance/"><u>Fixing Lags & Crashes: A Player's Manual for Optimizing PUBG Performance</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-advanced-mp4-encoder-for-social-sharing/"><u>In 2024, Advanced MP4 Encoder for Social Sharing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unveiling-the-art-of-social-media-video-magic-on-fb/"><u>In 2024, Unveiling the Art of Social Media Video Magic on FB</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/steelseries-arctis-e-headset-mic-issues-heres-how-to-get-it-working-again/"><u>SteelSeries Arctis E Headset Mic Issues? Here's How to Get It Working Again</u></a></li>
 </ul></div>
 

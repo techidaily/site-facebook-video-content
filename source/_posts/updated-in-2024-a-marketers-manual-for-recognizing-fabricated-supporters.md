@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Marketer’s Manual for Recognizing Fabricated Supporters"
-date: 2024-10-22T16:02:41.251Z
-updated: 2024-10-28T00:51:00.880Z
+date: 2024-10-27T23:00:39.359Z
+updated: 2024-11-02T17:03:05.757Z
 tags:
   - ai video
   - ai facebook
@@ -44,6 +44,13 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Inspect comment
 
 You can gauge the quality of engagement from the comments on influencers’ content. The manual process shows fake engagement and bots influenced comments as genuine statements. The fake statement and emojis like ‘love it’, ‘beautiful’, and ‘cool pic’ are part of this. The fake followers on Facebook, indulge in these stuff, whereas loyal followers invest time in long genuine comments. The way people fake influence these days, but also detects it due to technology.
@@ -51,10 +58,10 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
@@ -62,13 +69,6 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
 
@@ -79,16 +79,10 @@ Fake followers on Facebook can be detected if all of a sudden follower count inc
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -98,10 +92,10 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -129,17 +123,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-from-concept-to-platform-crafting-engaging-fb-content/"><u>[New] From Concept to Platform Crafting Engaging FB Content</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-tips-for-unlocking-youtube-video-comments/"><u>[New] Tips for Unlocking YouTube Video Comments</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-step-by-step-guide-to-reverse-image-searching-on-instagram-for-2024/"><u>[Updated] Step-by-Step Guide to Reverse Image Searching on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unveiling-the-hidden-fixes-for-fb-video-upload-woes/"><u>2024 Approved Unveiling the Hidden Fixes for Fb Video Upload Woes</u></a></li>
-<li><a href="https://facebook.techidaily.com/becoming-a-brand-ambassador-online/"><u>Becoming a Brand Ambassador Online</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/captivate-and-convert-creating-high-roi-animated-ads-on-facebook-for-2024/"><u>Captivate and Convert Creating High-ROI Animated Ads on Facebook for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/epson-wf-7710-printer-drivers-download-compatible-with-win-10-81-and-earlier-versions/"><u>EPSON WF-7710 Printer Drivers Download: Compatible with Win 10, 8.1 and Earlier Versions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/financial-free-editing-the-ultimate-guide-to-fcp/"><u>Financial-Free Editing The Ultimate Guide to FCP</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-boost-engagement-syncing-youtube-and-facebook/"><u>In 2024, Boost Engagement Syncing YouTube and Facebook</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-oneplus-8t-impressive-speed-tainted-by-inconsistent-camera-performance/"><u>In-Depth Analysis of the OnePlus 8T - Impressive Speed Tainted by Inconsistent Camera Performance</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/mastering-the-art-of-locating-fb-lately-seen-videos-for-2024/"><u>Mastering the Art of Locating Fb Lately Seen Videos for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/microsoft-lifecam-driver-download-the-easy-way/"><u>Microsoft Lifecam Driver Download — The Easy Way</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-customizing-video-space-on-facebook-platforms/"><u>[New] In 2024, Customizing Video Space on Facebook Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-take-your-fb-videos-from-small-to-grand-in-a-click/"><u>[New] In 2024, Take Your FB Videos From Small to Grand in a Click</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-ultimate-guide-to-youtube-autoplay-on-facebook/"><u>[Updated] 2024 Approved The Ultimate Guide to YouTube Autoplay on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-pairing-facebook-playback-with-home-theaters/"><u>[Updated] Pairing Facebook Playback With Home Theaters</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-essentials-of-making-professional-level-facebook-reels-for-2024/"><u>[Updated] The Essentials of Making Professional-Level Facebook Reels for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-prime-phone-pals-selecting-speech-to-text-apps-for-offline-use/"><u>2024 Approved Prime Phone Pals Selecting Speech-to-Text Apps for Offline Use</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-top-8-best-kept-video-download-secrets/"><u>2024 Approved Top 8 Best-Kept Video Download Secrets</u></a></li>
+<li><a href="https://common-error.techidaily.com/eliminate-your-worries-6-powerful-remedies-for-werfaultexe-issues-on-windows/"><u>Eliminate Your Worries: 6 Powerful Remedies for werFault.exe Issues on Windows</u></a></li>
+<li><a href="https://games-able.techidaily.com/essential-ps5-gear-for-maximum-performance/"><u>Essential PS5 Gear for Maximum Performance</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-a-non-functional-laptop-trackpad-on-windows-11-8-and-7-solutions-proven-effective/"><u>Fixing a Non-Functional Laptop Trackpad on Windows 11, 8 & 7: Solutions Proven Effective</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-infinix-note-30-pro-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Infinix Note 30 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1721773968707-no-more-delays-on-your-ai-journey-an-alternative-to-chatgpts-desktop-app-that-you-can-start-using-today/"><u>No More Delays on Your AI Journey - An Alternative to ChatGPT's Desktop App that You Can Start Using Today</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-risks-of-using-chatgpt-from-the-mac-app-store-what-every-user-needs-to-know/"><u>The Risks of Using ChatGPT From the Mac App Store: What Every User Needs to Know</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-samsung-galaxy-a05s-by-fonelab-android-recover-data/"><u>The way to get back lost data from Samsung Galaxy A05s</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Facebook's Secrets  An Introductory Guide\""
-date: 2024-10-23T08:30:07.893Z
-updated: 2024-10-28T03:57:50.196Z
+date: 2024-10-27T17:42:28.542Z
+updated: 2024-11-03T00:51:38.043Z
 tags:
   - ai video
   - ai facebook
@@ -41,33 +41,39 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Use Facebook Insights for Beginners
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -78,6 +84,13 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -92,16 +105,10 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -119,13 +126,6 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -146,10 +146,10 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -169,18 +169,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-efficiently-stream-your-facebook-feed-on-pcmaclaptop/"><u>[New] 2024 Approved Efficiently Stream Your Facebook Feed on PC/Mac/Laptop</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-who-leads-in-video-content-delivery-twitch-vs-youtube/"><u>[New] In 2024, Who Leads in Video Content Delivery? Twitch vs YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-captivating-clicks-the-top-8-yt-thumbnails-to-use/"><u>[Updated] Captivating Clicks The Top 8 YT Thumbnails to Use</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-elite-no-price-fb-photovideo-magic-maker/"><u>[Updated] In 2024, Elite No-Price FB Photo/Video Magic Maker</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-how-to-zoom-in-online/"><u>[Updated] In 2024, How to Zoom in Online</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-making-mp3-from-instagram-visual-content/"><u>2024 Approved Making MP3 From Instagram Visual Content</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-your-guide-to-8-best-fb-movies-downloader-selection/"><u>2024 Approved Your Guide to #8 Best FB Movies Downloader Selection</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-phone-display-issues-top-7-solutions-to-stop-screen-flickering-now/"><u>Fixing Phone Display Issues: Top 7 Solutions to Stop Screen Flickering Now</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-sustaining-an-engaged-online-community-the-facebook-way/"><u>In 2024, Sustaining an Engaged Online Community The Facebook Way</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-motorola-moto-g34-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Motorola Moto G34 5G</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/showcasing-design-brilliance-best-10-text-setups-in-ae-for-2024/"><u>Showcasing Design Brilliance Best 10 Text Setups in AE for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-art-of-aerial-cinematography-drone-editing-insights/"><u>The Art of Aerial Cinematography Drone Editing Insights</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/0-historical-youtube-hubs-essential-viewing-for-students-and-enthusiasts-for-2024/"><u>Top 10 Historical YouTube Hubs Essential Viewing For Students & Enthusiasts for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-deep-dive-into-videomovavi-11s-features-and-performance/"><u>[New] Deep Dive Into VideoMovavi 11'S Features & Performance</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-amplify-your-iphones-secrets-to-great-silhouettes/"><u>[New] In 2024, Amplify Your iPhones Secrets to Great Silhouettes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-live-video-recovery-on-facebook-2023-edition/"><u>[New] Mastering Live Video Recovery on Facebook, 2023 Edition</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-skype-audio-capture-expert-picks-and-reviews/"><u>[New] Skype Audio Capture Expert Picks and Reviews</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-dazzle-and-stand-out-50-free-youtube-branding-pieces-for-2024/"><u>[Updated] Dazzle and Stand Out 50 FREE YouTube Branding Pieces for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-the-purpose-behind-facebooks-blue-emoji/"><u>[Updated] Unveiling the Purpose Behind Facebook's Blue Emoji</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigate-through-group-sharing-options-on-messenger/"><u>2024 Approved Navigate Through Group Sharing Options on Messenger</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-device-manager-to-update-your-drivers-on-windows-7-by-drivereasy-guide/"><u>How to use Device Manager to update your drivers on Windows 7</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-windows-11-troubleshooting-for-opened-manage-interface/"><u>Navigating Windows 11 Troubleshooting for Opened Manage Interface</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/online-facebook-downloader-mp3-save-fb-videos-as-mp3/"><u>Online Facebook Downloader MP3 | Save FB Videos As MP3</u></a></li>
+<li><a href="https://blog-min.techidaily.com/simplify-your-editing-workflow-the-best-tools-for-mastering-m4v-video-formats/"><u>Simplify Your Editing Workflow: The Best Tools for Mastering M4V Video Formats</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-mobile-media-mastery-best-mp4-to-mp3-converter-apps/"><u>Updated Mobile Media Mastery Best MP4 to MP3 Converter Apps</u></a></li>
 </ul></div>
 

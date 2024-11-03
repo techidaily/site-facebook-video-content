@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Start with Simple  Understanding Facebook Metrics for Newbies for 2024\""
-date: 2024-10-23T03:19:32.845Z
-updated: 2024-10-27T19:40:12.391Z
+date: 2024-10-29T02:11:24.400Z
+updated: 2024-11-02T19:33:58.940Z
 tags:
   - ai video
   - ai facebook
@@ -41,6 +41,13 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -49,13 +56,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
@@ -63,10 +63,17 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -91,16 +98,16 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -114,13 +121,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -133,13 +133,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
@@ -147,6 +140,13 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -163,16 +163,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-copyright-free-meditation-music-download/"><u>[New] In 2024, Copyright-Free Meditation Music Download</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-cutting-edge-techniques-for-stellar-fb-hd-video/"><u>[New] In 2024, Cutting-Edge Techniques for Stellar FB HD Video</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-behance-portfolio-image-constraints/"><u>[Updated] Behance Portfolio Image Constraints</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-in-seconds-life-on-fb/"><u>[Updated] In 2024, In Seconds, Life On FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-maximizing-impact-the-20-key-principles-of-fb-video-marketing/"><u>[Updated] In 2024, Maximizing Impact The 20 Key Principles of FB Video Marketing</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-mac-audio-lab-a-comprehensive-guide/"><u>[Updated] Mac Audio Lab A Comprehensive Guide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/80-million-vanished-into-thin-air-as-another-digital-wallet-faces-unprecedented-security-breach/"><u>$80 Million Vanished Into Thin Air as Another Digital Wallet Faces Unprecedented Security Breach</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/zing-channels-monetization-status-at-a-glance/"><u>Analyzing Channels Monetization Status at a Glance</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-6-plus-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 6 Plus</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 To Other iPhone 13 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-visual-strategy-for-podcast-branding/"><u>In 2024, The Ultimate Visual Strategy for Podcast Branding</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-chronicles-collector-kit-for-2024/"><u>[New] Chronicles Collector Kit for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-essential-steps-for-fb-file-transfers-on-linux-mac/"><u>[New] In 2024, Essential Steps for FB File Transfers on Linux, Mac</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-spin-and-share-easy-iphone-filmmaking-techniques/"><u>[New] In 2024, Spin and Share Easy iPhone Filmmaking Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-elite-selection-of-fbs-best-viewing-apps/"><u>[Updated] 2024 Approved Elite Selection of FB's Best Viewing Apps</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-instagram-tutorial-upload-and-share-video/"><u>[Updated] 2024 Approved Instagram Tutorial Upload and Share Video</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-dull-to-dynamic-top-11-techniques-for-enhanced-hues/"><u>[Updated] From Dull to Dynamic Top 11 Techniques for Enhanced Hues</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-rank-the-best-tools-top-8-apps-to-increase-likes-on-fb/"><u>[Updated] Rank the Best Tools Top 8 Apps to Increase Likes on FB</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-from-setup-to-streaming-the-definitive-guide-for-live-tv-screen-sharing-on-windows/"><u>2024 Approved From Setup to Streaming The Definitive Guide for Live TV Screen-Sharing on Windows</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enlarge-facebook-videos-to-full-screen-for-impact/"><u>Enlarge Facebook Videos to Full Screen for Impact</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-solve-the-leaf-error-in-apex-legends-fix-guide-2022/"><u>How to Solve the 'Leaf' Error in Apex Legends (Fix Guide - 2022)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/ideal-steadicams-to-amplify-your-dslr-cinematic-impact-for-2024/"><u>Ideal Steadicams to Amplify Your DSLR Cinematic Impact for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mastering-instagram-video-load-times-desktop-advice/"><u>In 2024, Mastering Instagram Video Load Times Desktop Advice</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unveiling-the-concealed-cause-for-non-video-alerts-on-fb/"><u>In 2024, Unveiling the Concealed Cause for Non-Video Alerts on FB</u></a></li>
+<li><a href="https://win-premium.techidaily.com/step-by-step-tutorial-on-moving-data-from-windows-computer-to-samsung-s10-smartphone/"><u>Step-by-Step Tutorial on Moving Data From Windows Computer to Samsung S10 Smartphone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-fixes-for-cod-vanguard-error-message-0x00001338-on-your-gaming-pc-solution-included/"><u>Ultimate Fixes for CoD: Vanguard Error Message '0X00001338' On Your Gaming PC - SOLUTION INCLUDED</u></a></li>
+<li><a href="https://win-trending.techidaily.com/windows-7-bootable-usb-rufus/"><u>Windows 7 Bootable USB 作成手順: Rufusを使用した効果的なガイド</u></a></li>
 </ul></div>
 
