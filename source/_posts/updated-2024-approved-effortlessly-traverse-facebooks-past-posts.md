@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Effortlessly Traverse Facebook’s Past Posts\""
-date: 2024-10-22T18:32:02.926Z
-updated: 2024-10-28T03:06:28.120Z
+date: 2024-11-06T10:41:51.600Z
+updated: 2024-11-11T10:46:50.838Z
 tags:
   - ai video
   - ai facebook
@@ -43,13 +43,6 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -61,10 +54,10 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3:** Now just tap on the “Story Archive” option from the list.
@@ -87,16 +80,16 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
@@ -114,6 +107,13 @@ An old highlighted story shared by your friend would appear on your friend’s p
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -123,10 +123,10 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Features:**
@@ -186,17 +186,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-eye-candy-index-the-top-8-videos/"><u>[New] In 2024, Eye Candy Index The Top 8 Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-the-social-media-sensations-most-liked-and-watched-amazon-originals/"><u>[New] The Social Media Sensations Most Liked & Watched Amazon Originals</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-start-crafting-movies-xp-edition-install-guide/"><u>[Updated] 2024 Approved Start Crafting Movies Xp Edition Install Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-explore-unexpectedly-great-meme-pages-on-facebook/"><u>[Updated] Explore Unexpectedly Great Meme Pages on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-dodge-facebook-video-sponsored-content/"><u>[Updated] In 2024, How to Dodge Facebook Video Sponsored Content</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Vivo Y77t? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-ai-powered-frame-refactoring-suite/"><u>In 2024, AI-Powered Frame Refactoring Suite</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-instantaneous-identification-in-the-social-media-jungle/"><u>In 2024, Instantaneous Identification in the Social Media Jungle</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/nvidia-and-intel-integration-workaround-on-win10-successfully-addressed/"><u>NVIDIA & Intel Integration Workaround on Win10 Successfully Addressed</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/social-laughter-downloaded-iphoneandroid-tutorial-for-gifs-for-2024/"><u>Social Laughter Downloaded IPhone/Android Tutorial for GIFS for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-rated-portable-gaming-computers-a-comprehensive-guide/"><u>Top-Rated Portable Gaming Computers : A Comprehensive Guide</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/uniper-se/"><u>Uniper SE</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-capturing-clarity-a-guide-to-high-res-videos-on-the-web/"><u>[New] Capturing Clarity A Guide to High-Res Videos on the Web</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/raft-cinematic-magic-learn-green-screen-wonders-with-youtube/"><u>[New] Craft Cinematic Magic Learn Green Screen Wonders with YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-digital-time-machine-tracking-back-through-facebooks-history-device-based/"><u>[New] Digital Time Machine Tracking Back Through Facebook's History (Device-Based)</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-driving-traffic-tactics-for-top-ranked-fb-pages/"><u>[New] In 2024, Driving Traffic Tactics for Top-Ranked FB Pages</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-sim-savvy-savant-techniques-a-complete-guide-to-capturing-the-essence-of-sims-gameplay/"><u>[New] In 2024, Sim-Savvy Savant Techniques A Complete Guide to Capturing the Essence of Sims Gameplay</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-soundscapes-for-social-scenarios-on-facebook-for-2024/"><u>[New] Soundscapes for Social Scenarios on Facebook for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-superior-commercial-cloud-vaulting/"><u>[New] Superior Commercial Cloud Vaulting</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-team-harmony-and-efficiency-8-recommended-facebook-timers/"><u>[Updated] Team Harmony and Efficiency 8 Recommended Facebook Timers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fusing-data-and-design-for-dynamic-fb-video-campaigns/"><u>2024 Approved Fusing Data & Design for Dynamic FB Video Campaigns</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-windows-11-device-connectivity-problems-for-effective-casting/"><u>How to Resolve Windows 11 Device Connectivity Problems for Effective Casting</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-capture-clean-uninterrupted-media-snapshots/"><u>In 2024, Capture Clean, Uninterrupted Media Snapshots</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/stories-decoded-whats-inside-for-2024/"><u>Mini Stories Decoded What's Inside for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pioneering-top-vr-movies-for-enjoyment-for-2024/"><u>Pioneering Top VR Movies for Enjoyment for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/why-the-hp-spectre-x3e-is-dominating-my-list-of-must-have-laptops-review/"><u>Why the HP Spectre X3e Is Dominating My List of Must-Have Laptops Review</u></a></li>
 </ul></div>
 

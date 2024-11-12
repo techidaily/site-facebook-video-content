@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Go From Gaming to Socializing  Streaming Xbox to FB Live\""
-date: 2024-10-27T01:43:37.426Z
-updated: 2024-11-02T20:38:53.641Z
+date: 2024-11-03T21:06:35.126Z
+updated: 2024-11-11T03:40:48.116Z
 tags:
   - ai video
   - ai facebook
@@ -46,16 +46,16 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
@@ -67,26 +67,26 @@ c. Your home network is going to be scanned by the Xbox software for any Xbox co
 
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Use Wirecast or OBS to stream your desktop to Facebook
@@ -101,6 +101,13 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
 **Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
@@ -108,13 +115,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 **Cons** It is way too expensive for normal gamers.
 
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -133,20 +133,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-access-prime-content-best-fb-movies-to-download-8/"><u>[Updated] Access Prime Content Best FB Movies to Download #8</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-strategies-for-compelling-facebook-video-content/"><u>[Updated] In 2024, Strategies for Compelling Facebook Video Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-pro-tips-iphone-in-the-dark-spotlight/"><u>[Updated] Pro Tips IPhone in the Dark Spotlight</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-exploring-echoes-in-social-space-an-old-fb-content-pathway/"><u>2024 Approved Exploring Echoes in Social Space An Old FB Content Pathway</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-from-the-shooting-range-to-streaming-real-time-dslr-and-pcmac-connection/"><u>2024 Approved From the Shooting Range to Streaming Real-Time DSLR & PC/Mac Connection</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/essential-ai-technologies-every-entrepreneur-must-explore/"><u>Essential AI Technologies Every Entrepreneur Must Explore</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/explore-our-handpicked-selection-of-top-maximilian-docu-films-for-a-thoughtful-july-2024-viewing-experience/"><u>Explore Our Handpicked Selection of Top Maximilian Docu-Films for a Thoughtful July 2024 Viewing Experience</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/exploring-televised-facebook-live-4-strategies-for-2024/"><u>Exploring Televised Facebook Live 4 Strategies for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/fix-mobile-device-errors-fb-vids-not-loading-for-2024/"><u>Fix Mobile Device Errors FB Vids Not Loading for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-go-live-on-youtube-with-minimum-follower-criteria-met/"><u>In 2024, Go Live on Youtube with Minimum Follower Criteria Met</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-unveiling-facebooks-secrets-30-insider-tricks-for-growth/"><u>In 2024, Unveiling Facebook's Secrets 30 Insider Tricks for Growth</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-download-adobe-premiere-pro-cs6-for-mac-free-latest-2023-version-for-2024/"><u>New Download Adobe Premiere Pro CS6 for Mac Free (Latest 2023 Version) for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-virtualdub-for-mac/"><u>New In 2024, VirtualDub for Mac</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-no-budget-no-problem-best-free-mod-video-editors-for-2024/"><u>New No Budget, No Problem Best Free MOD Video Editors for 2024</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-premiere-pro-slow-playback-issues-finding-the-best-solutions-for-2024/"><u>Updated Premiere Pro Slow Playback Issues Finding The Best Solutions for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-will-2023-see-an-increase-in-televising-video-content/"><u>[New] 2024 Approved Will 2023 See an Increase in Televising Video Content?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-from-live-to-recorded-your-path-to-maccam-skills-for-2024/"><u>[New] From Live to Recorded Your Path to MacCam Skills for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-engagement-choosing-your-fb-video-direction/"><u>[Updated] Maximizing Engagement - Choosing Your FB Video Direction</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-premium-convert-mp4-to-facebook-media-for-2024/"><u>[Updated] Premium Convert MP4 to Facebook Media for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-top-five-transformative-facebook-traits-for-2024/"><u>[Updated] Unlocking Top Five Transformative Facebook Traits for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/discreetly-see-fb-snapshots-for-2024/"><u>Discreetly See FB Snapshots for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/ensuring-quality-export-of-camera-images-for-snapchat-sharing-for-2024/"><u>Ensuring Quality Export of Camera Images for Snapchat Sharing for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/impressive-display-innovations-top-10-mac-displays-of-the-year-for-2024/"><u>Impressive Display Innovations - Top 10 Mac Displays of the Year for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-crafting-compelling-online-presence-incorporating-wirecast-into-fb-streams/"><u>In 2024, Crafting Compelling Online Presence Incorporating Wirecast Into FB Streams</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Infinix Zero 5G 2023 Turbo?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-15-pro-max-vs-samsung-galaxy-s2e-ultra-which-is-better-for-you/"><u>IPhone 15 Pro Max Vs. Samsung Galaxy S2e Ultra - Which Is Better for You?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/revitalize-your-stagnant-business-essential-steps-to-overcome-non-launch-issues/"><u>Revitalize Your Stagnant Business: Essential Steps to Overcome Non-Launch Issues</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ming-smarts-engaging-viewers-on-multiple-networks/"><u>Streaming Smarts Engaging Viewers on Multiple Networks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/upcoming-samsung-galaxy-z-fold-7-price-predictions-release-forecast-and-specs-revealed/"><u>Upcoming Samsung Galaxy Z Fold 7 - Price Predictions, Release Forecast & Specs Revealed</u></a></li>
 </ul></div>
 
