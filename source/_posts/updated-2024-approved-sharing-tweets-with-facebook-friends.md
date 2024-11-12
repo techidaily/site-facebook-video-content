@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Sharing Tweets with Facebook Friends\""
-date: 2024-11-04T06:16:06.969Z
-updated: 2024-11-11T01:52:00.256Z
+date: 2024-11-05T01:26:23.121Z
+updated: 2024-11-11T21:27:19.741Z
 tags:
   - ai video
   - ai facebook
@@ -30,10 +30,10 @@ thumbnail: https://thmb.techidaily.com/6bec6b49ef7ec1e5a2c1ba4a21123755124d462c6
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Post Tweets to Facebook – Step by Step guide
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/6bec6b49ef7ec1e5a2c1ba4a21123755124d462c6
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
@@ -55,45 +62,19 @@ thumbnail: https://thmb.techidaily.com/6bec6b49ef7ec1e5a2c1ba4a21123755124d462c6
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
 
@@ -205,6 +186,13 @@ thumbnail: https://thmb.techidaily.com/6bec6b49ef7ec1e5a2c1ba4a21123755124d462c6
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -220,22 +208,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-executing-a-successful-facebook-live-from-previous-recordings/"><u>[New] 2024 Approved Executing a Successful Facebook Live From Previous Recordings</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-extracting-fb-video-files-from-pcmac-for-2024/"><u>[New] Extracting FB Video Files From PC/Mac for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-future-of-fb-ads-whats-a-must-try-in-2024/"><u>[New] Future of FB Ads – What’s a Must-Try, In 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-no-more-ghosting-on-social-reinstate-disappearing-facebook-videos-with-12-tips/"><u>[New] In 2024, No More Ghosting on Social Reinstate Disappearing Facebook Videos With 12 Tips</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-optimizing-engagement-in-the-new-facebook-algorithms-era/"><u>[Updated] In 2024, Optimizing Engagement in the New Facebook Algorithms Era</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-pro-gopro-filming-and-live-sharing-best-practices-for-facebookperiscope/"><u>[Updated] In 2024, Pro Gopro Filming and Live Sharing Best Practices for Facebook/Periscope</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-simplified-approach-to-decoding-facebook-statistics/"><u>[Updated] In 2024, Simplified Approach to Decoding Facebook Statistics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-how-to-recover-missing-files-from-your-folder-7-effective-strategies/"><u>1. How to Recover Missing Files From Your Folder: 7 Effective Strategies</u></a></li>
-<li><a href="https://driver-download.techidaily.com/amd-radeon-rx-590-driver-installation-for-windows-quick-and-simple-steps/"><u>AMD Radeon RX 590 Driver Installation for Windows - Quick and Simple Steps</u></a></li>
-<li><a href="https://network-issues.techidaily.com/error-alert-by-device-over-nvidia-windows-stopped-fixed/"><u>Error Alert by Device Over Nvidia, Windows Stopped Fixed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-console-performance-ps5-or-enhanced-ps4-pro/"><u>Evaluating Console Performance: PS5 or Enhanced PS4 Pro?</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-motorola-defy-2-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Motorola Defy 2 Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-elite-no-cost-fb-imagemovie-design-toolkit/"><u>In 2024, Elite No-Cost FB Image/Movie Design Toolkit</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-sketchsquad-full-scrutiny-and-step-by-step-guidebook-24/"><u>In 2024, SketchSquad Full Scrutiny & Step-by-Step Guidebook '24</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/master-the-solutions-to-stop-ark-adventure-essentials-from-crashing-on-your-computer-now/"><u>Master the Solutions to Stop ARK: Adventure Essentials From Crashing on Your Computer Now</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ird-scribes-writing-the-script-for-youtube-for-2024/"><u>Songbird Scribes Writing the Script for YouTube for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-microsoft-edge-crash-errors-on-your-windows-10-pc/"><u>Troubleshooting Microsoft Edge Crash Errors on Your Windows 10 PC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-crafting-the-future-workplace-with-vr-technology/"><u>[New] 2024 Approved Crafting the Future Workplace with VR Technology</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-quick-record-and-publish-screen-images-for-macpc-and-youtube/"><u>[New] 2024 Approved Quick Record & Publish Screen Images for Mac/PC and YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-android-music-integration-a-guide-to-social-media-playlists/"><u>[New] In 2024, Android Music Integration A Guide to Social Media Playlists</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-snippet-grabber-fb-to-mp3/"><u>[New] Snippet Grabber FB to Mp3</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-optimal-budget-free-fb-picturemotion-designer/"><u>[Updated] 2024 Approved Optimal Budget-Free FB Picture/Motion Designer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebooks-unique-media-the-top-ios-downloader-tools-revealed-today/"><u>[Updated] Facebook's Unique Media The Top iOS Downloader Tools Revealed Today</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-extract-and-convert-fb-videos-to-mp3-files-efficiently/"><u>2024 Approved Extract and Convert FB Videos to MP3 Files Efficiently</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/eliminating-faults-the-six-no-goes-of-ai-chatting/"><u>Eliminating Faults: The Six No-Goes of AI Chatting</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-microphone-functionality-in-your-steelseries-arctis-prime-audio-gear/"><u>How To Restore Microphone Functionality in Your SteelSeries Arctis Prime Audio Gear</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-7-plus-video-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 7 Plus Video to Computer? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-realme-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Realme</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-xiaomi-redmi-13c-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Xiaomi Redmi 13C Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/summit-build-lab-examination/"><u>Summit Build Lab Examination</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Start Your Journey to Savvy Social Analytics on Facebook"
-date: 2024-11-06T04:48:08.140Z
-updated: 2024-11-10T22:58:09.511Z
+date: 2024-11-09T23:56:19.116Z
+updated: 2024-11-11T17:22:48.434Z
 tags:
   - ai video
   - ai facebook
@@ -47,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Use Facebook Insights for Beginners
 
 ### 1\. Overview
@@ -72,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Post Reach
 
  The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
@@ -92,17 +78,10 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -120,6 +99,26 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -140,13 +139,20 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -163,20 +169,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-analysis-of-fb-video-proportions/"><u>[New] In 2024, Analysis of FB Video Proportions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-fb-video-capture-toolkit/"><u>[New] In 2024, FB Video Capture Toolkit</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-pioneering-storytelling-with-insta-and-youtube-fusion/"><u>[New] In 2024, Pioneering Storytelling with Insta & YouTube Fusion</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-speed-focused-chroma-keying-101/"><u>[New] In 2024, Speed-Focused Chroma Keying 101</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-enhanced-viewing-fb-videos-on-large-displays/"><u>[Updated] Enhanced Viewing FB Videos On Large Displays</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-streamline-your-social-footprint-share-videos-on-facebook-easily/"><u>[Updated] In 2024, Streamline Your Social Footprint Share Videos on Facebook Easily</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-dawn-of-a-new-era-key-fb-ad-trends-arriving-for-2024/"><u>[Updated] The Dawn of a New Era Key FB Ad Trends Arriving for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/expert-analysis-of-the-dough-spectrum-black-oled-gaming-display-27-masterpiece/"><u>Expert Analysis of the Dough Spectrum Black OLED Gaming Display - 27 Masterpiece</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-fix-connectivity-issues-with-lg-devices-via-usb-in-windows/"><u>How to Fix Connectivity Issues with LG Devices via USB in Windows</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-effortless-integration-of-xbox-and-facebook-streams/"><u>In 2024, Effortless Integration of Xbox and Facebook Streams</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-pure-serenity-in-the-air-top-asmr-microphones-at-low-costs/"><u>In 2024, Pure Serenity in the Air - Top ASMR Microphones at Low Costs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-the-art-of-applying-skin-secrets-establishing-an-online-beauty-platform/"><u>In 2024, The Art of Applying Skin Secrets Establishing an Online Beauty Platform</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-netgear-nighthawk-c70er-top-tier-performance-from-a-reliable-wifi-hub/"><u>In-Depth Analysis of Netgear Nighthawk C70er: Top-Tier Performance From a Reliable WiFi Hub</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/op-live-streaming-tech-software-and-hardware-for-youtube-enthusiasts/"><u>The Top Live Streaming Tech Software & Hardware for YouTube Enthusiasts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/transforming-your-facebook-display-photo-quickly-for-2024/"><u>Transforming Your Facebook Display Photo Quickly for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-clear-and-compelling-1080p-streaming-on-the-social-network/"><u>[New] In 2024, Clear and Compelling 1080P Streaming on the Social Network</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-spherical-videos-on-the-go-iphones-social-media-blueprint-for-2024/"><u>[New] Spherical Videos on the Go IPhone's Social Media Blueprint for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-step-by-step-tutorial-fb-video-and-apple-tv-combination-for-2024/"><u>[New] Step-By-Step Tutorial FB Video & Apple TV Combination for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-growth-odyssey-of-ajey-nagar-on-youtube/"><u>[New] The Growth Odyssey of Ajey Nagar on YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-directvid-snapper-for-video-calls-for-2024/"><u>[Updated] DirectVid Snapper for Video Calls for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-elevate-your-ppt-game-with-clear-concise-voiceover-techniques/"><u>[Updated] Elevate Your PPT Game with Clear, Concise Voiceover Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-airwaves-to-archives-expert-tips-on-recording-live-streams/"><u>[Updated] From Airwaves to Archives Expert Tips on Recording Live Streams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-from-novice-to-pro-steps-for-social-success-for-2024/"><u>[Updated] From Novice to Pro Steps for Social Success for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-easy-ways-to-record-webcam-chat/"><u>[Updated] In 2024, Easy Ways to Record Webcam Chat</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-the-art-of-obtaining-facebooks-prestigious-blue-badge/"><u>[Updated] Mastering the Art of Obtaining Facebook’s Prestigious Blue Badge</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mediacollector-for-fb-groups-for-2024/"><u>[Updated] MediaCollector for Fb Groups for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-ultimate-viewer-writers-guide/"><u>[Updated] The Ultimate Viewer' Writers Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effektivste-software-fur-die-verkleinerung-von-videodateien-ein-leitfaden/"><u>Effektivste Software Für Die Verkleinerung Von Videodateien - Ein Leitfaden</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-nickwatchs-grand-american-arrival-aligned-with-the-spectacular-atmosphere-of-kids-choice-award-night/"><u>Experience NickWatch's Grand American Arrival, Aligned with The Spectacular Atmosphere of Kids' Choice Award Night</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/fix-your-ps4-avi-playback-glitches-effortlessly-with-top-tier-media-conversion-tools/"><u>Fix Your PS4 AVI Playback Glitches Effortlessly With Top-Tier Media Conversion Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/speak-with-elegance-on-chrome-top-picks-for-web-based-voice-transformers/"><u>Speak with Elegance on Chrome Top Picks for Web-Based Voice Transformers</u></a></li>
 </ul></div>
 

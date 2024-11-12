@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step Into Reflection  Editing Your Facebook Past Videos\""
-date: 2024-11-04T12:37:40.295Z
-updated: 2024-11-11T02:39:00.537Z
+date: 2024-11-09T21:50:42.941Z
+updated: 2024-11-11T18:14:29.446Z
 tags:
   - ai video
   - ai facebook
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -56,18 +63,18 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -78,10 +85,16 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4. Add more effects to your Look Back video
@@ -91,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -112,13 +125,6 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -134,18 +140,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-downloadfacebookvideos-essential-browser-addons-for-a-smooth-social-media-journey-in-firefox/"><u>[New] In 2024, DownloadFacebookVideos! - Essential Browser Addons for a Smooth Social Media Journey in FireFox</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-access-unlimited-free-high-quality-green-screen-footage-online/"><u>[Updated] 2024 Approved Access Unlimited Free, High-Quality Green Screen Footage Online</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-how-can-i-go-live-on-facebook-in-2024/"><u>[Updated] How Can I Go Live on Facebook, In 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-6-proven-strategies-to-add-facebook-live-features/"><u>[Updated] In 2024, 6 Proven Strategies to Add Facebook Live Features</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-insights-into-a-common-symbol-the-blue-emoji-in-fb-chat/"><u>[Updated] Insights Into a Common Symbol The Blue Emoji in FB Chat</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-oppo-reno-9a-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Oppo Reno 9A Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-honor-80-pro-straight-screen-edition-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Honor 80 Pro Straight Screen Edition to Mac? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-pushing-boundaries-in-film-the-ultimate-guide-to-producing-slow-motion-videos-with-photos-and-internet/"><u>In 2024, Pushing Boundaries in Film The Ultimate Guide to Producing Slow-Motion Videos with Photos & Internet</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mastering-instagram-ringtone-making-solo/"><u>Mastering Instagram Ringtone Making Solo</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-three-essential-steps-for-apple-to-revamp-and-rejuvenate-the-timeless-vision-pro-insights/"><u>The Three Essential Steps for Apple to Revamp and Rejuvenate the Timeless Vision Pro Insights</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-xiaomi-redmi-13c-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Xiaomi Redmi 13C 5G IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-handling-live-stream-halt-a-guide-for-fb-users/"><u>[New] 2024 Approved Handling Live Stream Halt A Guide for FB Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fb-video-placement-upright-or-flat-angle-in-2024/"><u>[New] FB Video Placement - Upright or Flat Angle, In 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-tips-for-recording-and-saving-google-voice-interactions/"><u>[New] Tips for Recording and Saving Google Voice Interactions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-transforming-daily-routine-into-a-social-media-journey-on-fb/"><u>[New] Transforming Daily Routine Into a Social Media Journey on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-the-mystery-of-facebooks-status-video-downloads-for-2024/"><u>[New] Unveiling the Mystery of Facebook's Status Video Downloads for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mapping-media-memorable-ends/"><u>[Updated] In 2024, Mapping Media Memorable Ends</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-viral-beats-cutting-edge-music-for-youtube-short-videos/"><u>[Updated] In 2024, Viral Beats Cutting-Edge Music for YouTube Short Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-smooth-reels-enhancing-android-video-clarity/"><u>[Updated] Smooth 'Reels' Enhancing Android Video Clarity</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-5-best-photo-video-maker-with-music/"><u>2024 Approved 5 Best Photo Video Maker With Music</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-enhancing-televisual-engagement-through-fb-live/"><u>2024 Approved Enhancing Televisual Engagement Through FB Live</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/becoming-a-trendsetter-viral-tactics-for-fb/"><u>Becoming a Trendsetter Viral Tactics for FB</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-automatically-capture-game-highlights-with-any-gpu/"><u>How to Automatically Capture Game Highlights With Any GPU</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solving-pdhdll-errors-a-comprehensive-guide/"><u>Solving pdh.dll Errors: A Comprehensive Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/step-by-step-bios-update-for-win10s-razer-deathadder/"><u>Step-by-Step BIOS Update for Win10's Razer Deathadder</u></a></li>
+<li><a href="https://network-issues.techidaily.com/streamlined-graphics-experience-update-for-nvidia-210-and-win10/"><u>Streamlined Graphics Experience: Update for NVIDIA 210 & WIN10</u></a></li>
 </ul></div>
 
