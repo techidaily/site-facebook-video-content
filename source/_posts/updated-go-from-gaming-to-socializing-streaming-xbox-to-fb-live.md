@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Go From Gaming to Socializing  Streaming Xbox to FB Live\""
-date: 2024-11-09T22:35:32.668Z
-updated: 2024-11-12T02:49:27.317Z
+date: 2024-11-18T00:41:08.497Z
+updated: 2024-11-20T17:09:29.896Z
 tags:
   - ai video
   - ai facebook
@@ -46,6 +46,10 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
@@ -64,15 +68,20 @@ d. Once the connection is established the icons would indicate that and you will
 
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Use Wirecast or OBS to stream your desktop to Facebook
@@ -87,13 +96,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
 **Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
@@ -102,20 +104,10 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,22 +125,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-tips-for-making-facebook-ad-videos-memorable/"><u>[New] 2024 Approved Tips for Making Facebook Ad Videos Memorable</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-digital-extension-fb-stories-archive/"><u>[New] Digital Extension Fb Stories Archive</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-farming-to-the-next-level-stardews-leading-mods-listed/"><u>[New] Farming to the Next Level Stardew's Leading Mods Listed</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-navigating-through-glitches-in-facebook-live-video-uploads/"><u>[Updated] 2024 Approved Navigating Through Glitches in Facebook Live Video Uploads</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-crafting-the-perfect-facebook-video-post-pcandroid-techniques/"><u>[Updated] Crafting the Perfect Facebook Video Post, PC/Android Techniques</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-the-art-of-personalizing-video-covers-for-facebook/"><u>[Updated] In 2024, Mastering the Art of Personalizing Video Covers for Facebook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-guide-the-top-11-waterproof-camcorders-for-kids-vloggers/"><u>[Updated] In 2024, Ultimate Guide The Top 11 Waterproof Camcorders For Kids Vloggers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-your-path-to-uninterrupted-mobile-experience-with-these-7-apps/"><u>[Updated] Your Path to Uninterrupted Mobile Experience with These 7 Apps</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-ultimate-index-ranked-6-fb-lite-downloads/"><u>2024 Approved Ultimate Index Ranked 6 FB Lite Downloads</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/best-8k-tvs-detailed-comparison/"><u>Best 8K TVs [Detailed Comparison ]</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevate-your-social-media-reach-fb-ad-mastery-techniques/"><u>Elevate Your Social Media Reach FB Ad Mastery Techniques</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-on-getting-age-of-empires-4-up-and-running-launch-fixes/"><u>Expert Tips on Getting Age of Empires 4 Up and Running: Launch Fixes</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-unbrand-your-videos-remove-filmora-watermark-for-freepaid/"><u>In 2024, Unbrand Your Videos Remove Filmora Watermark for Free/Paid</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/maximize-fun-the-finest-ios-apps-for-loading-fb-videos-for-2024/"><u>Maximize Fun The Finest iOS Apps for Loading FB Videos for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-common-nier-automata-pc-stability-problems-now-fixed/"><u>Troubleshooting Common Nier: Automata PC Stability Problems - Now Fixed!</u></a></li>
-<li><a href="https://win11.techidaily.com/unraveling-the-complexities-of-windows-system-restore-for-easy-rollbacks/"><u>Unraveling the Complexities of Windows System Restore for Easy Rollbacks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-seo-guide-for-beginners-who-want-more-views/"><u>YouTube SEO Guide for Beginners Who Want More Views</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-best-of-the-best-20-hilarious-incarceration-posts-to-brighten-your-digital-world/"><u>[New] 2024 Approved Best of the Best - 20 Hilarious Incarceration Posts to Brighten Your Digital World</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-facebook-update-essential-strategies-for-social-media-savvy/"><u>[New] In 2024, Facebook Update Essential Strategies for Social Media Savvy</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-keep-it-steady-photo-and-video-clarity/"><u>[Updated] 2024 Approved Keep It Steady Photo & Video Clarity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-leading-the-virtual-conversation-with-social-media/"><u>[Updated] 2024 Approved Leading the Virtual Conversation with Social Media</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-essential-free-online-music-libraries-15-picks-for-2024/"><u>[Updated] Essential Free Online Music Libraries 15 Picks for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-exploring-options-when-facebook-takes-down-my-content/"><u>[Updated] Exploring Options When Facebook Takes Down My Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unlock-advanced-editing-text-insertion-tips-on-images-in-microsofts-photos/"><u>[Updated] In 2024, Unlock Advanced Editing Text Insertion Tips on Images in Microsoft's Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-quickening-realities-with-hyperlapse-methods/"><u>[Updated] Quickening Realities with Hyperlapse Methods</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-strategic-planning-for-effective-live-video-production-on-fb-for-2024/"><u>[Updated] Strategic Planning for Effective Live Video Production on FB for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-discovering-this-years-finest-pc-vr-devices/"><u>2024 Approved Discovering This Year's Finest PC VR Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebook-story-viewer-view-facebook-stories-anonymously-for-2024/"><u>Facebook Story Viewer View Facebook Stories Anonymously for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-soft-melodies-pcos-guide-for-2024/"><u>Mastering Soft Melodies PC/OS Guide for 2024</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/1728478203555-windows-11/"><u>Windows 11で最適化された増分・差分バックアップガイド</u></a></li>
 </ul></div>
 

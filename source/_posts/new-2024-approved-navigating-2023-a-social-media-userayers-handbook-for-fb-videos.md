@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating 2023  A Social Media User’ayer's Handbook for FB Videos\""
-date: 2024-11-07T05:29:04.831Z
-updated: 2024-11-12T00:17:53.946Z
+date: 2024-11-19T06:08:26.087Z
+updated: 2024-11-21T00:14:27.907Z
 tags:
   - ai video
   - ai facebook
@@ -54,10 +54,7 @@ From your browser, access Facebook by going to the [website](https://www.faceboo
 ![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Log in to Your Account**
@@ -71,6 +68,10 @@ Here, log in to your Facebook account.
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
 
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Click on Saved**
 
@@ -97,6 +98,10 @@ From your home screen or apps list, open the Facebook app.
 From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Go to Saved**
 
@@ -157,19 +162,6 @@ From the dropdown menu, click on “Activity Log.”
 On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
 
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6: Select “Videos you’ve watched”**
 
@@ -349,6 +341,10 @@ Under your profile, on the right, you will see three dots. Click on them to acce
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Go to Activity Log**
 
 From the dropdown menu, click on “Activity Log.”
@@ -397,13 +393,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
@@ -419,10 +408,7 @@ Videos are a very effective way of expressing yourself. If you wish to upload yo
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -449,9 +435,17 @@ Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
 
 Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
 
 Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Finding Saved Facebook Videos on PC
 
@@ -468,13 +462,6 @@ From your browser, access Facebook by going to the [website](https://www.faceboo
 Here, log in to your Facebook account.
 
 ![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Search for the "Saved” tab.**
 
@@ -520,6 +507,10 @@ In order to view the saved video quickly, click on “See All” under the Most 
 
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Filter the Items**
 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
@@ -547,6 +538,10 @@ To find Facebook videos that you have watched recently on the computer, follow t
 Open the browser and then go to the Facebook website. Log into your account.
 
 ![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Go to Your Profile**
 
@@ -568,13 +563,6 @@ On the left of your screen, you will see an Activity log panel. Click on "Logged
 
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6: Select “Videos you’ve watched”**
 
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
@@ -604,13 +592,6 @@ From the Menu, click on your profile at the top of the screen.
 You will see three dots beside the "Add to Story" button. Click on them. This will take you to the Profile Settings.
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5: Go to “Activity Log”**
 
@@ -684,19 +665,6 @@ Once you log in, you will see your News Feed. On the left side of your screen, a
 
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4: Click on Saved**
 
 Click on “Saved.” You will enter another interface where all your saved items will be visible.
@@ -762,6 +730,10 @@ To find Facebook videos that you have watched recently on the computer, follow t
 Open the browser and then go to the Facebook website. Log into your account.
 
 ![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Go to Your Profile**
 
@@ -866,17 +838,19 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-social-media-shines-in-hd-fb-video-mastery-guide-for-2024/"><u>[New] Social Media Shines in HD FB Video Mastery Guide for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-wincams-capturing-life-at-your-fingertips/"><u>[New] WinCams Capturing Life at Your Fingertips</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-enhancing-user-engagement-through-fb-slideshows/"><u>[Updated] Enhancing User Engagement Through FB Slideshows</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhance-your-online-presence-smart-advertising-powered-by-cookiebot/"><u>Enhance Your Online Presence: Smart Advertising Powered by Cookiebot</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/experience-top-tier-silence-with-bose-quietcomfort-ultra-earbuds-comprehensive-review/"><u>Experience Top-Tier Silence with Bose QuietComfort Ultra Earbuds - Comprehensive Review</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/how-to-add-music-to-facebook-profile-iphone-and-android/"><u>How to Add Music to Facebook Profile (iPhone & Android)？</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabled-iphone-14-plus-how-to-unlock-a-disabled-iphone-14-plus-by-drfone-ios/"><u>In 2024, Disabled iPhone 14 Plus How to Unlock a Disabled iPhone 14 Plus?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-guide-to-creating-a-peak-vr-environment/"><u>In 2024, Step-by-Step Guide to Creating a Peak VR Environment</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-expert-approved-mts-video-editing-software/"><u>New In 2024, Expert-Approved MTS Video Editing Software</u></a></li>
-<li><a href="https://games-able.techidaily.com/premium-refresh-rate-displays-165hz/"><u>Premium Refresh Rate Displays: 165Hz</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/terminal-talk-2023-interfacing-chatgpt-using-shellgpt/"><u>Terminal Talk 2023: Interfacing ChatGPT Using ShellGPT</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/transition-from-phone-videos-to-televisual-viewing-for-2024/"><u>Transition From Phone Videos to Televisual Viewing for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-break-free-from-small-viewing-mastering-facebooks-full-screen-function/"><u>[New] 2024 Approved Break Free From Small Viewing Mastering Facebook's Full-Screen Function</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-bridging-connectivity-gaps-watching-facebook-live-on-your-roku/"><u>[New] Bridging Connectivity Gaps Watching Facebook Live on Your Roku</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-discover-the-top-6-fb-lite-video-export-apps-of-2023/"><u>[New] In 2024, Discover the Top 6 FB Lite Video Export Apps of 2023</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-mastering-the-art-of-crafting-compelling-content-in-60-second-videos/"><u>[New] In 2024, Mastering the Art of Crafting Compelling Content in 60-Second Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-incognito-observer-of-online-chronicles/"><u>[New] Incognito Observer of Online Chronicles</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-10-best-no-cost-video-calls-for-remote-collaboration-for-2024/"><u>[Updated] 10 Best No-Cost Video Calls for Remote Collaboration for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-easy-to-follow-steps-for-android-video-capture-for-2024/"><u>[Updated] Easy-to-Follow Steps for Android Video Capture for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-highest-ranking-youtube-tracker-for-popular-video-insight-for-2024/"><u>[Updated] Highest-Ranking YouTube Tracker for Popular Video Insight for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-innovative-methods-to-utilize-dynamic-images-on-ios-for-2024/"><u>[Updated] Innovative Methods to Utilize Dynamic Images on iOS for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-messenger-video-downloaders/"><u>2024 Approved Facebook Messenger Video Downloaders</u></a></li>
+<li><a href="https://program-issues.techidaily.com/diy-fix-for-scan-mishaps-top-techniques-that-work-every-time/"><u>DIY FIX for Scan Mishaps – Top Techniques That Work Every Time</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fixing-the-frozen-touchscreen-of-your-apple-watch-expert-solutions-unveiled/"><u>Fixing the Frozen Touchscreen of Your Apple Watch - Expert Solutions Unveiled</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-13-pro-max-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 13 Pro Max When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-principles-of-clear-and-persuasive-messaging-for-social-media-ads/"><u>In 2024, Principles of Clear & Persuasive Messaging for Social Media Ads</u></a></li>
 </ul></div>
 

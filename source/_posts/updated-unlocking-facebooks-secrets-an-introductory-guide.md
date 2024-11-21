@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Facebook's Secrets  An Introductory Guide\""
-date: 2024-11-05T04:31:23.396Z
-updated: 2024-11-11T22:34:19.258Z
+date: 2024-11-16T21:23:39.901Z
+updated: 2024-11-21T01:16:16.179Z
 tags:
   - ai video
   - ai facebook
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 * [**Part 2: Where to Find Facebook Insights**](#part2)
 * [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is Facebook Insights
 
  A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
@@ -42,10 +46,7 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Where to Find Facebook Insights
@@ -53,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
@@ -79,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Post Reach
 
  The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
@@ -99,15 +86,16 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -133,20 +121,21 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -163,24 +152,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-socialnet-movie-replayer/"><u>[New] 2024 Approved SocialNet Movie Replayer</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-convert-facebook-posts-to-mp3-files/"><u>[New] Convert Facebook Posts to MP3 Files</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-frame-perfection-top-10-tools-to-edge-your-instagram-content-for-2024/"><u>[New] Frame Perfection Top 10 Tools to Edge Your Instagram Content for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-from-novice-to-influencer-a-step-by-step-fb-live-blueprint/"><u>[New] In 2024, From Novice to Influencer A Step-by-Step FB Live Blueprint</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2023-best-facebook-video-downloader-and-addons-for-firefox-for-2024/"><u>[Updated] 2023 | Best Facebook Video Downloader And Addons for Firefox for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-closer-look-at-virtual-reality-flaws/"><u>[Updated] 2024 Approved A Closer Look at Virtual Reality Flaws</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-social-media-savvy-top-101-bio-tips-and-techniques-for-facebookers/"><u>[Updated] In 2024, Social Media Savvy Top 101 Bio Tips & Techniques for Facebookers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-rescue-absent-watch-thumbnail-icon-for-2024/"><u>[Updated] Rescue Absent Watch Thumbnail Icon for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-choosing-the-right-horizon-smart-strategies-for-buying-an-impressive-4k-display/"><u>2024 Approved Choosing the Right Horizon Smart Strategies for Buying an Impressive 4K Display</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-explore-and-compare-apps-via-az-recorder/"><u>2024 Approved Explore & Compare Apps via AZ Recorder</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/engaging-creativity-crafting-compelling-facebook-ads/"><u>Engaging Creativity Crafting Compelling Facebook Ads</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/enhancing-visual-aesthetics-adding-black-bar-and-box-to-videos-for-2024/"><u>Enhancing Visual Aesthetics Adding Black Bar & Box to Videos for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-behind-the-scenes-of-carminatis-youtube-earnings/"><u>In 2024, Behind the Scenes of Carminati’s YouTube Earnings</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/shielded-hiding-places-keeping-ai-conversations-quiet/"><u>Shielded Hiding Places: Keeping AI Conversations Quiet</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/strategies-for-effortless-audio-merging-in-adobe-premiere-for-2024/"><u>Strategies for Effortless Audio Merging in Adobe Premiere for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-on-linksys-ea8300-enhancing-your-smart-home-experience-with-advanced-networking/"><u>The Ultimate Review on Linksys EA8300: Enhancing Your Smart Home Experience with Advanced Networking</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/top-tier-tactics-for-crafting-fbs-most-watched-videos/"><u>Top-Tier Tactics for Crafting #FB's Most Watched Videos</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/1728473321362-windows-11/"><u>Windows 11のパーティションを失った?効果的な復元方法をご紹介</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-boosting-reach-transferring-fb-videos-on-whatsapp-efficiently-for-2024/"><u>[New] Boosting Reach Transferring FB Videos on WhatsApp Efficiently for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-expert-strategies-for-managing-facebook-lives-in-two-screens/"><u>[New] Expert Strategies for Managing Facebook Lives in Two Screens</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-content-uploading-numerous-photos-and-videos-to-instagram-for-2024/"><u>[Updated] Elevate Your Content Uploading Numerous Photos and Videos to Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-roadmap-for-success-mastering-the-art-of-fb-reel-production/"><u>[Updated] The Roadmap for Success Mastering the Art of FB Reel Production</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unlock-your-creative-flow-sharing-hundreds-of-photos-and-vids-on-ig-for-2024/"><u>[Updated] Unlock Your Creative Flow Sharing Hundreds of Photos and Vids on IG for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlock-potential-a-101-step-guide-to-crafting-exceptional-bios-on-facebook/"><u>2024 Approved Unlock Potential A 101-Step Guide to Crafting Exceptional Bios on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/discover-retro-your-path-to-facebook-archives/"><u>Discover Retro Your Path to Facebook Archives</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/expert-strategies-on-calculating-your-youtube-audience-impact-and-revenue-for-2024/"><u>Expert Strategies on Calculating Your YouTube Audience Impact and Revenue for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-7-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and Apple iPhone 7 without Apple Account</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-samsung-galaxy-f34-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Samsung Galaxy F34 5G FRP Bypass</u></a></li>
 </ul></div>
 
