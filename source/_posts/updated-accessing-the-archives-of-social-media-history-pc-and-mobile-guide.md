@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Accessing the Archives of Social Media History  PC & Mobile Guide\""
-date: 2024-09-20T18:00:26.054Z
-updated: 2024-09-23T21:40:01.327Z
+date: 2024-11-28T16:35:54.459Z
+updated: 2024-11-29T23:38:05.743Z
 tags:
   - ai video
   - ai facebook
@@ -70,10 +70,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -131,6 +128,10 @@ When you click on the story **archive**, you will see all your old stories in se
 Facebook is an excellent platform to interact with your audience, and the story is one of the best features to give your friends a glimpse of your life. Going through old stories can refresh a lot of our memories. If you did not know how to see old stories on Facebook, now you do.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -205,10 +206,7 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -226,13 +224,6 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -256,6 +247,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -277,6 +272,10 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 * [Part 5: How to See Old Stories on a Facebook Business Page?](#part5)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
@@ -328,19 +327,6 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -356,6 +342,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -402,10 +392,7 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
@@ -440,13 +427,6 @@ Once you click on the story archive, all your **old stories** will appear in seq
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
 It is nearly impossible to view your friend’s story once it has disappeared. You cannot watch the stories even if they are achieved. However, there is one way to view old stories of your friends. Here is how:
@@ -465,13 +445,6 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -487,13 +460,6 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -516,6 +482,10 @@ When you click on the story **archive**, you will see all your old stories in se
 Facebook is an excellent platform to interact with your audience, and the story is one of the best features to give your friends a glimpse of your life. Going through old stories can refresh a lot of our memories. If you did not know how to see old stories on Facebook, now you do.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -542,5 +512,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-behind-the-scenes-with-top-influencers-insights-into-their-fb-stories/"><u>[New] Behind the Scenes with Top Influencers – Insights Into Their FB Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-restore-your-viewing-experience-reclaim-the-icon/"><u>[New] In 2024, Restore Your Viewing Experience - Reclaim the Icon</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-online-event-replay-collectors/"><u>[New] Online Event Replay Collectors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-turning-fans-into-followers-friends-and-profits/"><u>[New] Turning Fans Into Followers, Friends, and Profits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-social-snagging-5-chrome-hdl-vids/"><u>[Updated] In 2024, Mastering Social Snagging 5 Chrome HDL Vids</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlocking-monetization-success-a-3-step-system-to-determine-your-youtube-earnings/"><u>[Updated] In 2024, Unlocking Monetization Success A 3-Step System to Determine Your YouTube Earnings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tech-enthusiasts-review-the-top-10-sdk-enhanced-apps-for-fb-videos-on-android/"><u>[Updated] Tech Enthusiast's Review The Top 10 SDK-Enhanced Apps for FB Videos on Android</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-the-backward-playbook-youtubes-video-flip/"><u>[Updated] The Backward Playbook YouTube's Video Flip</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-pinnacle-of-macro-photography-and-cinematography/"><u>[Updated] The Pinnacle of Macro Photography and Cinematography</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-steps-to-ensure-continuous-auto-play-for-fb-content/"><u>[Updated] The Steps to Ensure Continuous Auto-Play for FB Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-free-and-purchased-color-tools-for-the-discerning-canon-user/"><u>2024 Approved Free & Purchased Color Tools for the Discerning Canon User</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/achieve-smoother-play-with-higher-fps-reducing-lag-in-the-world-of-fall-guys-explained/"><u>Achieve Smoother Play with Higher FPS: Reducing Lag in the World of Fall Guys Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/effective-ways-how-to-block-facebook-video-ads/"><u>Effective Ways | How to Block Facebook Video Ads?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-on-your-iphone-se-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID on Your iPhone SE?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-techniques-for-smoothing-meetings-backgrounds-in-teams/"><u>In 2024, Techniques for Smoothing Meetings' Backgrounds in Teams</u></a></li>
+<li><a href="https://network-issues.techidaily.com/rectifying-incompatible-freesync-display/"><u>Rectifying Incompatible FreeSync Display</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-studio-masterclass-elevating-your-edits/"><u>The YouTube Studio Masterclass Elevating Your Edits</u></a></li>
+</ul></div>
 

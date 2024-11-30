@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Start with Simple  Understanding Facebook Metrics for Newbies for 2024\""
-date: 2024-11-18T21:05:19.436Z
-updated: 2024-11-20T18:23:29.371Z
+date: 2024-11-24T04:27:36.966Z
+updated: 2024-11-29T19:30:11.974Z
 tags:
   - ai video
   - ai facebook
@@ -41,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -60,7 +56,11 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Post Reach
@@ -90,11 +90,11 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -132,7 +132,7 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -152,19 +152,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-facebook-video-treasures-top-5-list/"><u>[New] Facebook Video Treasures - Top 5 List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-make-reels-on-facebook/"><u>[New] How to Make Reels on Facebook?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigating-twitter-and-facebook-integration/"><u>[New] Navigating Twitter & Facebook Integration</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-zenith-of-races-olympic-x-snow-highlights/"><u>[Updated] 2024 Approved Zenith of Races - Olympic X-Snow Highlights</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-launch-live-fb-broadcast-from-any-device-with-obs-guide/"><u>[Updated] In 2024, Launch Live FB Broadcast From Any Device with OBS Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-step-by-step-adding-subsections-and-chapters-to-your-youtube-tutorials/"><u>[Updated] Step-by-Step Adding Subsections and Chapters to Your YouTube Tutorials</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-step-by-step-guide-to-using-bandicam-insights-users/"><u>2024 Approved Step-by-Step Guide to Using Bandicam – Insights Users</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-htc-u23-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On HTC U23 without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/blocking-the-buzz-no-more-fb-video-ads/"><u>Blocking the Buzz No More FB Video Ads</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/decoding-the-end-of-yahoo-messenger-a-look-back-at-why-it-was-shut-down/"><u>Decoding the End of Yahoo! Messenger: A Look Back at Why It Was Shut Down</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/experts-choice-top-10-best-free-lut-downloads-for-2024/"><u>Expert's Choice - Top 10 Best Free LUT Downloads for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/generative-bot-face-off-deciding-ai-conversation-leader/"><u>Generative Bot Face-Off - Deciding AI Conversation Leader</u></a></li>
-<li><a href="https://windows11.techidaily.com/guide-to-rectifying-memory-issues-on-pcs/"><u>Guide to Rectifying Memory Issues on PCs</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-transferring-and-editing-avchd-videos-with-windows-movie-maker-on-pc/"><u>Step-by-Step Guide: Transferring and Editing AVCHD Videos with Windows Movie Maker on PC</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-easy-access-luxury-free-access-to-your-dreamset-of-50-banners-for-2024/"><u>[New] Easy-Access Luxury - Free Access to Your Dreamset of 50 Banners for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-instagram-storytelling-using-videos-effectively/"><u>[New] Instagram Storytelling Using Videos Effectively</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-cross-platform-sync-made-simple-post-tiktok-vids-on-fb/"><u>[Updated] 2024 Approved Cross-Platform Sync Made Simple Post TikTok Vids on FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-free-and-easy-top-11-youtube-title-inventors/"><u>[Updated] In 2024, Cutting-Edge, Free, and Easy Top 11 YouTube Title Inventors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-digital-darling-list-top-viewed-on-fb/"><u>[Updated] In 2024, Digital Darling List Top Viewed on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-innovating-influence-what-to-anticipate-from-facebooks-ad-evolution/"><u>[Updated] In 2024, Innovating Influence What to Anticipate From Facebook's Ad Evolution</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-the-art-of-watermarking-on-facebook-for-2024/"><u>[Updated] Mastering the Art of Watermarking on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-optimized-strategies-for-youtube-and-facebook-cross-posting/"><u>[Updated] Optimized Strategies for YouTube & Facebook Cross-Posting</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-hidden-truths-behind-vrs-advantages-and-limitations/"><u>[Updated] Unveiling the Hidden Truths Behind VR's Advantages and Limitations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-stream-masters-list-elite-software-and-devices-for-youtubers/"><u>2024 Approved Stream Masters List Elite Software & Devices for Youtubers</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-step-by-step-approach-crafting-quality-subtitles-for-facebook-videos-in-minutes/"><u>In 2024, Step-By Step Approach Crafting Quality Subtitles for Facebook Videos in Minutes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/meta-drops-minimum-age-requirement-for-ownership-of-quest-accounts-is-it-safe-for-youngsters-to-dive-into-virtual-reality/"><u>Meta Drops Minimum Age Requirement for Ownership of Quest Accounts: Is It Safe for Youngsters to Dive Into Virtual Reality?</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/section-3c-qandas/"><u>Section 3C: Q&As</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/unlocking-the-truth-why-your-hard-drive-cant-be-used-as-a-reliable-backup-in-windows-11-10-8-or/"><u>Unlocking the Truth: Why Your Hard Drive Can't Be Used as a Reliable Backup in Windows 11, 10, 8 Or</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/vivid-8-enhancements-to-transform-your-live-footage-for-2024/"><u>Vivid 8 Enhancements to Transform Your Live Footage for 2024</u></a></li>
 </ul></div>
 

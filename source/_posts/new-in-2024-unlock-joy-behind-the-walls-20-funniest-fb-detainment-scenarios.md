@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlock Joy Behind the Walls  20 Funniest Fb Detainment Scenarios\""
-date: 2024-11-18T00:59:59.562Z
-updated: 2024-11-21T00:40:21.992Z
+date: 2024-11-26T20:46:44.005Z
+updated: 2024-11-30T00:39:35.691Z
 tags:
   - ai video
   - ai facebook
@@ -35,7 +35,7 @@ It happens that the Facebook jail makes users get banned, blocked from accessing
 * [Part 4: How to Make Your Facebook Jail Meme?](#part4)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What does Facebook Jail Mean?
@@ -49,7 +49,7 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 ![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: 10 Best Out of Facebook Jail Memes
@@ -58,6 +58,10 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 
 ![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
 #### 2\. Released from Facebook Jail
@@ -65,7 +69,7 @@ Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 ![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
@@ -73,6 +77,10 @@ When you’re released from Facebook jail knowing you haven’t been rehabilitat
 #### 3\. Fresh Outa Facebook Jail
 
 ![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This was me - Fresh out of Facebook jail in this morning!
 
@@ -91,10 +99,6 @@ After having been through a hard time in Facebook jail, what your comment sectio
 #### 6\. Funny Gary Outta Facebook Jail
 
 ![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This is how Funny Gary Out of Facebook Jail.
 
@@ -121,10 +125,14 @@ Now that I am outa Facebook jail for the 15th time. What type of mischief shall 
 ![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Out of Facebook Jail!!! Let’s play bitches!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Top 3 Facebook Meme Generators
 
@@ -147,10 +155,6 @@ This Facebook meme generator offers benefits such as adding customizable images 
 #### 3\. Canva
 
 ![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
 
@@ -184,10 +188,6 @@ So once you go through this article you would realize that the funny Facebook me
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -203,22 +203,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-crafting-success-on-facebook-a-beginners-and-pro-guide-compilation-for-2024/"><u>[New] Crafting Success on Facebook A Beginner's & Pro Guide Compilation for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-crafting-and-channelizing-imovie-productions-on-youtube/"><u>[New] In 2024, Crafting and Channelizing iMovie Productions on YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-secrets-to-exposing-videos-in-the-news-feed/"><u>[New] Secrets to Exposing Videos in the News Feed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-quest-for-perfection-topiary-angles-in-mobile-photography/"><u>[New] The Quest for Perfection Topiary Angles in Mobile Photography</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-tracing-treasure-trails-fast-friending-fundamentals-for-2024/"><u>[New] Tracing Treasure Trails Fast Friending Fundamentals for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-a-world-of-live-content-roku-and-facebook-integration/"><u>[New] Unveiling a World of Live Content Roku and Facebook Integration</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-ultimate-guide-to-configuring-and-analyzing-facebooks-instream-ads/"><u>[Updated] 2024 Approved The Ultimate Guide to Configuring & Analyzing Facebook's Instream Ads</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-year-ahead-exploring-instagrams-innovative-filters/"><u>[Updated] 2024 Approved The Year Ahead Exploring Instagram's Innovative Filters</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-foundations-of-fluid-graphics-a-primer-for-2024/"><u>[Updated] Foundations of Fluid Graphics A Primer for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-step-by-step-guide-transform-facebook-videos-to-720p1080p-mp4-free-online-for-2024/"><u>[Updated] Step-by-Step Guide Transform Facebook Videos to 720P/1080p MP4 Free Online for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-unending-screen-documentation-sites-for-2024/"><u>[Updated] Unending Screen Documentation Sites for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unleashing-potential-in-virtual-collaboration-platforms/"><u>[Updated] Unleashing Potential in Virtual Collaboration Platforms</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevate-your-social-media-game-producing-powerful-fb-reels-for-2024/"><u>Elevate Your Social Media Game Producing Powerful FB Reels for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/exclusive-insights-the-highest-rated-vr-games/"><u>Exclusive Insights The Highest-Rated VR Games</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-essential-blueprint-for-melding-linktree-into-tiktok-profiles/"><u>The Essential Blueprint for Melding Linktree Into TikTok Profiles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unleash-creativity-pro-guide-for-youtube-studio-editing-for-2024/"><u>Unleash Creativity Pro Guide for YouTube Studio Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-bridge-the-gap-between-viewers-and-wide-angles-posting-on-facebook/"><u>[New] Bridge the Gap Between Viewers and Wide Angles Posting on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-detecting-bots-amongst-your-brands-facebook-supporters/"><u>[New] In 2024, Detecting Bots Amongst Your Brand's Facebook Supporters</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-packaging-growth-tactics/"><u>[New] Packaging Growth Tactics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-prime-motorsport-experiences-quintessential-list-for-2024/"><u>[New] Prime Motorsport Experiences Quintessential List for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-crafting-content-that-captivates-the-square-video-formula-on-fb-for-2024/"><u>[Updated] Crafting Content That Captivates The Square Video Formula on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-deciphering-facebooks-iconic-blue-emoji-usage-in-messages/"><u>[Updated] Deciphering Facebook's Iconic Blue Emoji Usage in Messages</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-elite-console-emulation-top-5-ps3-options/"><u>[Updated] Elite Console Emulation Top 5 PS3 Options</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-melodic-medium-finding-the-right-film-score/"><u>[Updated] Melodic Medium Finding the Right Film Score</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/accessing-vintage-facebook-content-tips-for-all-devices/"><u>Accessing Vintage Facebook Content Tips for All Devices</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apple-misses-the-mark-on-latest-ai-developments-eyes-future-updates/"><u>Apple Misses the Mark on Latest AI Developments, Eyes Future Updates</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/effective-social-crossposting-from-twitch-to-fb/"><u>Effective Social Crossposting From Twitch to FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elevating-facebook-vids-with-fullscreen/"><u>Elevating Facebook Vids with Fullscreen</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/innovate-or-stagnate-the-must-know-fb-ad-trends-for-24-for-2024/"><u>Innovate or Stagnate – The Must-Know FB Ad Trends for '24 for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/premium-download-assist-ff-friendly-fb-addons-for-2024/"><u>Premium Download Assist - FF-Friendly FB Addons for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolved-nvidia-7025-on-win10-compatibility/"><u>Resolved Nvidia 7025 on Win10 Compatibility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/idden-costs-of-youtube-earning-for-2024/"><u>The Hidden Costs of YouTube Earning for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-following-mens-ncaa-basketball-from-march-madness-to-the-final-four/"><u>The Ultimate Guide to Following Men’s NCAA Basketball - From March Madness to the Final Four</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-powerhouse-a-deep-dive-into-the-new-samsung-galaxy-s2-ultra-features-and-performance/"><u>Unveiling the Powerhouse: A Deep Dive Into the New Samsung Galaxy S2# Ultra Features & Performance</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/your-pathway-to-professional-looking-animated-gifs-online-for-2024/"><u>Your Pathway to Professional-Looking Animated GIFs Online for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Revisiting Yesteryear's Social Stories on FB  Device Guide\""
-date: 2024-11-19T04:27:18.055Z
-updated: 2024-11-20T17:40:00.070Z
+date: 2024-11-27T22:01:25.622Z
+updated: 2024-11-29T18:34:16.653Z
 tags:
   - ai video
   - ai facebook
@@ -38,7 +38,7 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
@@ -60,7 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -78,7 +78,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -99,6 +99,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -116,7 +120,7 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -141,10 +145,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -160,22 +160,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unleash-the-power-of-stories-free-online-and-mobile-solutions/"><u>[New] 2024 Approved Unleash the Power of Stories – Free, Online & Mobile Solutions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-bridging-minds-online-the-ultimate-guide-to-facebook-video-screensharing/"><u>[New] Bridging Minds Online The Ultimate Guide to Facebook Video Screensharing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-quick-and-simple-free-fb-video-to-mp4-hd-conversion-tutorial-online/"><u>[New] In 2024, Quick and Simple Free FB Video to MP4 (HD) Conversion Tutorial Online</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-restore-lost-fb-watch-video-button/"><u>[New] In 2024, Restore Lost FB Watch Video Button</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-innovative-insights-for-aspiring-mac-users-a-guide-to-screen-recording-for-2024/"><u>[New] Innovative Insights for Aspiring Mac Users A Guide to Screen Recording for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-swift-transition-from-tiktok-creations-to-fb/"><u>[New] Swift Transition From TikTok Creations to FB</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-definitive-guide-to-srt-editing-on-mac-for-2024/"><u>[New] The Definitive Guide to SRT Editing on Mac for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dive-into-the-world-of-enhanced-youtube-content-with-premium-subscription/"><u>[Updated] In 2024, Dive Into the World of Enhanced YouTube Content with Premium Subscription</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-art-of-crafting-captivating-facebook-stories/"><u>[Updated] In 2024, The Art of Crafting Captivating Facebook Stories</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-facebook-video-integration-with-home-screen-apps-for-2024/"><u>[Updated] Unlocking Facebook Video Integration with Home Screen Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-enlarge-facebook-videos-to-full-screen-for-impact/"><u>2024 Approved Enlarge Facebook Videos to Full Screen for Impact</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-look-at-engaging-with-youtube-comment-threads/"><u>2024 Approved In-Depth Look at Engaging with YouTube Comment Threads</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-your-roadmap-to-sourcing-videos-on-social-media-fb-edition/"><u>2024 Approved Your Roadmap to Sourcing Videos on Social Media (FB Edition)</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-apple-iphone-6s-plus-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock Apple iPhone 6s Plus to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
-<li><a href="https://media-tips.techidaily.com/discover-the-safest-legally-compliant-free-movies-online-the-ultimate-list-of-12-websites/"><u>Discover the Safest, Legally-Compliant Free Movies Online: The Ultimate List of 12 Websites</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/precision-and-convenience-meet-with-our-winning-window-timers-list/"><u>Precision & Convenience Meet With Our Winning Window Timers List</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-mastering-facebook-video-sharing-essential-tips/"><u>[New] 2024 Approved Mastering Facebook Video Sharing Essential Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigate-to-facebooks-recently-viewed-videos/"><u>[New] 2024 Approved Navigate to Facebook's Recently Viewed Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-ultimate-guide-to-facebook-friendly-xbox-play/"><u>[New] In 2024, The Ultimate Guide to Facebook-Friendly Xbox Play</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-ultimate-10-volume-upgrade-tools-for-pc-ios-and-android/"><u>[New] In 2024, Ultimate 10 Volume Upgrade Tools for PC, iOS & Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-vanishing-in-the-crowd-how-to-peruse-instagram-stories-on-various-platforms-anonymously/"><u>[New] In 2024, Vanishing in the Crowd How to Peruse Instagram Stories on Various Platforms Anonymously</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-launch-live-fb-broadcast-from-any-device-with-obs-guide/"><u>[New] Launch Live FB Broadcast From Any Device with OBS Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-crafting-impact-best-9-video-thumbnail-makers-reviewed-for-2024/"><u>[Updated] Crafting Impact Best 9 Video Thumbnail Makers Reviewed for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-oneplus-nord-n30-5g-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My OnePlus Nord N30 5G Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebooks-360-livestream-a-complete-comprehensive-guide/"><u>Facebook's 360 Livestream A Complete Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-updates-for-lenovo-thunderbolt-3-docking-station-software/"><u>Latest Updates for Lenovo Thunderbolt 3 Docking Station Software</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-2023-mac-application-guide-for-professionals-featured/"><u>Ultimate 2023 Mac Application Guide for Professionals - Featured</u></a></li>
 </ul></div>
 

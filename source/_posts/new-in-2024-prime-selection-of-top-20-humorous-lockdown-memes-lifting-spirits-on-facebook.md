@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Prime Selection of Top 20 Humorous Lockdown Memes, Lifting Spirits on Facebook"
-date: 2024-11-13T22:12:29.914Z
-updated: 2024-11-21T06:07:19.748Z
+date: 2024-11-23T17:48:30.046Z
+updated: 2024-11-29T19:10:32.330Z
 tags:
   - ai video
   - ai facebook
@@ -44,15 +44,15 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 
 ![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: 10 Best Out of Facebook Jail Memes
 
 #### 1\. Out of Facebook Jail Meme
 
 ![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
@@ -60,25 +60,21 @@ Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
 ![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
 
 #### 3\. Fresh Outa Facebook Jail
 
 ![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This was me - Fresh out of Facebook jail in this morning!
 
 #### 4\. Finally Out of FB Jail
 
 ![finally out of fb jail](https://images.wondershare.com/filmora/article-images/2021/finally-out-of-fb-jail.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When you are finally out of FB jail, you may feel the same as me.
 
@@ -92,6 +88,10 @@ After having been through a hard time in Facebook jail, what your comment sectio
 
 ![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is how Funny Gary Out of Facebook Jail.
 
 #### 7\. Come Back from FB Jail
@@ -99,7 +99,7 @@ This is how Funny Gary Out of Facebook Jail.
 ![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 How did I come back from Facebook jail and look for the MF that reported me.
@@ -108,25 +108,21 @@ How did I come back from Facebook jail and look for the MF that reported me.
 
 ![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 I am bacccck from Facebook jail. Fantastic!!!
 
 #### 9\. Out of FB Jail 15th Time
 
 ![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
 
 #### 10\. Outa FB Jail and Play
 
 ![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Out of Facebook Jail!!! Let’s play bitches!
 
@@ -138,6 +134,10 @@ We all come across many memes across social media and sometimes do feel that how
 
 ![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
 
 Also one of the best features of the Filmora meme generator is that it has a very processing time and in comparison to other tools exporting time is way less.
@@ -146,6 +146,10 @@ Also one of the best features of the Filmora meme generator is that it has a ver
 
 ![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
 
 #### 3\. Canva
@@ -153,10 +157,6 @@ This Facebook meme generator offers benefits such as adding customizable images 
 ![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
 
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Your Facebook Jail Meme?
 
@@ -203,20 +203,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-crafting-a-profitable-youtube-content-strategy/"><u>[New] 2024 Approved Crafting a Profitable YouTube Content Strategy</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decoding-the-economic-incentives-behind-youtubes-shorts-programme/"><u>[New] 2024 Approved Decoding the Economic Incentives Behind YouTube's Shorts Programme</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-master-facebooks-live-broadcast/"><u>[New] 2024 Approved Master Facebook's Live Broadcast</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-crafting-compelling-ad-messages-a-3-phase-copywriting-guide-for-2024/"><u>[New] Crafting Compelling Ad Messages A 3 Phase Copywriting Guide for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-a-step-by-step-tutorial-to-monetize-product-videography/"><u>[New] In 2024, A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-sims-4-recording-techniques-for-gamers/"><u>[New] Sims 4 Recording Techniques for Gamers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-understanding-facebook-story-algorithms-how-to-optimize-for-success-for-2024/"><u>[New] Understanding Facebook Story Algorithms How to Optimize for Success for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-editing-excellence-incorporating-timestamps-and-labels-for-2024/"><u>[Updated] Editing Excellence Incorporating Timestamps and Labels for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-post-tweets-on-facebook/"><u>[Updated] In 2024, How to Post Tweets on Facebook</u></a></li>
-<li><a href="https://win-able.techidaily.com/discover-the-leading-5-music-downloader-websites-a-comprehensive-guide/"><u>Discover the Leading 5 Music Downloader Websites: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/how-to-watch-facebook-videos-on-my-apple-tv/"><u>How to Watch Facebook Videos on My Apple TV?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-decoding-the-process-of-capturing-facebooks-gifs-on-mobilepc/"><u>In 2024, Decoding the Process of Capturing Facebook's GIFs on Mobile/PC</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-beyond-the-basics-secrets-for-tiktok-live-studio-success/"><u>Updated 2024 Approved Beyond the Basics Secrets for TikTok Live Studio Success</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-2023-friendly-strategies-for-obtaining-status-video-files/"><u>[New] In 2024, 2023-Friendly Strategies for Obtaining Status Video Files</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagram-success-stories-leveraging-highlights-for-growth/"><u>[New] In 2024, Instagram Success Stories Leveraging Highlights for Growth</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unleash-your-fb-potential-a-strategic-plan-for-more-likes-and-shares/"><u>[New] In 2024, Unleash Your FB Potential A Strategic Plan for More Likes and Shares</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-free-to-text-on-mac-30-apps-that-deserve-your-notice/"><u>[New] Top Free to Text on Mac 30 Apps That Deserve Your Notice</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-cutting-the-clutter-eschewing-fb-video-ads/"><u>[Updated] Cutting the Clutter Eschewing FB Video Ads</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-excellent-tech-for-premium-4k-editors/"><u>[Updated] Excellent Tech for Premium 4K Editors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facesavedownloader-suite-mobile-pc/"><u>[Updated] In 2024, FaceSaveDownloader Suite (Mobile, PC)</u></a></li>
+<li><a href="https://app-tips.techidaily.com/explore-the-best-2022-mind-mapping-solutions-and-software-as-ranked-by-zdnet-experts/"><u>Explore the Best 2022 Mind Mapping Solutions and Software as Ranked by ZDNet Experts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-sleep-inducing-series-analyzing-video-bedtime-stories/"><u>In 2024, The Sleep-Inducing Series Analyzing Video Bedtime Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/inside-look-best-practices-for-splitting-audiences-with-fb-live/"><u>Inside Look Best Practices for Splitting Audiences with FB Live</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/setting-up-your-xbox-one-with-an-external-hard-drive-a-step-by-step-guide/"><u>Setting Up Your Xbox One with an External Hard Drive: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

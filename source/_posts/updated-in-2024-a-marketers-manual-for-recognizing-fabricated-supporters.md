@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Marketer’s Manual for Recognizing Fabricated Supporters"
-date: 2024-11-18T16:45:54.523Z
-updated: 2024-11-20T22:43:20.782Z
+date: 2024-11-24T22:50:37.071Z
+updated: 2024-11-30T03:39:00.176Z
 tags:
   - ai video
   - ai facebook
@@ -44,11 +44,19 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Inspect comment
 
 You can gauge the quality of engagement from the comments on influencers’ content. The manual process shows fake engagement and bots influenced comments as genuine statements. The fake statement and emojis like ‘love it’, ‘beautiful’, and ‘cool pic’ are part of this. The fake followers on Facebook, indulge in these stuff, whereas loyal followers invest time in long genuine comments. The way people fake influence these days, but also detects it due to technology.
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
 
@@ -57,7 +65,7 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
@@ -65,26 +73,18 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 5: Use third party tools
 
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -95,7 +95,7 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -115,24 +115,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-android-freedom-the-most-popular-top-10-fb-video-extraction-tools-for-2024/"><u>[New] Android Freedom The Most Popular Top 10 FB Video Extraction Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-essential-steps-to-overcome-fb-video-transmission-failure-iosandroid/"><u>[New] Essential Steps to Overcome FB Video Transmission Failure (iOS/Android)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigating-facebooks-high-def-download-routes/"><u>[New] Navigating Facebook's High-Def Download Routes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-soundtrack-strategy-elevating-facebook-videos-with-music/"><u>[Updated] 2024 Approved The Soundtrack Strategy Elevating Facebook Videos with Music</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-fb-melody-cache-legally-for-2024/"><u>[Updated] FB Melody Cache (Legally) for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-enhanced-avi-player-ultimate-performance-pcmobile/"><u>[Updated] In 2024, Enhanced Avi Player Ultimate Performance PC/Mobile</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-high-paying-creator-status-on-youtube/"><u>[Updated] In 2024, High-Paying Creator Status on YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-downloads-at-hand-the-best-5-chrome-extensions-for-fb-videos/"><u>[Updated] In 2024, Seamless Downloads at Hand The Best 5 Chrome Extensions for FB Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-webscraper-pro-facebook-live-grabs/"><u>[Updated] In 2024, WebScraper Pro Facebook Live Grabs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-social-media-savvy-how-to-successfully-post-videos-on-fb/"><u>[Updated] Social Media Savvy How to Successfully Post Videos on FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-the-concealed-cause-for-non-video-alerts-on-fb/"><u>[Updated] Unveiling the Concealed Cause for Non-Video Alerts on FB</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/anatomy-of-hand-tracking-techniques-and-types/"><u>Anatomy Of Hand Tracking Techniques and Types</u></a></li>
-<li><a href="https://video-capture.techidaily.com/digital-directors-diary-an-in-depth-look-at-capturing-live-tv-on-windows-pc-for-2024/"><u>Digital Director's Diary An In-Depth Look at Capturing Live TV on Windows PC for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-t2x-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo T2x 5G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-start-problems-when-playing-csgo-w11/"><u>Navigating Start Problems When Playing CS:GO W11</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-application-failed-to-start-issue-guide-for-error-0xc000007b/"><u>Resolving 'Application Failed to Start' Issue – Guide for Error 0xC000007B</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/revealing-the-best-in-class-splitcams-videography-edge-for-2024/"><u>Revealing the Best in Class SplitCam's Videography Edge for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/the-animation-artists-toolkit-7-best-drawing-software-for-exceptional-results-for-2024/"><u>The Animation Artists Toolkit 7 Best Drawing Software for Exceptional Results for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/unleashing-power-plays-exclusive-insights-into-best-7-total-war-battles-for-2024/"><u>Unleashing Power Plays Exclusive Insights Into Best 7 Total War Battles for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-convert-and-share-simplified-mp3-to-youtube-process-3-phases/"><u>[New] 2024 Approved Convert & Share Simplified MP3 to YouTube Process [3 Phases]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ive-into-immersion-youtubes-best-vr-content/"><u>[New] Dive Into Immersion YouTube's Best VR Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-planning-to-performance-tips-for-wirecast-and-facebook-livestreaming-for-2024/"><u>[New] From Planning to Performance Tips for Wirecast & Facebook Livestreaming for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-10-steps-to-optimize-your-insta-storytelling-for-2024/"><u>[New] The Ultimate 10 Steps to Optimize Your Insta Storytelling for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-yearly-recording-runners-fb-live-sessions/"><u>[New] Yearly Recording Runners FB Live Sessions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fb-video-shape-study-overview/"><u>[Updated] 2024 Approved FB Video Shape Study Overview</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-top-2023s-top-browser-extensions-download-facebook-videos-effortlessly/"><u>[Updated] In 2024, Top 2023'S Top Browser Extensions Download Facebook Videos Effortlessly</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2023s-leading-facebook-lite-video-downloader-tools/"><u>2023'S Leading Facebook Lite Video Downloader Tools</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/becoming-an-insta-sleuth-strategies-to-find-out-whos-keeping-a-copy-of-your-post/"><u>Becoming an Insta-Sleuth: Strategies to Find Out Who's Keeping a Copy of Your Post</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/best-offer-top-business-cloud-solutions/"><u>Best Offer Top Business Cloud Solutions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/capture-fb-hd-footage-easily/"><u>Capture FB HD Footage Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-evaluation-the-samsung-galaxy-s10-defining-elite-status-among-smartphones/"><u>Critical Evaluation: The Samsung Galaxy S10 – Defining Elite Status Among Smartphones</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dragon-quest-xi-stability-hacked-resolving-game-crashes-effectively/"><u>Dragon Quest XI Stability Hacked - Resolving Game Crashes Effectively</u></a></li>
+<li><a href="https://discover-help.techidaily.com/effortless-editing-with-imovie-how-to-import-and-transform-wmv-videos-on-a-mac-computer/"><u>Effortless Editing with iMovie: How to Import and Transform WMV Videos on a Mac Computer</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-data-recovery-recover-lost-data-from-honor-x7b-by-fonelab-android-recover-data/"><u>Honor Data Recovery – recover lost data from Honor X7b</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-iphone-se-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your iPhone SE? Learn All 4 Methods | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-audiovisual-elements-in-eye-catching-fb-advertising/"><u>In 2024, Audiovisual Elements in Eye-Catching FB Advertising</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-social-media-hitmakers-top-10-music-video-recipes-for-fb/"><u>In 2024, Social Media Hitmakers - TOP 10 Music Video Recipes for FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-art-and-science-of-fb-video-ads-unveiling-20-crucial-steps/"><u>In 2024, The Art and Science of FB Video Ads Unveiling 20 Crucial Steps</u></a></li>
 </ul></div>
 

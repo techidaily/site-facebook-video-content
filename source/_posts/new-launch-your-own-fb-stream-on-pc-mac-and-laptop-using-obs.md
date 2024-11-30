@@ -1,7 +1,7 @@
 ---
 title: "[New] Launch Your Own FB Stream on PC, Mac & Laptop Using OBS"
-date: 2024-10-24T05:30:46.023Z
-updated: 2024-10-28T03:18:12.941Z
+date: 2024-11-28T17:49:37.383Z
+updated: 2024-11-29T23:57:40.526Z
 tags:
   - ai video
   - ai facebook
@@ -34,6 +34,10 @@ Here is the step by step guide to go live from PC to facebook with OBS
 * [Part3.Preview and Test your before go live](#part3)
 * [Part4.Video tutorial](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A. Setting the OBS Scenes
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
@@ -43,6 +47,10 @@ Step 1: Make your scenes perfectly ready before starting the actual streaming pr
 Step 2: Now you need to add sources to the scenes.
 
 ![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
@@ -56,6 +64,10 @@ Step 5: Once you have done settings for all sources then they must be adjusted o
 
 ![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
 ![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
@@ -68,30 +80,28 @@ Step 1: First of all you need to go to the settings.
 
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
 ![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
@@ -102,35 +112,19 @@ Step 6: Now come back to your OBS settings page and choose stream option. From l
 
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## C. Preview and Test your before go live
 
 Step 1: It is time to hit the button “Start Streaming”.
 
 ![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Now move back to your facebook page and then choose to preview.
 
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
@@ -138,25 +132,15 @@ Step 3: It is time to add your title as per preferences, make selection for your
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Video tutorial
 
@@ -187,15 +171,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-navigating-skypes-ecosystem-essential-free-and-paid-recording-methods-windowsmac-for-2024/"><u>[New] Navigating Skype's Ecosystem Essential Free and Paid Recording Methods (Windows/Mac) for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-fb-videos-to-mp3s-free-online-convert-2023/"><u>[Updated] In 2024, FB Videos to MP3s - Free Online Convert 2023</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-chrono-translocation-techniques/"><u>[Updated] Mastering Chrono-Translocation Techniques</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-the-potential-of-your-online-persona-on-facebook-for-2024/"><u>[Updated] Unlocking the Potential of Your Online Persona on Facebook for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-essential-guide-to-exploring-youtube-comments/"><u>2024 Approved The Essential Guide to Exploring YouTube Comments</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-zenbook-pro-duo-comprehensive-analysis-of-a-large-display-compromise-rich-portable-computer/"><u>Asus ZenBook Pro Duo - Comprehensive Analysis of a Large-Display, Compromise-Rich Portable Computer</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/best-artificer-of-prompts-the-leading-5-elearning-platforms-for-ai-strategizing/"><u>Best Artificer of Prompts: The Leading 5 eLearning Platforms for AI Strategizing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-break-the-chain-of-interruptions-on-facebook-lives/"><u>In 2024, Break the Chain of Interruptions on Facebook Lives</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-digital-darling-list-top-viewed-on-fb/"><u>In 2024, Digital Darling List Top Viewed on FB</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolved-how-to-ensure-your-discord-captures-in-game-sound/"><u>Resolved: How to Ensure Your Discord Captures In-Game Sound</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-crafting-engaging-instagram-reels-step-by-step/"><u>[New] Crafting Engaging Instagram Reels Step-by-Step</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-tips-for-enhancing-your-gopro-cinematic-vision/"><u>[New] Expert Tips for Enhancing Your GoPro Cinematic Vision</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-freefb-audio-treasures-collection/"><u>[New] FreeFB Audio Treasures Collection</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-recover-missing-social-media-icon-in-facebook-watch/"><u>[New] Recover Missing Social Media Icon in Facebook Watch</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-addressing-android-and-ios-issues-with-fb-messages-video-transmission/"><u>[Updated] 2024 Approved Addressing Android & iOS Issues with FB Messages Video Transmission</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-secrets-to-attractive-profile-videos/"><u>[Updated] 2024 Approved The Secrets to Attractive Profile Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-the-craft-of-youtubers-music-reaction-videos-essentials/"><u>[Updated] In 2024, Mastering the Craft of Youtubers Music Reaction Videos Essentials</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-10-kids-friendly-drones-for-new-flyers/"><u>[Updated] Top 10 Kids' Friendly Drones - For New Flyers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-top-20-anime-opener-hits/"><u>2024 Approved Exploring Top 20 Anime Opener Hits</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/converting-stored-content-into-real-time-livestreams-on-social-media/"><u>Converting Stored Content Into Real-Time Livestreams on Social Media</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ntling-youtube-ranks-factors-and-their-effects/"><u>Dismantling YouTube Ranks Factors and Their Effects</u></a></li>
+<li><a href="https://blog-min.techidaily.com/facile-conversion-des-videos-webm-en-fichiers-audio-wav-en-ligne-gratuit-avec-moovavi/"><u>Facile Conversion Des Vidéos WebM en Fichiers Audio WAV en Ligne Gratuit Avec Moovavi</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-best-hidden-downloaders-1-8-unveiled/"><u>In 2024, Best Hidden Downloaders - #1-8 Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-premium-9-clandestine-content-getters/"><u>In 2024, Premium 9 Clandestine Content Getters</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-render-your-social-media-footage/"><u>In 2024, Render Your Social Media Footage</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-generate-a-face-online-best-tools-and-resources-for-2024/"><u>Updated Generate a Face Online Best Tools and Resources for 2024</u></a></li>
 </ul></div>
 
