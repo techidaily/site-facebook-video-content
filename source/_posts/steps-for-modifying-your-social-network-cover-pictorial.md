@@ -1,7 +1,7 @@
 ---
 title: "Steps for Modifying Your Social Network Cover Pictorial"
-date: 2024-07-24T00:03:05.398Z
-updated: 2024-07-25T00:03:05.398Z
+date: 2024-12-06T07:00:10.953Z
+updated: 2024-12-08T10:49:39.742Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://www.lifewire.com/thmb/aF2Or3vEIE4OraMHaiFlw5dsdwo=/540x405/fi
 
 # How to Change Facebook Cover Photo
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -51,13 +48,6 @@ You might be aware of the fact that Facebook Cover photos have definite sizes an
 
 If your cover photo is not having the same dimensions then you may have to crop it. To do this, simply move to an editor tool like Photoshop and then import your cover photo over there. Now choose the crop tool and update its resolution as 315 pixels for height and 851 pixels for width. Once you are done with the desired editing then get your image saved to your device. Prefer the .jpg file format for Facebook covers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## How to Change Facebook Cover Photo?
 
 Are you going to upload a Facebook cover photo the first time? Don’t worry! We are here to assist you. Facebook is a popular social media site and it definitely provides interactive setting options. All that you need to do is click the “Choose Cover Photo” option on your profile and then move to the folder containing pictures. Select “Choose” when you get your desired selection and soon it will be updated. In case if you already have updated some cover photos and now wish to change it with a new one, then the steps below can help you to complete the process:
@@ -84,14 +74,19 @@ As soon as you have changed your cover photo with any of these methods as discus
 
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -128,6 +123,10 @@ You might be aware of the fact that Facebook Cover photos have definite sizes an
 
 If your cover photo is not having the same dimensions then you may have to crop it. To do this, simply move to an editor tool like Photoshop and then import your cover photo over there. Now choose the crop tool and update its resolution as 315 pixels for height and 851 pixels for width. Once you are done with the desired editing then get your image saved to your device. Prefer the .jpg file format for Facebook covers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Change Facebook Cover Photo?
 
 Are you going to upload a Facebook cover photo the first time? Don’t worry! We are here to assist you. Facebook is a popular social media site and it definitely provides interactive setting options. All that you need to do is click the “Choose Cover Photo” option on your profile and then move to the folder containing pictures. Select “Choose” when you get your desired selection and soon it will be updated. In case if you already have updated some cover photos and now wish to change it with a new one, then the steps below can help you to complete the process:
@@ -154,15 +153,16 @@ As soon as you have changed your cover photo with any of these methods as discus
 
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -187,17 +187,15 @@ The article below will help you to get detailed information about how Facebook C
 * [Part 4: Edit Facebook Cover Photo/Video with Versatile Video Editor](#part4)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What is Facebook Cover Photo?
 
 Some of the most important attractions of a Facebook profile use to be profile photo and cover photo. The cover photo use to be of larger size and it appears above your profile photo. In order to create a special impact on viewers, always prefer to update unique cover images for your Facebook profile and in case if you are running a business page then you have to stay more careful.
 
 [Learn more about How to Make your Facebook Profile Video More Attractive](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Facebook Cover Photo Size You Need to Know
 
 You might be aware of the fact that Facebook Cover photos have definite sizes and users can upload changes according to that settings only. The general dimensions for a Facebook cover photo use to be 315 pixels for height and almost 851 pixels for width.
@@ -205,8 +203,9 @@ You might be aware of the fact that Facebook Cover photos have definite sizes an
 If your cover photo is not having the same dimensions then you may have to crop it. To do this, simply move to an editor tool like Photoshop and then import your cover photo over there. Now choose the crop tool and update its resolution as 315 pixels for height and 851 pixels for width. Once you are done with the desired editing then get your image saved to your device. Prefer the .jpg file format for Facebook covers.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Change Facebook Cover Photo?
 
 Are you going to upload a Facebook cover photo the first time? Don’t worry! We are here to assist you. Facebook is a popular social media site and it definitely provides interactive setting options. All that you need to do is click the “Choose Cover Photo” option on your profile and then move to the folder containing pictures. Select “Choose” when you get your desired selection and soon it will be updated. In case if you already have updated some cover photos and now wish to change it with a new one, then the steps below can help you to complete the process:
@@ -234,17 +233,15 @@ As soon as you have changed your cover photo with any of these methods as discus
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -268,14 +265,15 @@ The article below will help you to get detailed information about how Facebook C
 * [Part 3: How to Change Facebook Cover Photo?](#part3)
 * [Part 4: Edit Facebook Cover Photo/Video with Versatile Video Editor](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is Facebook Cover Photo?
 
 Some of the most important attractions of a Facebook profile use to be profile photo and cover photo. The cover photo use to be of larger size and it appears above your profile photo. In order to create a special impact on viewers, always prefer to update unique cover images for your Facebook profile and in case if you are running a business page then you have to stay more careful.
 
 [Learn more about How to Make your Facebook Profile Video More Attractive](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Cover Photo Size You Need to Know
 
@@ -284,18 +282,20 @@ You might be aware of the fact that Facebook Cover photos have definite sizes an
 If your cover photo is not having the same dimensions then you may have to crop it. To do this, simply move to an editor tool like Photoshop and then import your cover photo over there. Now choose the crop tool and update its resolution as 315 pixels for height and 851 pixels for width. Once you are done with the desired editing then get your image saved to your device. Prefer the .jpg file format for Facebook covers.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Change Facebook Cover Photo?
 
 Are you going to upload a Facebook cover photo the first time? Don’t worry! We are here to assist you. Facebook is a popular social media site and it definitely provides interactive setting options. All that you need to do is click the “Choose Cover Photo” option on your profile and then move to the folder containing pictures. Select “Choose” when you get your desired selection and soon it will be updated. In case if you already have updated some cover photos and now wish to change it with a new one, then the steps below can help you to complete the process:
 
 **Step 1:** Go to your profile and move to the already updated cover photo. Here you will find the Update Cover Photo option out of four different choices: Choose from Photos, Upload Photo, Reposition, and Remove.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook-update-cover-photo](https://images.wondershare.com/filmora/article-images/facebook-update-cover-photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Now click the “Choose from My Photos” option to select a cover photo for your profile. This method can help you to select photos from your already uploaded Facebook photos.
 
@@ -313,23 +313,14 @@ It is also possible to select photos from any folder inside your computer or sma
 
 As soon as you have changed your cover photo with any of these methods as discussed above, it will soon appear in your timeline posts. In case if you want to remove it from the news feed, you can also make settings to remove the cover page change notification from the timeline. On the right-hand corner of your cover, you will find a pencil-like icon, click this one to hide your cover notification from the page.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -349,8 +340,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -359,7 +348,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-yuneec-breeze-4k-the-ultimate-uav-showcase/"><u>[Updated] Yuneec Breeze 4K - The Ultimate UAV Showcase</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-directvid-capture-kit-fb-version/"><u>2024 Approved DirectVid Capture Kit, FB Version</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-ideas-to-boost-the-impact-of-fb-video-campaigns/"><u>2024 Approved Ideas to Boost the Impact of FB Video Campaigns</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-virtuality-unveiled-evolution-of-escapism/"><u>2024 Approved Virtuality Unveiled Evolution of Escapism</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebooks-full-spectrum-maximizing-story-linking-for-2024/"><u>Facebook's Full Spectrum Maximizing Story Linking for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gemini-pro-vs-gptplusplus-best-ai-showdown/"><u>Gemini Pro Vs. GPT++: Best AI Showdown</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-breeze-through-your-latest-fb-watches-2023-edition/"><u>In 2024, Breeze Through Your Latest FB Watches 2023 Edition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-core-components-for-transformative-facebook-advertisements/"><u>In 2024, Core Components for Transformative Facebook Advertisements</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-samsung-galaxy-s23-tactical-edition-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Samsung Galaxy S23 Tactical Edition Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-guide-to-producing-quality-mobile-videos/"><u>In 2024, Step-by-Step Guide to Producing Quality Mobile Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-top-tier-external-ssds-for-elevated-xbox-use/"><u>In 2024, Top-Tier External SSDs for Elevated Xbox Use</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-tecno-camon-20-premier-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Tecno Camon 20 Premier 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/instructions-for-deactivating-sound-quality-boosting-functions-on-windows-10/"><u>Instructions for Deactivating Sound Quality Boosting Functions on Windows 10</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-facebook-bio-writing-essential-tactics-for-success-for-2024/"><u>Mastering Facebook Bio Writing Essential Tactics for Success for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-the-art-of-watermarking-on-facebook/"><u>Mastering the Art of Watermarking on Facebook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/switch-to-picture-in-picture-for-youtube-videos-on-iphones/"><u>Switch to Picture-in-Picture for YouTube Videos on iPhones</u></a></li>
+</ul></div>
 

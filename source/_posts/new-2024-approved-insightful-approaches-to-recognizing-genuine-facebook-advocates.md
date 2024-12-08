@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Insightful Approaches to Recognizing Genuine Facebook Advocates\""
-date: 2024-11-26T00:58:44.734Z
-updated: 2024-11-29T23:28:18.657Z
+date: 2024-12-03T01:24:33.323Z
+updated: 2024-12-08T10:43:31.771Z
 tags:
   - ai video
   - ai facebook
@@ -32,10 +32,6 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -54,10 +50,6 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
@@ -65,7 +57,11 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
@@ -73,7 +69,7 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
@@ -81,7 +77,7 @@ Fake followers on Facebook can be detected if all of a sudden follower count inc
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -89,6 +85,10 @@ For tracking fake followers on Facebook, you need to know their location. Knowin
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -115,16 +115,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-advanced-methods-for-recording-in-adobe-presenter/"><u>[New] 2024 Approved Advanced Methods for Recording in Adobe Presenter</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-instant-hd-fb-content-downloader-for-2024/"><u>[New] Instant HD FB Content Downloader for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-realizing-your-potential-in-360-video-streams-for-social-media/"><u>[New] Realizing Your Potential in 360 Video Streams for Social Media</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-comprehensive-guide-to-youtube-video-captioning/"><u>[Updated] Comprehensive Guide to YouTube Video Captioning</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-enhancing-engagement-top-20-best-practices-for-video-ads-on-facebook-for-2024/"><u>[Updated] Enhancing Engagement Top 20 Best Practices for Video Ads on Facebook for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-expert-strategies-for-choosing-ideal-youtube-banner-dimensions/"><u>[Updated] Expert Strategies for Choosing Ideal YouTube Banner Dimensions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-optimal-budget-free-fb-videopicture-engineer/"><u>[Updated] In 2024, Optimal Budget-Free FB Video/Picture Engineer</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-constructing-youtube-video-content-that-resonates-with-viewers/"><u>2024 Approved Constructing YouTube Video Content That Resonates with Viewers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-view-access-for-groups-shared-stuff/"><u>In 2024, Mastering View Access for Group's Shared Stuff</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mp4-handbrake/"><u>MP4ファイルの変換手順 - HandBrake使い方</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/whats-your-youtube-revenue-breakdown-per-branded-playlist-for-2024/"><u>What's Your Youtube Revenue Breakdown per Branded Playlist for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-enigmatic-functionality-of-the-blue-indicator-in-fb-messaging/"><u>[New] 2024 Approved The Enigmatic Functionality of the Blue Indicator in FB Messaging</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-from-novices-to-vectors-grasping-the-basics-and-choices-for-2024/"><u>[New] From Novices to Vectors Grasping the Basics and Choices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-exploring-premier-applications-for-changing-vtuber-sounds/"><u>[New] In 2024, Exploring Premier Applications for Changing Vtuber Sounds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-ultimate-guide-to-creating-engaging-facebook-stories/"><u>[Updated] 2024 Approved The Ultimate Guide to Creating Engaging Facebook Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-enhancing-engagement-streaming-historical-video-events-on-facebook-for-2024/"><u>[Updated] Enhancing Engagement Streaming Historical Video Events on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-pro-tips-for-rapidly-creating-effective-subtitles-on-fb/"><u>[Updated] Pro Tips for Rapidly Creating Effective Subtitles on FB</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-oppo-reno-10-proplus-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo Reno 10 Pro+ 5G Fingerprint Lock</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/como-hacer-que-tus-videos-en-formato-mkv-sean-mas-pequenos-sin-costo-las-5-mejores-tecnicas/"><u>Cómo Hacer Que Tus Videos en Formato MKV Sean Más Pequeños Sin Costo: Las 5 Mejores Técnicas</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enriched-video-presentation-implementing-lc-and-bb-on-social-platforms/"><u>Enriched Video Presentation Implementing LC and BB on Social Platforms</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-master-the-art-of-professional-webcam-filming/"><u>In 2024, Master the Art of Professional Webcam Filming</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-observers-lens-reportage/"><u>In 2024, Observer's Lens Reportage</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-guide-to-immerse-users-in-soundfilters-of-windows-10-photos/"><u>In 2024, Step-by-Step Guide to Immerse Users in Sound/Filters of Windows 10 Photos</u></a></li>
 </ul></div>
 

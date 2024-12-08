@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Effortlessly Traverse Facebook’s Past Posts\""
-date: 2024-11-22T16:57:26.310Z
-updated: 2024-11-30T02:07:01.094Z
+date: 2024-12-07T03:07:05.747Z
+updated: 2024-12-07T18:40:01.788Z
 tags:
   - ai video
   - ai facebook
@@ -43,6 +43,10 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -58,16 +62,12 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -81,21 +81,21 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -144,7 +144,7 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -178,19 +178,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-audiophiles-guide-to-the-premier-8-4k-blu-rays/"><u>[New] Audiophile's Guide to the Premier 8 4K Blu-Rays</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-elite-5-screen-grab-for-fb-movies-for-2024/"><u>[New] Elite 5 Screen Grab for FB Movies for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unlock-the-secret-to-exceptional-time-lapse-videos-on-galaxy/"><u>[New] Unlock the Secret to Exceptional Time-Lapse Videos on Galaxy</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unlocking-video-content-secure-facebook-live-recordings/"><u>[New] Unlocking Video Content Secure Facebook Live Recordings</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-brief-but-bold-short-videos-on-fb/"><u>[Updated] In 2024, Brief but Bold Short Videos on FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-skyrocketing-sales-with-high-roi-in-dynamic-fb-ad-creations/"><u>2024 Approved Skyrocketing Sales with High ROI in Dynamic FB Ad Creations</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/amazons-persuasive-power-how-i-found-myself-unplannedly-buying-an-apple-watch/"><u>Amazon's Persuasive Power: How I Found Myself Unplannedly Buying an Apple Watch</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/downloading-samfw-frp-tool-30-for-oppo-f25-pro-5g-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Oppo F25 Pro 5G</u></a></li>
-<li><a href="https://app-tips.techidaily.com/how-hackers-are-capitalizing-on-the-pandemic-a-deep-dive-into-attacks-against-us-universities-amidst-omicron-concerns-reported-by-zdnet/"><u>How Hackers Are Capitalizing on the Pandemic: A Deep Dive Into Attacks Against US Universities Amidst Omicron Concerns | Reported by ZDNET</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-xiaomi-civi-3-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Xiaomi Civi 3</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-exploring-how-youtube-picks-most-engaging-comments/"><u>In 2024, Exploring How YouTube Picks Most Engaging Comments</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/navigating-to-past-facebook-stories-a-step-by-step-mobile-and-laptop-guide-for-2024/"><u>Navigating to Past Facebook Stories A Step-by-Step Mobile & Laptop Guide for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/1722949941822-revolt-your-ride-experience-with-scosches-dual-motorcycle-review-a-blend-of-low-profile-and-potent-power/"><u>Revolt Your Ride Experience with Scosche's Dual Motorcycle Review - A Blend of Low Profile & Potent Power</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-vivo-v30-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Vivo V30 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-improve-timestamp-accuracy-for-social-media-posts/"><u>[New] 2024 Approved Improve Timestamp Accuracy for Social Media Posts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-seamless-integration-of-fb-and-whatsapp-for-video-sharing/"><u>[New] Seamless Integration of FB & WhatsApp for Video Sharing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-vidgrabber-mobilepc-for-fb-streams-for-2024/"><u>[New] VidGrabber Mobile/PC for Fb Streams for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-capturing-the-moment-a-practical-guide-to-google-meetings-screen-recordings/"><u>[Updated] 2024 Approved Capturing the Moment A Practical Guide to GooGle Meetings' Screen Recordings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-download-and-keep-your-favorite-fb-stories-for-2024/"><u>[Updated] How to Download and Keep Your Favorite FB Stories for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-streaming-selection-saga-choose-between-engaging-podcasts-and-youtube-channels/"><u>2024 Approved Streaming Selection Saga Choose Between Engaging Podcasts and YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-role-and-significance-of-blue-icons-in-fb-chats/"><u>2024 Approved The Role and Significance of Blue Icons in FB Chats</u></a></li>
+<li><a href="https://win-blog.techidaily.com/easy-fix-for-common-discord-js-error-messages/"><u>Easy Fix for Common Discord JS Error Messages</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/forgot-iphone-15-pro-max-password-here-are-the-best-solutions-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Forgot iPhone 15 Pro Max Password? – Here are the Best Solutions | Stellar</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-engaging-storytelling-podcasts-with-applee-devices/"><u>In 2024, Crafting Engaging Storytelling Podcasts with Apple'e Devices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-samsung-galaxy-xcover-7-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Samsung Galaxy XCover 7 Phone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-scout-audible-assets-in-gaming-worlds/"><u>In 2024, Scout Audible Assets in Gaming Worlds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/increase-fb-engagement-and-sales-the-15-most-effective-analyzers/"><u>Increase FB Engagement & Sales The 15 Most Effective Analyzers</u></a></li>
 </ul></div>
 
