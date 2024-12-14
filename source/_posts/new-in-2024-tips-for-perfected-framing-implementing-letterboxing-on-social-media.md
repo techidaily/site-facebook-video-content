@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Tips for Perfected Framing  Implementing Letterboxing on Social Media\""
-date: 2024-12-01T06:32:13.886Z
-updated: 2024-12-08T01:34:03.638Z
+date: 2024-12-08T11:55:00.992Z
+updated: 2024-12-13T23:04:46.268Z
 tags:
   - ai video
   - ai facebook
@@ -34,7 +34,7 @@ First let us start with the question, what is a letterbox for a Facebook video?
 Want to have a try? Come on!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get Started with Filmora
@@ -49,6 +49,10 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
@@ -62,7 +66,7 @@ This method is suitable for users whose source videos are not in square format (
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
@@ -74,7 +78,7 @@ And you can also go to the **Elements** tab, and add some creative elements such
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
@@ -99,23 +103,19 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
@@ -127,7 +127,7 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -153,24 +153,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elite-4-covert-content-retrievers/"><u>[New] 2024 Approved Elite 4 Covert Content Retrievers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-to-setup-and-evaluate-facebook-instream-ads/"><u>[New] 2024 Approved How to Setup and Evaluate Facebook Instream Ads?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximizing-gopro-content-integration-with-social-networks/"><u>[New] 2024 Approved Maximizing GoPro Content Integration with Social Networks</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-liberate-your-video-files-free-online-tools-for-facebook-videos-in-1080phd/"><u>[New] In 2024, Liberate Your Video Files - Free Online Tools for Facebook Videos in 1080P/HD</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-ultimate-list-facebooks-top-10-vids-for-2024/"><u>[New] The Ultimate List Facebook's Top 10 Vids for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-the-full-potential-of-igtv-a-step-by-step-guide/"><u>[New] Unlocking the Full Potential of IGTV A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-azure-profile-snapshot-analysis-resolution-codec-timeframe/"><u>[Updated] AZURE Profile Snapshot Analysis Resolution, Codec, Timeframe</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-leading-screenshot-and-record-tools-for-firefox/"><u>[Updated] Leading Screenshot & Record Tools for Firefox</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastering-video-production-a-compreey-guide-to-powerdirector/"><u>[Updated] Mastering Video Production A Compreey Guide to PowerDirector</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>[Updated] Mobile Filmmaking Tips Designing Engaging YouTubes Thumbnails</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/expert-fb-media-downloader-enhanced-firefox-support-for-2024/"><u>Expert FB Media Downloader Enhanced FireFox Support for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebook-overhaul-the-2023-updates-explained/"><u>Facebook Overhaul The 2023 Updates Explained</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-missing-desktop-icons-on-windows-10-a-comprehensive-guide/"><u>Fixing Missing Desktop Icons on Windows 10: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/from-zero-to-hero-how-to-generate-fb-trends/"><u>From Zero to Hero How to Generate Fb Trends</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-high-quality-virtual-console-imitation-software-for-pc/"><u>In 2024, High-Quality Virtual Console Imitation Software for PC</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-infinix-smart-8-hd-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Infinix Smart 8 HD Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-why-isnt-your-dell-keyboard-responding/"><u>Troubleshooting Steps: Why Isn't Your Dell Keyboard Responding?</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-oppo-find-x6-pro-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Oppo Find X6 Pro.</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/updated-dell-wi-fi-connectivity-software-secure-your-download-now/"><u>Updated Dell Wi-Fi Connectivity Software: Secure Your Download Now!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2023-how-to-download-facebook-status-videos-for-2024/"><u>[New] 2023 | How to Download Facebook Status Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exclusive-guide-save-high-res-fb-video-for-2024/"><u>[New] Exclusive Guide Save High-Res FB Video for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-cutting-edge-computers-optimal-machines-for-media-creation/"><u>[New] In 2024, Cutting-Edge Computers Optimal Machines for Media Creation</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-tech-tips-how-to-get-fcp-without-money/"><u>[New] In 2024, Tech Tips How to Get FCP Without Money</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-no-more-hassle-record-games-like-pros/"><u>[New] No More Hassle Record Games Like Pros</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-high-quality-hd-downloads-5-best-facebook-extensions/"><u>[Updated] 2024 Approved High-Quality HD Downloads 5 Best Facebook Extensions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigate-effortlessly-the-best-5-chrome-addons-for-downloading-fb-videos-for-2024/"><u>[Updated] Navigate Effortlessly The Best 5 Chrome Addons for Downloading FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-stay-up-to-date-with-facebooks-latest-watched-content/"><u>2024 Approved Stay Up-to-Date with Facebook's Latest Watched Content</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Samsung Galaxy Z Flip 5? | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/quick-fix-for-stuttering-screens/"><u>Quick Fix for Stuttering Screens</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-gratis-vector-design-and-illustration-sites-online/"><u>Top Gratis Vector Design & Illustration Sites Online</u></a></li>
 </ul></div>
 

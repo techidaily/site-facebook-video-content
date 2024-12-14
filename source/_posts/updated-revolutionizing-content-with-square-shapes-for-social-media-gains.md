@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Revolutionizing Content with Square Shapes for Social Media Gains"
-date: 2024-12-06T22:03:45.068Z
-updated: 2024-12-08T01:44:38.994Z
+date: 2024-12-08T02:28:54.187Z
+updated: 2024-12-13T21:23:13.107Z
 tags:
   - ai video
   - ai facebook
@@ -76,7 +76,7 @@ First of all, you need to install the software on your Windows/Mac computer and 
 ![tupi](https://images.wondershare.com/filmora/article-images/import-video-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Crop the video**
@@ -86,7 +86,7 @@ You got to right click on the selected video and then select ‘Crop & Zoom’ f
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Open the edit panel**
@@ -101,14 +101,10 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to create square videos by Adobe Premiere
@@ -123,15 +119,15 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3：Export**
 
@@ -144,6 +140,10 @@ From the above article, we are sure that square videos on Facebook are significa
 **You may also like:** [How to Schedule a Post on Your Facebook: The Ultimate Guide >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -162,17 +162,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-brief-vignettes-facebooks-fast-lane/"><u>[New] In 2024, Brief Vignettes Facebook’s Fast Lane</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-premier-fifa-vids-data-visualized-for-social-media/"><u>[New] In 2024, Premier FIFA Vids Data Visualized for Social Media</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-enhancing-clarity-in-low-quality-facebook-streams/"><u>[Updated] 2024 Approved Enhancing Clarity in Low-Quality Facebook Streams</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-advanced-6-private-film-repositories/"><u>[Updated] In 2024, Advanced 6 Private Film Repositories</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-smart-picks-top-free-online-recorder-software-for-2024/"><u>[Updated] Smart Picks Top Free Online Recorder Software for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elite-4-covert-content-retrievers/"><u>Elite 4 Covert Content Retrievers</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/full-guide-to-unlock-your-nokia-105-classic-by-drfone-android/"><u>Full Guide to Unlock Your Nokia 105 Classic</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-logitech-usb-camera-ready-with-free-windows-drivers/"><u>Get Your Logitech USB Camera Ready with Free Windows Drivers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/high-definition-clash-prodigious-sj6-versus-innovative-yi-4k/"><u>High Definition Clash Prodigious SJ6 Versus Innovative Yi 4K</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/interpreting-the-functionality-behind-facebooks-blue-video-icon-for-2024/"><u>Interpreting the Functionality Behind Facebook's Blue Video Icon for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-pulse-drive-interest-in-your-fb-congregation/"><u>Social Pulse: Drive Interest in Your Fb Congregation</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-troubleshooting-to-launch-tekken-ebitron-8-without-errors-on-pc/"><u>Step-by-Step Troubleshooting to Launch Tekken Ebitron 8 Without Errors on PC</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-all-access-fb-melodic-streaming-for-2024/"><u>[New] All-Access FB Melodic Streaming for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-innovating-your-sims-4-experience-through-recording/"><u>[New] Innovating Your Sims 4 Experience Through Recording</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-securing-your-gameplay-on-windows-10-the-5-essentials/"><u>[New] Securing Your Gameplay on Windows 10 The 5 Essentials</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-why-is-my-social-media-not-showing-suggested-youtube-videos-for-2024/"><u>[New] Why Is My Social Media Not Showing Suggested YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-master-10-social-media-movies/"><u>[Updated] 2024 Approved Master 10 Social-Media Movies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-crafting-the-rhythm-adding-beats-and-melodies-to-your-fb-vids/"><u>[Updated] Crafting the Rhythm Adding Beats and Melodies to Your FB Vids</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-free-mindset-tunes-no-copyrights/"><u>[Updated] Free Mindset Tunes - No Copyrights</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-make-your-mark-active-living-on-facebook/"><u>[Updated] How to Make Your Mark Active Living on Facebook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-harnessing-the-full-potential-of-windows-11s-auto-hdr-feature/"><u>[Updated] In 2024, Harnessing the Full Potential of Windows 11'S Auto HDR Feature</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-watermarks-safeguard-your-digital-pictures/"><u>[Updated] In 2024, How Watermarks Safeguard Your Digital Pictures</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-utilizing-fb-features-for-broadcasting-historical-video-footage/"><u>[Updated] In 2024, Utilizing FB Features for Broadcasting Historical Video Footage</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-music-video-madness-top-10-on-social-sphere/"><u>2024 Approved Music Video Madness Top 10 on Social Sphere</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-to-recovering-or-replacing-missing-winhttpdll-files-on-windows-pcs/"><u>Comprehensive Guide to Recovering or Replacing Missing Winhttp.dll Files on Windows PCs</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/easy-access-free-dreamy-slumber-nighttime-videos-now-available-for-sharing-on-social-platforms/"><u>Easy Access: Free 'Dreamy Slumber' Nighttime Videos, Now Available for Sharing on Social Platforms!</u></a></li>
+<li><a href="https://win-premium.techidaily.com/identifying-and-fixing-ram-problems-in-your-pc-with-windows-techguide-by-yl/"><u>Identifying and Fixing RAM Problems in Your PC with Windows - TechGuide by YL</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-transcribing-chats-efficient-techniques-for-fb-live-recordings/"><u>In 2024, Transcribing Chats Efficient Techniques for FB Live Recordings</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-whatsapp-image-zoom-issues-a-detailed-guide/"><u>Overcome WhatsApp Image Zoom Issues: A Detailed Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-notch-voice-alteration-for-valorant-players-available-at-zero-cost-for-2024/"><u>Top Notch Voice Alteration for Valorant Players - Available at Zero Cost for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-ranking-2024-travelers-vpn-selection-comprehensive-reviews-by-tech-experts-zdnet/"><u>Top-Ranking 2024 Traveler's VPN Selection: Comprehensive Reviews by Tech Experts - ZDNet</u></a></li>
 </ul></div>
 

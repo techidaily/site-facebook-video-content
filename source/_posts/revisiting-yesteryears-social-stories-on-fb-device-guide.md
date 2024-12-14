@@ -1,7 +1,7 @@
 ---
 title: "\"Revisiting Yesteryear's Social Stories on FB  Device Guide\""
-date: 2024-12-04T00:03:11.848Z
-updated: 2024-12-08T11:12:10.454Z
+date: 2024-12-11T05:11:47.173Z
+updated: 2024-12-14T07:04:10.149Z
 tags:
   - ai video
   - ai facebook
@@ -38,7 +38,7 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
@@ -74,7 +74,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -96,7 +96,7 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -116,7 +116,7 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -142,7 +142,7 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -160,17 +160,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-crafting-captivating-captions-elevate-your-pages-popularity/"><u>[New] Crafting Captivating Captions Elevate Your Page's Popularity</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-secrets-to-massive-channel-subscription-growth/"><u>[New] In 2024, Secrets to Massive Channel Subscription Growth</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-vantage-point-critique/"><u>[Updated] 2024 Approved Vantage Point Critique</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tactics-for-success-amidst-facebooks-algorithm-evolution/"><u>[Updated] In 2024, Tactics for Success Amidst Facebook’s Algorithm Evolution</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-troubleshooting-streaming-issues-on-mac-with-mixer/"><u>[Updated] Troubleshooting Streaming Issues on Mac with Mixer</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fb-cover-video-excellence-strategies-for-leadership-in-social-media/"><u>2024 Approved FB Cover Video Excellence Strategies for Leadership in Social Media</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-sound-issues-on-windows-10-a-quick-guide/"><u>How to Resolve Sound Issues On Windows 10: A Quick Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-amplify-your-message-facebook-engagement-secrets/"><u>In 2024, Amplify Your Message Facebook Engagement Secrets</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-top-10-trends-in-effective-podcast-naming/"><u>In 2024, Top 10 Trends in Effective Podcast Naming</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726029282509-mp4/"><u>MP4ビデオからオーディオへの完全変換ガイド</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/unlocking-the-best-vr-experience-in-drone-aerial-sports-for-2024/"><u>Unlocking the Best VR Experience in Drone Aerial Sports for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722975275337-windows-users-heres-how-to-set-up-your-epson-wf-265cuickly-download-the-right-drivers-today/"><u>Windows Users, Here's How to Set Up Your Epson WF-265cuickly - Download the Right Drivers Today</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-nature-backdrop-sketches-essential-downloads-for-videographers/"><u>[New] Nature Backdrop Sketches Essential Downloads for Videographers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-retrieving-your-liked-videos-from-facebook/"><u>[New] Retrieving Your Liked Videos From Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-twitch-broadcasting-made-easy-on-social-media/"><u>[New] Twitch Broadcasting Made Easy on Social Media</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-tips-to-improve-profile-cover-videos/"><u>[Updated] 2024 Approved Tips to Improve Profile Cover Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-top-strategies-to-shoot-a-flawless-green-screen-scene/"><u>[Updated] 2024 Approved Top Strategies to Shoot a Flawless Green Screen Scene</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-comprehensive-analysis-of-how-to-speed-up-audio-files-on-spotify-safely/"><u>[Updated] A Comprehensive Analysis of How to Speed Up Audio Files on Spotify Safely</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-videos-vertical-or-horizontal/"><u>2024 Approved Facebook Videos; Vertical or Horizontal?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/from-struggle-to-success-a-collection-of-best-practices-for-fb-profiles/"><u>From Struggle to Success A Collection of Best Practices for FB Profiles</u></a></li>
+<li><a href="https://games-able.techidaily.com/surprise-champion-of-gaming-lairs-why-the-samsung-projector-deserves-your-attention-according-to-zdnet/"><u>Surprise Champion of Gaming Lairs: Why the Samsung Projector Deserves Your Attention, According to ZDNet</u></a></li>
+<li><a href="https://article-files.techidaily.com/take-control-of-your-tiktok-videos-learn-numeric-editing-techniques/"><u>Take Control of Your TikTok Videos Learn Numeric Editing Techniques</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tutto-quello-che-ce-da-sapere-sulla-produzione-di-effetti-visivi-impegnativi-su-video-utilizzando-applicazioni-e-computer/"><u>Tutto Quello Che C'è Da Sapere Sulla Produzione Di Effetti Visivi Impegnativi Su Video Utilizzando Applicazioni E Computer</u></a></li>
+<li><a href="https://win-bits.techidaily.com/understanding-the-reasons-behind-your-pcs-intermittent-cooling-a-deep-dive-insights-by-yl-software/"><u>Understanding the Reasons Behind Your PC's Intermittent Cooling: A Deep Dive - Insights by YL Software</u></a></li>
 </ul></div>
 

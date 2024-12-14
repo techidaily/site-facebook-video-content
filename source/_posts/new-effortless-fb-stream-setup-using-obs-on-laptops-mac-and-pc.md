@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Effortless FB Stream Setup  Using OBS on Laptops, Mac & PC\""
-date: 2024-12-06T18:03:46.805Z
-updated: 2024-12-08T05:01:11.950Z
+date: 2024-12-13T12:53:20.993Z
+updated: 2024-12-14T03:49:28.207Z
 tags:
   - ai video
   - ai facebook
@@ -34,10 +34,6 @@ Here is the step by step guide to go live from PC to facebook with OBS
 * [Part3.Preview and Test your before go live](#part3)
 * [Part4.Video tutorial](#part4)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A. Setting the OBS Scenes
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
@@ -45,7 +41,7 @@ Step 1: Make your scenes perfectly ready before starting the actual streaming pr
 ![  scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Now you need to add sources to the scenes.
@@ -55,6 +51,10 @@ Step 2: Now you need to add sources to the scenes.
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
 ![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 4: Prefer to use default settings for source and then press OK.
 
@@ -67,6 +67,14 @@ Step 5: Once you have done settings for all sources then they must be adjusted o
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
 ![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## B. Stream setting according to Facebook
 
@@ -81,7 +89,7 @@ Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
@@ -89,7 +97,7 @@ Step 3: Make settings for resolution as well as FPS. The desired maximum resolut
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
@@ -100,20 +108,12 @@ Step 5: It is time to move to the ‘create live video’ page. You have to copy
 
 ![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## C. Preview and Test your before go live
@@ -126,6 +126,10 @@ Step 2: Now move back to your facebook page and then choose to preview.
 
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
 ![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
@@ -135,10 +139,6 @@ Step 3: It is time to add your title as per preferences, make selection for your
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 
@@ -171,22 +171,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-empowering-video-content-with-advanced-aiseesoft-tech-for-2024/"><u>[New] Empowering Video Content with Advanced Aiseesoft Tech for 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-savory-selections-international-foodie-frenzy-on-tiktok/"><u>[New] In 2024, Savory Selections International Foodie Frenzy on TikTok</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-seamless-media-exchange-transferring-facebook-content-to-whatsapp/"><u>[New] In 2024, Seamless Media Exchange Transferring Facebook Content to WhatsApp</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-troubleshooting-why-arent-your-recommended-fb-videos-displayed/"><u>[New] In 2024, Troubleshooting Why Aren't Your Recommended FB Videos Displayed?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-djs-guide-to-elevating-visual-narratives-with-soundtracks-fb-for-2024/"><u>[New] The DJ's Guide to Elevating Visual Narratives with Soundtracks (FB) for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-enhancing-engagement-onestream-streaming-best-practices/"><u>[Updated] 2024 Approved Enhancing Engagement OneStream Streaming Best Practices</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-instantly-post-videos-on-twitter-using-phones-skipping-retweets/"><u>[Updated] 2024 Approved Instantly Post Videos on Twitter Using Phones, Skipping Retweets</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-browse-backwards-a-guide-to-facebook-archives-for-2024/"><u>[Updated] Browse Backwards A Guide to Facebook Archives for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-direct-performance-views-on-younow/"><u>[Updated] In 2024, Direct Performance Views on YouNow</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-ensuring-smooth-transition-livestreaming-old-videos-on-fb/"><u>[Updated] In 2024, Ensuring Smooth Transition Livestreaming Old Videos on FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-master-10-social-media-movies-for-2024/"><u>[Updated] Master 10 Social-Media Movies for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-directly-viewing-facebook-videos-on-your-apple-tv-setup/"><u>2024 Approved Directly Viewing Facebook Videos on Your Apple TV Setup</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-expert-analysis-of-srt-unpacking-its-significance/"><u>2024 Approved Expert Analysis of SRT Unpacking Its Significance</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/broadcasting-on-demand-transferring-fb-videos-to-whatsapp-groups-for-2024/"><u>Broadcasting on Demand Transferring FB Videos to WhatsApp Groups for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/complete-walkthrough-for-transferring-a-digital-steam-game-token/"><u>Complete Walkthrough for Transferring a Digital Steam Game Token</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-safely-move-photos-from-your-pc-to-iphone-without-using-itunes-or-losing-data/"><u>How to Safely Move Photos From Your PC to iPhone Without Using iTunes or Losing Data</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/what-does-jailbreaking-apple-iphone-x-i-do-get-answers-here-drfone-by-drfone-ios/"><u>What Does Jailbreaking Apple iPhone X i Do? Get Answers here | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-high-quality-video-transfer-from-fb-to-mp4-no-cost-online-method/"><u>[New] In 2024, High-Quality Video Transfer From FB to MP4 – No Cost Online Method</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-the-landscape-a-guide-to-using-hashtags-on-facebook-for-2024/"><u>[New] Navigating the Landscape A Guide to Using Hashtags on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-rapidly-finding-friends-on-facebooks-network-for-2024/"><u>[New] Rapidly Finding Friends on Facebook's Network for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-resolve-vanished-watch-video-icon-issue-2023/"><u>[New] Resolve Vanished Watch Video Icon Issue, 2023</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-ultimate-guide-to-filming-live-scenes-for-2024/"><u>[New] Ultimate Guide to Filming Live Scenes for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unlocking-access-to-high-definition-facebook-videos/"><u>[Updated] 2024 Approved Unlocking Access to High-Definition Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-a-step-by-step-pathway-to-messaging-media-download/"><u>[Updated] In 2024, A Step-by-Step Pathway to Messaging Media Download</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-restore-original-sound-in-tweet-video-links/"><u>[Updated] In 2024, Restore Original Sound in Tweet Video Links</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-art-of-assembly-crafting-your-personalized-4k-video-editor-pc/"><u>[Updated] In 2024, The Art of Assembly Crafting Your Personalized 4K Video Editor PC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-utilizing-volume-decrease-effects-within-audacity-for-2024/"><u>[Updated] Utilizing Volume Decrease Effects Within Audacity for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-capture-every-word-4-tips-for-fb-video-transcripts/"><u>2024 Approved Capture Every Word 4 Tips for FB Video Transcripts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-clearing-up-audio-issues-in-half-volume-facebook-content/"><u>2024 Approved Clearing Up Audio Issues in Half-Volume Facebook Content</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-quiet-youtube-bgplay-for-iphone-and-android-for-2024/"><u>Enable Quiet YouTube BGPlay for iPhone & Android for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/how-to-effortlessly-add-realistic-motion-blur-in-ps-for-2024/"><u>How to Effortlessly Add Realistic Motion Blur in PS for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-complete-guide-navigating-google-podcast-app/"><u>In 2024, Complete Guide Navigating Google Podcast App</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-lava-blaze-2-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Lava Blaze 2 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unlocking-your-fb-watchlist-access-liked-movies-and-shows/"><u>In 2024, Unlocking Your FB Watchlist Access Liked Movies & Shows</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/quick-fixes-enhancing-your-snaps-with-snapchat-edits-for-2024/"><u>Quick Fixes Enhancing Your Snaps with Snapchat Edits for 2024</u></a></li>
 </ul></div>
 
