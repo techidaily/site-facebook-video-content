@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Elite 5  Facebook's Novel Innovations Spotlighted for 2024\""
-date: 2024-12-09T17:23:14.826Z
-updated: 2024-12-14T07:44:09.652Z
+date: 2024-12-18T11:13:12.085Z
+updated: 2024-12-23T10:50:31.537Z
 tags:
   - ai video
   - ai facebook
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Messenger Day – The Snapchat Way
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Facebook Live
@@ -66,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -103,15 +103,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevate-your-video-game-on-instagram-with-right-dimensions/"><u>[New] 2024 Approved Elevate Your Video Game on Instagram with Right Dimensions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-social-searchers-guide-fb-profiles-made-easy/"><u>[New] In 2024, The Social Searcher's Guide FB Profiles Made Easy</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unleash-clean-visuals-step-by-step-guide-to-backdrop-erasure/"><u>[New] Unleash Clean Visuals Step-By-Step Guide to Backdrop Erasure</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-determining-vertical-or-horizontal-video-posts-on-fb/"><u>2024 Approved Determining Vertical or Horizontal Video Posts on FB</u></a></li>
-<li><a href="https://common-error.techidaily.com/addressing-and-solving-website-cant-be-found-errors-in-chrome/"><u>Addressing and Solving 'Website Can't Be Found' Errors in Chrome</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-excellence-in-dialogue-and-plot-hub/"><u>In 2024, Excellence in Dialogue & Plot Hub</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/resolving-social-media-puzzle-zippy-fb-videos-not-in-view/"><u>Resolving Social Media Puzzle Zippy FB Videos Not in View</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-vanish-your-searched-items-from-facebook/"><u>Steps to Vanish Your Searched Items From Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unlocking-facebooks-secrets-an-introductory-guide/"><u>Unlocking Facebook's Secrets An Introductory Guide</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/1728493466930-windows-1011-ssd/"><u>Windows 10/11介绍 - SSD转换：如何将硬盘外接到新驱动器上</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-customize-with-confidence-google-pixel-tunes/"><u>[New] 2024 Approved Customize with Confidence Google Pixel Tunes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>[New] 2024 Approved Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-streamlining-call-logs-the-4-step-guide-for-fb-calls/"><u>[New] In 2024, Streamlining Call Logs The 4-Step Guide for FB Calls</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-quick-and-easy-snapchat-image-manipulation-techniques-for-2024/"><u>[New] Quick and Easy Snapchat Image Manipulation Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-prime-video-picks-the-extreme-favorites/"><u>[Updated] 2024 Approved Prime Video Picks The Extreme Favorites</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-content-strategy-after-the-facebook-revamp/"><u>[Updated] Mastering Content Strategy After the Facebook Revamp</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-navigating-online-broadcasts-expertise-in-onestream-use-for-2024/"><u>[Updated] Navigating Online Broadcasts Expertise in OneStream Use for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-tailor-your-fb-theme-with-footage/"><u>2024 Approved Tailor Your FB Theme with Footage</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-importance-of-understanding-asmr-media/"><u>2024 Approved The Importance of Understanding ASMR Media</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-highest-echelon-writers-club/"><u>In 2024, Highest Echelon Writers Club</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-infinix-smart-8-pro-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Infinix Smart 8 Pro To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-guide-to-the-most-reliable-mac-recorders/"><u>The Ultimate Guide to the Most Reliable Mac Recorders</u></a></li>
 </ul></div>
 

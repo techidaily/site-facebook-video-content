@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Stepwise Guide to Travel Back in Time with Facebook's Archive (Laptop & Mobile)"
-date: 2024-12-06T17:58:32.234Z
-updated: 2024-12-14T02:18:17.536Z
+date: 2024-12-21T10:38:47.561Z
+updated: 2024-12-22T23:17:58.182Z
 tags:
   - ai video
   - ai facebook
@@ -38,7 +38,7 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
@@ -60,7 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -78,7 +78,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -99,6 +99,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -114,10 +118,6 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -142,7 +142,7 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -160,24 +160,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-penning-podcasts-to-perfection-a-compreomed-writers-guide/"><u>[New] 2024 Approved Penning Podcasts to Perfection A Compreomed Writer’s Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-socialnet-movie-replayer/"><u>[New] 2024 Approved SocialNet Movie Replayer</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-airpods-alone-restoring-connection/"><u>[New] Airpods Alone Restoring Connection</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-can-i-watch-facebook-videos-on-my-apple-tv-for-2024/"><u>[New] How Can I Watch Facebook Videos on My Apple TV for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-from-novice-to-influencer-a-step-by-step-fb-live-blueprint/"><u>[New] In 2024, From Novice to Influencer A Step-by-Step FB Live Blueprint</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-social-expansion-the-desktop-and-mobile-guide/"><u>[New] Social Expansion The Desktop & Mobile Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2023-best-facebook-video-downloader-and-addons-for-firefox-for-2024/"><u>[Updated] 2023 | Best Facebook Video Downloader And Addons for Firefox for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-stepwise-approach-to-resolve-facebook-story-errors/"><u>[Updated] 2024 Approved Stepwise Approach to Resolve Facebook Story Errors</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-boosting-facebook-ad-revenue-with-strategic-animated-content-design/"><u>[Updated] In 2024, Boosting Facebook Ad Revenue with Strategic Animated Content Design</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-step-by-step-reversing-video-order-on-vlc-platform-for-2024/"><u>[Updated] Step-by-Step Reversing Video Order on VLC Platform for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-top-windows-painting-and-sketchpad-programs-reviewed/"><u>2024 Approved Top Windows Painting and Sketchpad Programs Reviewed</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/best-practices-for-compliant-twitter-videos-for-2024/"><u>Best Practices for Compliant Twitter Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/engaging-creativity-crafting-compelling-facebook-ads/"><u>Engaging Creativity Crafting Compelling Facebook Ads</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/enhance-your-videos-with-movavi-suite-top-software-for-seamless-screen-capture-and-business-video-editing/"><u>Enhance Your Videos with Movavi Suite: Top Software for Seamless Screen Capture and Business Video Editing</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-crafting-powerful-instagram-content-top-strategies-for-video-marketing/"><u>In 2024, Crafting Powerful Instagram Content Top Strategies for Video Marketing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/top-tier-tactics-for-crafting-fbs-most-watched-videos/"><u>Top-Tier Tactics for Crafting #FB's Most Watched Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/virtual-collaboration-share-your-screens-with-facebook-viewers/"><u>Virtual Collaboration Share Your Screens with Facebook Viewers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://win-latest.techidaily.com/windows-7erecovery/"><u>Windows 7のeRecovery管理ツール - 最適化されたエラー修正アプリ</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-can-i-share-videos-to-instagram/"><u>[New] 2024 Approved How Can I Share Videos to Instagram?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-b-roll-builder-kit/"><u>[New] B-Roll Builder Kit</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-effortless-and-expert-use-of-obs-studio-with-android-devices-for-2024/"><u>[New] Effortless and Expert Use of OBS Studio with Android Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-transforming-your-profile-video-allure/"><u>[New] In 2024, Transforming Your Profile Video Allure</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-fb-lives-dual-screen-dynamics-essential-insights-for-2024/"><u>[New] Navigating FB Live's Dual-Screen Dynamics Essential Insights for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-definitive-guide-to-post-production-perfection-on-instagram-for-2024/"><u>[New] The Definitive Guide to Post-Production Perfection on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-digital-enhancement-social-story-recorder/"><u>[Updated] 2024 Approved Digital Enhancement Social Story Recorder</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-from-social-media-to-high-definition-free-conversion-of-fb-videos-to-mp4/"><u>[Updated] 2024 Approved From Social Media to High Definition Free Conversion of FB Videos to MP4</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-larger-print-formats-same-sharpness-levels/"><u>[Updated] Larger Print Formats, Same Sharpness Levels</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-the-maze-fb-messengers-a-video-downloading-guide/"><u>[Updated] Navigating the Maze FB Messengers - A Video Downloading Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-sharing-youtube-content-on-facebook-a-step-by-step-guide-for-2024/"><u>[Updated] Sharing YouTube Content on Facebook A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-compreenas-guide-to-seamless-time-marking-in-youtube-videos-desktopmobile/"><u>[Updated] The Compreenas Guide to Seamless Time Marking in YouTube Videos (Desktop/Mobile)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-outwiththeold-camerasbeyondmycam/"><u>2024 Approved OutWithTheOld CamerasBeyondMyCam</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/capture-facebook-videos-like-a-pro-select-the-best-firefox-addons-and-downloaders-for-2024/"><u>Capture Facebook Videos Like a Pro Select the Best Firefox Addons & Downloaders for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-elite-selection-of-tv-streaming-services-for-2econd-quarter-2024/"><u>Discover the Elite Selection of TV Streaming Services for 2Econd Quarter, 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-unleash-creativity-complimentary-premiere-pro-toolset/"><u>In 2024, Unleash Creativity - Complimentary Premiere Pro Toolset</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-zoom-performance-issues-whats-happening/"><u>Understanding Zoom Performance Issues: What's Happening?</u></a></li>
 </ul></div>
 
