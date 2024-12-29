@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlock Old Facebook Memories with a Click"
-date: 2024-11-30T19:28:33.848Z
-updated: 2024-12-08T12:21:14.562Z
+date: 2024-12-22T19:49:33.374Z
+updated: 2024-12-28T16:11:10.843Z
 tags:
   - ai video
   - ai facebook
@@ -37,15 +37,15 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
@@ -60,6 +60,10 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -77,21 +81,21 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -112,10 +116,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -144,7 +144,7 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -178,17 +178,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-in-depth-analysis-of-altering-facial-gender-on-social-platforms/"><u>[New] 2024 Approved In-Depth Analysis of Altering Facial Gender on Social Platforms</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-integrating-gopro-adventures-with-popular-social-media-channels/"><u>[New] 2024 Approved Integrating GoPro Adventures with Popular Social Media Channels</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-top-5-captivating-visual-journeys-on-fb/"><u>[Updated] In 2024, Top 5 Captivating Visual Journeys on FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-stay-ahead-the-guide-to-facebooks-new-algorithm/"><u>2024 Approved Stay Ahead The Guide to Facebook's New Algorithm</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-leading-compact-solar-energy-stations-for-on-the-go-charging-this-year-cnet/"><u>Discover the Leading Compact Solar Energy Stations for On-the-Go Charging This Year - CNET</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-lava-yuva-3-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Lava Yuva 3 Pro Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-audio-for-digital-unboxing-scenes/"><u>In 2024, Mastering Audio for Digital Unboxing Scenes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-mastering-webm-from-youtube-videos/"><u>In 2024, Mastering WebM From YouTube Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/itel-s23plus-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel S23+ Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/perfecting-image-previews-top-4-win-friendly-viewers/"><u>Perfecting Image Previews: Top 4 Win-Friendly Viewers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/syncing-sound-with-visuals-on-facebook-essential-guide/"><u>Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-gotrax-gxl-v2-reviewed-an-e-scooter-tailored-for-fast-paced-commuters-in-the-city/"><u>The Gotrax GXL V2 Reviewed: An E-Scooter Tailored for Fast-Paced Commuters in the City</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-social-media-to-high-definition-free-conversion-of-fb-videos-to-mp4-for-2024/"><u>[New] From Social Media to High Definition Free Conversion of FB Videos to MP4 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-next-level-editing-on-windows-top-videography-suites-revealed/"><u>[New] Next-Level Editing on Windows Top Videography Suites Revealed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tiktok-audio-integrity-overcoming-silent-intervals-in-videos-for-2024/"><u>[Updated] TikTok Audio Integrity Overcoming Silent Intervals in Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unveiling-the-top-10-lesser-known-memeliters/"><u>2024 Approved Unveiling the Top 10 Lesser-Known Memeliters</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-mirror-apple-iphone-13-pro-to-your-windows-pc-drfone-by-drfone-ios/"><u>6 Methods to Mirror Apple iPhone 13 Pro to your Windows PC | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/choosing-between-the-iphones-iphone-14-pro-and-pro-max-showdown-find-your-best-fit/"><u>Choosing Between the iPhones: IPhone 14 Pro and Pro Max Showdown – Find Your Best Fit!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/current-vr-devices-explored/"><u>Current VR Devices Explored</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-guide-how-to-recover-lost-memories-with-advanced-image-restoration-tools/"><u>Expert Guide: How to Recover Lost Memories with Advanced Image Restoration Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-brush-up-skills-unveiling-the-ultimate-8-iphone-drawing-tools/"><u>In 2024, Brush Up Skills Unveiling the Ultimate 8 iPhone Drawing Tools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Life360 Circle Everything You Need to Know On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/making-a-statement-standout-content-via-fb-slideshows-for-2024/"><u>Making a Statement Standout Content via FB Slideshows for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/social-sanctuary-secure-access-restored-for-2024/"><u>Social Sanctuary Secure Access Restored for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/streamlined-installation-hp-officejet-pro-8600-on-windows/"><u>Streamlined Installation: HP OfficeJet Pro 8600 on Windows</u></a></li>
+<li><a href="https://win-answers.techidaily.com/success-story-fixing-the-graphics-driver-errors-on-your-oculus-device/"><u>Success Story - Fixing The Graphics Driver Errors On Your Oculus Device</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook/"><u>Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook</u></a></li>
 </ul></div>
 

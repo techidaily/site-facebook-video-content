@@ -1,7 +1,7 @@
 ---
 title: "[New] Effortlessly Capture and Archive Your Favorite FB Story Moments"
-date: 2024-12-17T01:28:24.104Z
-updated: 2024-12-23T00:43:19.458Z
+date: 2024-12-23T00:39:37.851Z
+updated: 2024-12-28T23:01:47.463Z
 tags:
   - ai video
   - ai facebook
@@ -47,10 +47,6 @@ If you want to keep your Facebook stories around for longer than a day, you can 
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Why your video editing isn't good enough? How about some creative inspo?
 
 * 100 Million+ Users
@@ -67,6 +63,10 @@ If you want to keep your Facebook stories around for longer than a day, you can 
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\.  Downvideo.net
 
@@ -85,14 +85,6 @@ Copy the link from the Facebook window showing a story. Paste the link in the li
 Select the desired video quality for downloading the Facebook story.
 
 ![how to download facebook story](https://images.wondershare.com/filmora/article-images/2022/03/download-facebook-story-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\.  Fbdownloader.net
 
@@ -115,7 +107,7 @@ Note: Software may not allow you to download stories from private accounts. So, 
 ![how to download facebook story - Fbdownloader.net](https://images.wondershare.com/filmora/article-images/2022/03/download-facebook-story-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\.  Getvid
@@ -137,16 +129,12 @@ Paste the URL in the box and click **download**. Select **download in normal qua
 ![how to download facebook story - getvid](https://images.wondershare.com/filmora/article-images/2022/03/download-facebook-story-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Download Facebook Story with Chrome Extensions?
 
 Chrome extensions facilitate Chrome browsing in many ways. Extensions usually help in using features that are not usable in their original application. For instance, if you want to download a story from Facebook, there is no such option on Facebook. So, you might have to use the Facebook story downloader chrome extension to get this done. We have handpicked the following two best extensions for you. Let’s explore them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\.  Story Saver
 
@@ -220,6 +208,10 @@ Install the application and click on its **icon** to launch it.
 
 Right-click on the Facebook story and select copy link address. Paste the copied link in the app to download the video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Download a Facebook Story with Music?
 
 There is no default option to download or save stories on Facebook. So, you have to use third-party apps for downloading Facebook stories. However, some apps only allow you to download the visual in the story without its audio. If you are looking for a Facebook story download with music, the following section will help you.
@@ -236,10 +228,6 @@ Open Click on the extension symbol at the top right corner of the screen. Click 
 
 Open the download folder and play the video in your media player to check the video with music.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Download Facebook Stories Anonymously?
 
 External applications can help you download Facebook stories anonymously. All you need is a trusted application on your phone or PC to save FB stories. One such notable platform is a friendly social browser. Here’s how you can save stories anonymously using this application.
@@ -253,6 +241,14 @@ Search Friendly Social Browser on your phone or PC to get started.
 Tap any video or photo in Facebook Story and click download
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Best Tool to Edit Facebook Videos - Filmora
 
@@ -271,13 +267,17 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -300,16 +300,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-from-novice-to-pro-a-comprehensive-guide-to-using-audacity-on-a-mac/"><u>[New] From Novice to Pro A Comprehensive Guide to Using Audacity on a Mac</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-comprerancial-guide-to-building-an-influential-online-following/"><u>[New] The Comprerancial Guide to Building an Influential Online Following</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-building-believable-characters-through-dialogue/"><u>[Updated] Building Believable Characters Through Dialogue</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-2023-12-methods-to-posted-facebook-videos-not-showing-up/"><u>[Updated] In 2024, 2023 | 12 Methods to Posted Facebook Videos Not Showing Up</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-fb-to-melodic-mp3s-simple-conversion-high-quality-outputs/"><u>[Updated] In 2024, FB to Melodic MP3s Simple Conversion, High Quality Outputs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-master-the-art-of-subtitling-a-brief-blueprint-for-your-fb-video-uploads-for-2024/"><u>[Updated] Master the Art of Subtitling A Brief Blueprint for Your FB Video Uploads for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigating-facebook-analytics-simplified/"><u>2024 Approved Navigating Facebook Analytics Simplified</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/breaking-down-the-newly-released-apple-m4-chip-detailed-insights-into-its-capabilities-and-availability/"><u>Breaking Down the Newly Released Apple M4 Chip – Detailed Insights Into Its Capabilities and Availability</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-realme-gt-neo-5-se-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Realme GT Neo 5 SE to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/spinning-media-a-quick-guide-to-rotating-videos-in-vlc/"><u>Spinning Media A Quick Guide to Rotating Videos in VLC</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-facebook-for-uhd-1080p-content/"><u>[New] In 2024, Navigating Facebook for UHD (1080P) Content</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-under-the-lens-hero-4-meets-hero-5/"><u>[New] Under the Lens Hero 4 Meets Hero 5</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-clickbait-crafting-secrets-to-facebooks-favorites-for-2024/"><u>[Updated] Clickbait Crafting Secrets to Facebook's Favorites for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-stay-ahead-the-guide-to-facebooks-new-algorithm/"><u>[Updated] In 2024, Stay Ahead The Guide to Facebook's New Algorithm</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-master-techniques-for-improving-chrome-web-video-quality/"><u>[Updated] Master Techniques for Improving Chrome Web Video Quality</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-social-interaction-with-innovative-fb-slideshow-techniques-for-2024/"><u>[Updated] Maximizing Social Interaction with Innovative FB Slideshow Techniques for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-the-ultimate-list-of-ios-solutions-to-play-your-favorite-psp-games-for-2024/"><u>[Updated] The Ultimate List of iOS Solutions to Play Your Favorite PSP Games for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-ultimate-converter-mp4-videos-to-facebook/"><u>[Updated] Ultimate Converter MP4 Videos to Facebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-successfully-update-software-for-your-logitech-m510-mouse/"><u>How to Successfully Update Software for Your Logitech M510 Mouse</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-smooth-volume-changes-in-fl-studio/"><u>In 2024, Mastering Smooth Volume Changes in FL Studio</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-nubia-red-magic-9-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Nubia Red Magic 9 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/put-and-play-mkv-movies-on-redmi-note-13-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Put and play MKV movies on Redmi Note 13 5G</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/revolutionary-strategies-for-youtube-and-facebook-integration-for-2024/"><u>Revolutionary Strategies for YouTube & Facebook Integration for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sounds-of-laughter-top-ringtones-downloaders/"><u>Sounds of Laughter Top Ringtones Downloaders</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-top-5-best-free-iphone-video-rotators/"><u>Updated Top 5 Best Free iPhone Video Rotators</u></a></li>
 </ul></div>
 

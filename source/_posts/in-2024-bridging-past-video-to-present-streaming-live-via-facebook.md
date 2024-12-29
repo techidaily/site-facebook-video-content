@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Bridging Past Video to Present  Streaming Live via Facebook\""
-date: 2024-07-23T23:35:53.427Z
-updated: 2024-07-24T23:35:53.427Z
+date: 2024-12-27T17:43:54.139Z
+updated: 2024-12-28T23:42:18.543Z
 tags:
   - ai video
   - ai facebook
@@ -69,12 +69,13 @@ If you want, you can resize the area or make adjustments through custom resoluti
 
 [record-pc-screen](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![how to make pre-recorded facebook videos](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-2.jpeg)
 
 1. Click on the Rec button to initiate the streaming. The same will start after 3 seconds. If you want to stop the ongoing recording, press the F9 button.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Post A Pre-Recorded Video Live on Facebook?
 
@@ -84,154 +85,6 @@ Other than that, there are numerous platforms through which you can post a pre-r
 
 [LiveReacting](https://www.livereacting.com/) is a cloud-based tool that helps you to upload pre-recorded videos to Facebook Live. As it's cloud-based, there are no scenarios of any third-party involvement. It renders numerous efficient features like auto-uploads, countdowns, quizzes, and logo addition to the live video. Here's how you can use the platform for streaming pre-recorded video live on Facebook:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
-![livereacting](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-3.jpeg)
-
-* Go to LiveReacting and log in to your account. Select a template or go to the studio to launch a new project.
-* Upload the video that you want to live stream. For that, you can navigate to the video layer of the editor and then click on the "Select file" option. Once you see the file manager, select whether you want to upload a new file or upload something that was previously uploaded.
-* Modify the streaming settings by choosing the social account where you want to go live on. Mention the title, description, adjust stream duration, and schedule any automatic uploads if you want to.
-* After making the adjustments, click on "Go Live". This will broadcast your video in 5-4 seconds.
-
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Open Broadcaster Software
-
-While the process may be a bit complex, [Open Broadcaster Software](https://obsproject.com/) allows you to stream pre-recorded video live on Facebook for free. It's an outstanding open-source platform that ensures efficient screencasting, recording, and Live streaming. Live videos get more viral than conventional videos. Thus, its popularity is obligatory.
-
-Start by launching the Stream key to enable the use of streaming software. Do not disclose the Stream Key to anyone as it may be misused. The validity of the Stream key is around seven days. Also, you have around 5 hours to stream your video live (after the preview). Launch any new key for more time. Here's how to do so:
-
-* Go to your Facebook account and click on Publishing Tools. From there, navigate to Video Library and +Live.
-* Click on Next and wait for the "Create Live Video" option to appear. Keep the window as it is and move on to the configuration of OBS.
-* Download and start the Open Broadcaster Software on your PC.
-* Go to Settings and then to the stream. Input the Stream key and click on OK.
-* Navigate to the Sources section and click on the '+' icon. Choose the VLC video source.
-* Add videos and create a playlist. Assign a name to the playlist and click on the OK button. Customize the settings on how you want to stream the video. If you want to stream even after window minimization, click on "Always play even when not visible".
-* The "+" icon allows you to add multiple videos. Make sure to do so if you want to feature a list of videos. Once done, click on the Ok button and mute the Mic/Aux. Now, click on the Start Streaming button.
-* Navigate to the Facebook window and click on the "Go live" button.
-
-![open broadcaster software](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-4.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Restream
-
-Started as a multi-stream tool, [Restream](https://restream.io/) allows you to upload and reschedule pre-recorded video live on the Facebook page. Not just Facebook, it's a powerful live-streaming tool that ensures broadcasting in more than thirty streaming channels. That too, simultaneously! It comes with an easy user interface where you can follow the below steps for pre-recorded video scheduling.
-
-* Create and edit pre-recorded video and sign in to your Restream account.
-* Look for the "Video Storage" button on the dashboard. It's normally located on the left side of the same.
-* Check whether you can see an "Upload Video" button (blue color) situated at the top right side. Now, click on the button to upload the pre-recorded video.
-* Following that, click on the Event button. It is situated at the left sidebar. Then, click on Schedule Live Event.
-* Choose the Video File option from the list. Select the uploaded video and schedule the time and date for streaming.
-* Input the title and description as you want. Choose Facebook from the platforms where you want to stream the video. And that's how you put a pre-recorded video on Facebook live through Restream.
-
-![restream](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-5.jpeg)
-
-Now, for pre-recording your video, one of the most feasible tools is Wondershare Filmora. Not only does it ensure high-quality streaming, but it also renders impress and useful features.
-
-The intuitive user interface and simple steps ensure the video records in a hassle-free manner. The tool does not have any complicated configuration. Thus, it can save your time from all the inconvenience. Also, below powerful features make it a must-use for recordings:
-
-* Simultaneous recording from both screen and webcam
-* Mouse spotlight feature to highlight the essentials
-* Write and draw on the recording
-* Fade in and fade out for audio
-* Zoom and pan on a particular area
-
-[screen-recorder](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![wondershare filmorascrn](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-6.jpeg)
-
-## Conclusion
-
-So, that's the process of how to go live on a Facebook page with a pre-recorded video. As live videos are becoming more popular, it's worth using them as a medium to interact with your followers. Try these steps now to stream your pre-recorded video in a blink! Hopefully, these methods solve your problem.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You must have thought of streaming a Facebook live pre-recorded video at least once in your social media duration. But things must have been too confusing! Pre-recorded video is where you already have a video on your device.
-
-Likewise, live video means streaming something that's current and ongoing. So, the combination of both may not seem possible. Fortunately, that's not the case. If you have a video on your device and want to stream it live on Facebook, there are ways to do so. Also, there is no such tech-hassle to perform this process.
-
-Just some simple steps would do! Here's a quick guide to the same:
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
-![how to stream a pre-recorded video live on facebook](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-1.jpeg)
-
-* LiveReacting
-* Open Broadcaster Software
-* Restream
-
-#### In this article
-
-Part 1: [How to Make Pre-Recorded Facebook Videos?](#step1)
-
-Part 2: [How to Post A Pre-Recorded Video Live on Facebook?](#step2)
-
-## Part 1\. How to Make Pre-Recorded Facebook Videos?
-
-Be it the content of the recorded video or any other reason; you may stream a pre-recorded Facebook video for multiple motives. Now, the appropriate way to do so is through video recording/editing softwares like Wondershare Filmora. With multiple formats supporting and an in-built video recorder, this tool is a complete package for live streamings.
-
-It also has more than 300 effects for different domains. Besides Facebook Live, the tool also allows you to burn the video to DVD or stream on YouTube. It's an efficient way to transfer video to any famous portable device. The tool comes with an effortless user interface where you can employ videos in any possible way. It also records your screen to help you with hassle-free streaming. The process of recording is quite straightforward and involves the following steps:
-
-1. Install and open the Wondershare Filmora software. Double click on its desktop icon to launch the "Full Feature" mode.
-1. Go to the Record menu and click on "Record PC Screen". This will instantly initiate a screen recorder window on your PC screen. Make sure to modify the settings for your video streaming.
-1. Look for a rectangular icon beside the Wondershare screen recorder window. It's a feature through which you can select an area that you want to record. Select anyone from the three options, i.e. Full Screen, Custom, or Target Window. While the Full-Screen option records your entire screen, the Custom option allows you to modify a screen section for recording.  
-If you want, you can resize the area or make adjustments through custom resolutions (width and height). Lastly, the Target Window allows you to select a program, browser or any other window for recording.
-1. For voice and sound, select the Microphone icon. This will help you choose a mic to record the content for your streaming. Select the Speakers option if you want to employ them in your live video.
-1. Look for the Settings option in your window and click on it. It's situated on the lower right side of the screen. This will open a plethora of options to customize the pre-recorded video for live streaming:
-
-* **Save to:**To select the location on your PC where you want to save the recording.
-* **Frame rate:**To choose the appropriate frame rate for recording.
-* **Quality:**To select from the multiple quality options (good, better, best) for streaming.
-* **Record Timer:**To assign a time slot where your recording stops automatically. Do not tick the option if you want manual customization.
-* **Mouse:**To select if you want to display the mouse clicks during the recording.
-* **Pause/Resume Hotkey:**To select a keyboard key for pausing and resuming the recording.
-* **Start/Stop Hotkey:**To select a keyboard key to start or stop the recording.
-* **Camera:**Tick this box if you want content from the webcam to display on the recording. If you choose this option, your webcam feed will be visible on the screen. Place them in the right position before recording. However, do not move past the recording area.
-
-[record-pc-screen](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![how to make pre-recorded facebook videos](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-2.jpeg)
-
-1. Click on the Rec button to initiate the streaming. The same will start after 3 seconds. If you want to stop the ongoing recording, press the F9 button.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
-## Part 2\. How to Post A Pre-Recorded Video Live on Facebook?
-
-Other than that, there are numerous platforms through which you can post a pre-recorded video live on Facebook. It comes with top-notch features that allow you to schedule streams efficiently. While it may be a bit too much for beginners, it's still worth trying for your live streaming. Let's know about them in detail:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### LiveReacting
-
-[LiveReacting](https://www.livereacting.com/) is a cloud-based tool that helps you to upload pre-recorded videos to Facebook Live. As it's cloud-based, there are no scenarios of any third-party involvement. It renders numerous efficient features like auto-uploads, countdowns, quizzes, and logo addition to the live video. Here's how you can use the platform for streaming pre-recorded video live on Facebook:
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![livereacting](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-3.jpeg)
 
 * Go to LiveReacting and log in to your account. Select a template or go to the studio to launch a new project.
@@ -254,145 +107,8 @@ Start by launching the Stream key to enable the use of streaming software. Do no
 * The "+" icon allows you to add multiple videos. Make sure to do so if you want to feature a list of videos. Once done, click on the Ok button and mute the Mic/Aux. Now, click on the Start Streaming button.
 * Navigate to the Facebook window and click on the "Go live" button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![open broadcaster software](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-4.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Restream
-
-Started as a multi-stream tool, [Restream](https://restream.io/) allows you to upload and reschedule pre-recorded video live on the Facebook page. Not just Facebook, it's a powerful live-streaming tool that ensures broadcasting in more than thirty streaming channels. That too, simultaneously! It comes with an easy user interface where you can follow the below steps for pre-recorded video scheduling.
-
-* Create and edit pre-recorded video and sign in to your Restream account.
-* Look for the "Video Storage" button on the dashboard. It's normally located on the left side of the same.
-* Check whether you can see an "Upload Video" button (blue color) situated at the top right side. Now, click on the button to upload the pre-recorded video.
-* Following that, click on the Event button. It is situated at the left sidebar. Then, click on Schedule Live Event.
-* Choose the Video File option from the list. Select the uploaded video and schedule the time and date for streaming.
-* Input the title and description as you want. Choose Facebook from the platforms where you want to stream the video. And that's how you put a pre-recorded video on Facebook live through Restream.
-
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![restream](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-5.jpeg)
-
-Now, for pre-recording your video, one of the most feasible tools is Wondershare Filmora. Not only does it ensure high-quality streaming, but it also renders impress and useful features.
-
-The intuitive user interface and simple steps ensure the video records in a hassle-free manner. The tool does not have any complicated configuration. Thus, it can save your time from all the inconvenience. Also, below powerful features make it a must-use for recordings:
-
-* Simultaneous recording from both screen and webcam
-* Mouse spotlight feature to highlight the essentials
-* Write and draw on the recording
-* Fade in and fade out for audio
-* Zoom and pan on a particular area
-
-[screen-recorder](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![wondershare filmorascrn](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-6.jpeg)
-
-## Conclusion
-
-So, that's the process of how to go live on a Facebook page with a pre-recorded video. As live videos are becoming more popular, it's worth using them as a medium to interact with your followers. Try these steps now to stream your pre-recorded video in a blink! Hopefully, these methods solve your problem.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You must have thought of streaming a Facebook live pre-recorded video at least once in your social media duration. But things must have been too confusing! Pre-recorded video is where you already have a video on your device.
-
-Likewise, live video means streaming something that's current and ongoing. So, the combination of both may not seem possible. Fortunately, that's not the case. If you have a video on your device and want to stream it live on Facebook, there are ways to do so. Also, there is no such tech-hassle to perform this process.
-
-Just some simple steps would do! Here's a quick guide to the same:
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![how to stream a pre-recorded video live on facebook](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-1.jpeg)
-
-* LiveReacting
-* Open Broadcaster Software
-* Restream
-
-#### In this article
-
-Part 1: [How to Make Pre-Recorded Facebook Videos?](#step1)
-
-Part 2: [How to Post A Pre-Recorded Video Live on Facebook?](#step2)
-
-## Part 1\. How to Make Pre-Recorded Facebook Videos?
-
-Be it the content of the recorded video or any other reason; you may stream a pre-recorded Facebook video for multiple motives. Now, the appropriate way to do so is through video recording/editing softwares like Wondershare Filmora. With multiple formats supporting and an in-built video recorder, this tool is a complete package for live streamings.
-
-It also has more than 300 effects for different domains. Besides Facebook Live, the tool also allows you to burn the video to DVD or stream on YouTube. It's an efficient way to transfer video to any famous portable device. The tool comes with an effortless user interface where you can employ videos in any possible way. It also records your screen to help you with hassle-free streaming. The process of recording is quite straightforward and involves the following steps:
-
-1. Install and open the Wondershare Filmora software. Double click on its desktop icon to launch the "Full Feature" mode.
-1. Go to the Record menu and click on "Record PC Screen". This will instantly initiate a screen recorder window on your PC screen. Make sure to modify the settings for your video streaming.
-1. Look for a rectangular icon beside the Wondershare screen recorder window. It's a feature through which you can select an area that you want to record. Select anyone from the three options, i.e. Full Screen, Custom, or Target Window. While the Full-Screen option records your entire screen, the Custom option allows you to modify a screen section for recording.  
-If you want, you can resize the area or make adjustments through custom resolutions (width and height). Lastly, the Target Window allows you to select a program, browser or any other window for recording.
-1. For voice and sound, select the Microphone icon. This will help you choose a mic to record the content for your streaming. Select the Speakers option if you want to employ them in your live video.
-1. Look for the Settings option in your window and click on it. It's situated on the lower right side of the screen. This will open a plethora of options to customize the pre-recorded video for live streaming:
-
-* **Save to:**To select the location on your PC where you want to save the recording.
-* **Frame rate:**To choose the appropriate frame rate for recording.
-* **Quality:**To select from the multiple quality options (good, better, best) for streaming.
-* **Record Timer:**To assign a time slot where your recording stops automatically. Do not tick the option if you want manual customization.
-* **Mouse:**To select if you want to display the mouse clicks during the recording.
-* **Pause/Resume Hotkey:**To select a keyboard key for pausing and resuming the recording.
-* **Start/Stop Hotkey:**To select a keyboard key to start or stop the recording.
-* **Camera:**Tick this box if you want content from the webcam to display on the recording. If you choose this option, your webcam feed will be visible on the screen. Place them in the right position before recording. However, do not move past the recording area.
-
-[record-pc-screen](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![how to make pre-recorded facebook videos](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-2.jpeg)
-
-1. Click on the Rec button to initiate the streaming. The same will start after 3 seconds. If you want to stop the ongoing recording, press the F9 button.
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 2\. How to Post A Pre-Recorded Video Live on Facebook?
-
-Other than that, there are numerous platforms through which you can post a pre-recorded video live on Facebook. It comes with top-notch features that allow you to schedule streams efficiently. While it may be a bit too much for beginners, it's still worth trying for your live streaming. Let's know about them in detail:
-
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
-### LiveReacting
-
-[LiveReacting](https://www.livereacting.com/) is a cloud-based tool that helps you to upload pre-recorded videos to Facebook Live. As it's cloud-based, there are no scenarios of any third-party involvement. It renders numerous efficient features like auto-uploads, countdowns, quizzes, and logo addition to the live video. Here's how you can use the platform for streaming pre-recorded video live on Facebook:
-
-![livereacting](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-3.jpeg)
-
-* Go to LiveReacting and log in to your account. Select a template or go to the studio to launch a new project.
-* Upload the video that you want to live stream. For that, you can navigate to the video layer of the editor and then click on the "Select file" option. Once you see the file manager, select whether you want to upload a new file or upload something that was previously uploaded.
-* Modify the streaming settings by choosing the social account where you want to go live on. Mention the title, description, adjust stream duration, and schedule any automatic uploads if you want to.
-* After making the adjustments, click on "Go Live". This will broadcast your video in 5-4 seconds.
-
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
-### Open Broadcaster Software
-
-While the process may be a bit complex, [Open Broadcaster Software](https://obsproject.com/) allows you to stream pre-recorded video live on Facebook for free. It's an outstanding open-source platform that ensures efficient screencasting, recording, and Live streaming. Live videos get more viral than conventional videos. Thus, its popularity is obligatory.
-
-Start by launching the Stream key to enable the use of streaming software. Do not disclose the Stream Key to anyone as it may be misused. The validity of the Stream key is around seven days. Also, you have around 5 hours to stream your video live (after the preview). Launch any new key for more time. Here's how to do so:
-
-* Go to your Facebook account and click on Publishing Tools. From there, navigate to Video Library and +Live.
-* Click on Next and wait for the "Create Live Video" option to appear. Keep the window as it is and move on to the configuration of OBS.
-* Download and start the Open Broadcaster Software on your PC.
-* Go to Settings and then to the stream. Input the Stream key and click on OK.
-* Navigate to the Sources section and click on the '+' icon. Choose the VLC video source.
-* Add videos and create a playlist. Assign a name to the playlist and click on the OK button. Customize the settings on how you want to stream the video. If you want to stream even after window minimization, click on "Always play even when not visible".
-* The "+" icon allows you to add multiple videos. Make sure to do so if you want to feature a list of videos. Once done, click on the Ok button and mute the Mic/Aux. Now, click on the Start Streaming button.
-* Navigate to the Facebook window and click on the "Go live" button.
-
-![open broadcaster software](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-4.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Restream
 
 Started as a multi-stream tool, [Restream](https://restream.io/) allows you to upload and reschedule pre-recorded video live on the Facebook page. Not just Facebook, it's a powerful live-streaming tool that ensures broadcasting in more than thirty streaming channels. That too, simultaneously! It comes with an easy user interface where you can follow the below steps for pre-recorded video scheduling.
@@ -406,6 +122,10 @@ Started as a multi-stream tool, [Restream](https://restream.io/) allows you to u
 
 ![restream](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-5.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, for pre-recording your video, one of the most feasible tools is Wondershare Filmora. Not only does it ensure high-quality streaming, but it also renders impress and useful features.
 
 The intuitive user interface and simple steps ensure the video records in a hassle-free manner. The tool does not have any complicated configuration. Thus, it can save your time from all the inconvenience. Also, below powerful features make it a must-use for recordings:
@@ -418,10 +138,6 @@ The intuitive user interface and simple steps ensure the video records in a hass
 
 [screen-recorder](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![wondershare filmorascrn](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-6.jpeg)
 
 ## Conclusion
@@ -474,24 +190,14 @@ If you want, you can resize the area or make adjustments through custom resoluti
 
 [record-pc-screen](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![how to make pre-recorded facebook videos](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-2.jpeg)
 
 1. Click on the Rec button to initiate the streaming. The same will start after 3 seconds. If you want to stop the ongoing recording, press the F9 button.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. How to Post A Pre-Recorded Video Live on Facebook?
 
 Other than that, there are numerous platforms through which you can post a pre-recorded video live on Facebook. It comes with top-notch features that allow you to schedule streams efficiently. While it may be a bit too much for beginners, it's still worth trying for your live streaming. Let's know about them in detail:
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### LiveReacting
 
 [LiveReacting](https://www.livereacting.com/) is a cloud-based tool that helps you to upload pre-recorded videos to Facebook Live. As it's cloud-based, there are no scenarios of any third-party involvement. It renders numerous efficient features like auto-uploads, countdowns, quizzes, and logo addition to the live video. Here's how you can use the platform for streaming pre-recorded video live on Facebook:
@@ -521,8 +227,259 @@ Start by launching the Stream key to enable the use of streaming software. Do no
 ![open broadcaster software](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-4.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### Restream
+
+Started as a multi-stream tool, [Restream](https://restream.io/) allows you to upload and reschedule pre-recorded video live on the Facebook page. Not just Facebook, it's a powerful live-streaming tool that ensures broadcasting in more than thirty streaming channels. That too, simultaneously! It comes with an easy user interface where you can follow the below steps for pre-recorded video scheduling.
+
+* Create and edit pre-recorded video and sign in to your Restream account.
+* Look for the "Video Storage" button on the dashboard. It's normally located on the left side of the same.
+* Check whether you can see an "Upload Video" button (blue color) situated at the top right side. Now, click on the button to upload the pre-recorded video.
+* Following that, click on the Event button. It is situated at the left sidebar. Then, click on Schedule Live Event.
+* Choose the Video File option from the list. Select the uploaded video and schedule the time and date for streaming.
+* Input the title and description as you want. Choose Facebook from the platforms where you want to stream the video. And that's how you put a pre-recorded video on Facebook live through Restream.
+
+![restream](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-5.jpeg)
+
+Now, for pre-recording your video, one of the most feasible tools is Wondershare Filmora. Not only does it ensure high-quality streaming, but it also renders impress and useful features.
+
+The intuitive user interface and simple steps ensure the video records in a hassle-free manner. The tool does not have any complicated configuration. Thus, it can save your time from all the inconvenience. Also, below powerful features make it a must-use for recordings:
+
+* Simultaneous recording from both screen and webcam
+* Mouse spotlight feature to highlight the essentials
+* Write and draw on the recording
+* Fade in and fade out for audio
+* Zoom and pan on a particular area
+
+[screen-recorder](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![wondershare filmorascrn](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-6.jpeg)
+
+## Conclusion
+
+So, that's the process of how to go live on a Facebook page with a pre-recorded video. As live videos are becoming more popular, it's worth using them as a medium to interact with your followers. Try these steps now to stream your pre-recorded video in a blink! Hopefully, these methods solve your problem.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You must have thought of streaming a Facebook live pre-recorded video at least once in your social media duration. But things must have been too confusing! Pre-recorded video is where you already have a video on your device.
+
+Likewise, live video means streaming something that's current and ongoing. So, the combination of both may not seem possible. Fortunately, that's not the case. If you have a video on your device and want to stream it live on Facebook, there are ways to do so. Also, there is no such tech-hassle to perform this process.
+
+Just some simple steps would do! Here's a quick guide to the same:
+
+![how to stream a pre-recorded video live on facebook](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-1.jpeg)
+
+* LiveReacting
+* Open Broadcaster Software
+* Restream
+
+#### In this article
+
+Part 1: [How to Make Pre-Recorded Facebook Videos?](#step1)
+
+Part 2: [How to Post A Pre-Recorded Video Live on Facebook?](#step2)
+
+## Part 1\. How to Make Pre-Recorded Facebook Videos?
+
+Be it the content of the recorded video or any other reason; you may stream a pre-recorded Facebook video for multiple motives. Now, the appropriate way to do so is through video recording/editing softwares like Wondershare Filmora. With multiple formats supporting and an in-built video recorder, this tool is a complete package for live streamings.
+
+It also has more than 300 effects for different domains. Besides Facebook Live, the tool also allows you to burn the video to DVD or stream on YouTube. It's an efficient way to transfer video to any famous portable device. The tool comes with an effortless user interface where you can employ videos in any possible way. It also records your screen to help you with hassle-free streaming. The process of recording is quite straightforward and involves the following steps:
+
+1. Install and open the Wondershare Filmora software. Double click on its desktop icon to launch the "Full Feature" mode.
+1. Go to the Record menu and click on "Record PC Screen". This will instantly initiate a screen recorder window on your PC screen. Make sure to modify the settings for your video streaming.
+1. Look for a rectangular icon beside the Wondershare screen recorder window. It's a feature through which you can select an area that you want to record. Select anyone from the three options, i.e. Full Screen, Custom, or Target Window. While the Full-Screen option records your entire screen, the Custom option allows you to modify a screen section for recording.  
+If you want, you can resize the area or make adjustments through custom resolutions (width and height). Lastly, the Target Window allows you to select a program, browser or any other window for recording.
+1. For voice and sound, select the Microphone icon. This will help you choose a mic to record the content for your streaming. Select the Speakers option if you want to employ them in your live video.
+1. Look for the Settings option in your window and click on it. It's situated on the lower right side of the screen. This will open a plethora of options to customize the pre-recorded video for live streaming:
+
+* **Save to:**To select the location on your PC where you want to save the recording.
+* **Frame rate:**To choose the appropriate frame rate for recording.
+* **Quality:**To select from the multiple quality options (good, better, best) for streaming.
+* **Record Timer:**To assign a time slot where your recording stops automatically. Do not tick the option if you want manual customization.
+* **Mouse:**To select if you want to display the mouse clicks during the recording.
+* **Pause/Resume Hotkey:**To select a keyboard key for pausing and resuming the recording.
+* **Start/Stop Hotkey:**To select a keyboard key to start or stop the recording.
+* **Camera:**Tick this box if you want content from the webcam to display on the recording. If you choose this option, your webcam feed will be visible on the screen. Place them in the right position before recording. However, do not move past the recording area.
+
+[record-pc-screen](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![how to make pre-recorded facebook videos](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-2.jpeg)
+
+1. Click on the Rec button to initiate the streaming. The same will start after 3 seconds. If you want to stop the ongoing recording, press the F9 button.
+
+## Part 2\. How to Post A Pre-Recorded Video Live on Facebook?
+
+Other than that, there are numerous platforms through which you can post a pre-recorded video live on Facebook. It comes with top-notch features that allow you to schedule streams efficiently. While it may be a bit too much for beginners, it's still worth trying for your live streaming. Let's know about them in detail:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### LiveReacting
+
+[LiveReacting](https://www.livereacting.com/) is a cloud-based tool that helps you to upload pre-recorded videos to Facebook Live. As it's cloud-based, there are no scenarios of any third-party involvement. It renders numerous efficient features like auto-uploads, countdowns, quizzes, and logo addition to the live video. Here's how you can use the platform for streaming pre-recorded video live on Facebook:
+
+![livereacting](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-3.jpeg)
+
+* Go to LiveReacting and log in to your account. Select a template or go to the studio to launch a new project.
+* Upload the video that you want to live stream. For that, you can navigate to the video layer of the editor and then click on the "Select file" option. Once you see the file manager, select whether you want to upload a new file or upload something that was previously uploaded.
+* Modify the streaming settings by choosing the social account where you want to go live on. Mention the title, description, adjust stream duration, and schedule any automatic uploads if you want to.
+* After making the adjustments, click on "Go Live". This will broadcast your video in 5-4 seconds.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Open Broadcaster Software
+
+While the process may be a bit complex, [Open Broadcaster Software](https://obsproject.com/) allows you to stream pre-recorded video live on Facebook for free. It's an outstanding open-source platform that ensures efficient screencasting, recording, and Live streaming. Live videos get more viral than conventional videos. Thus, its popularity is obligatory.
+
+Start by launching the Stream key to enable the use of streaming software. Do not disclose the Stream Key to anyone as it may be misused. The validity of the Stream key is around seven days. Also, you have around 5 hours to stream your video live (after the preview). Launch any new key for more time. Here's how to do so:
+
+* Go to your Facebook account and click on Publishing Tools. From there, navigate to Video Library and +Live.
+* Click on Next and wait for the "Create Live Video" option to appear. Keep the window as it is and move on to the configuration of OBS.
+* Download and start the Open Broadcaster Software on your PC.
+* Go to Settings and then to the stream. Input the Stream key and click on OK.
+* Navigate to the Sources section and click on the '+' icon. Choose the VLC video source.
+* Add videos and create a playlist. Assign a name to the playlist and click on the OK button. Customize the settings on how you want to stream the video. If you want to stream even after window minimization, click on "Always play even when not visible".
+* The "+" icon allows you to add multiple videos. Make sure to do so if you want to feature a list of videos. Once done, click on the Ok button and mute the Mic/Aux. Now, click on the Start Streaming button.
+* Navigate to the Facebook window and click on the "Go live" button.
+
+![open broadcaster software](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-4.jpeg)
+
+### Restream
+
+Started as a multi-stream tool, [Restream](https://restream.io/) allows you to upload and reschedule pre-recorded video live on the Facebook page. Not just Facebook, it's a powerful live-streaming tool that ensures broadcasting in more than thirty streaming channels. That too, simultaneously! It comes with an easy user interface where you can follow the below steps for pre-recorded video scheduling.
+
+* Create and edit pre-recorded video and sign in to your Restream account.
+* Look for the "Video Storage" button on the dashboard. It's normally located on the left side of the same.
+* Check whether you can see an "Upload Video" button (blue color) situated at the top right side. Now, click on the button to upload the pre-recorded video.
+* Following that, click on the Event button. It is situated at the left sidebar. Then, click on Schedule Live Event.
+* Choose the Video File option from the list. Select the uploaded video and schedule the time and date for streaming.
+* Input the title and description as you want. Choose Facebook from the platforms where you want to stream the video. And that's how you put a pre-recorded video on Facebook live through Restream.
+
+![restream](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-5.jpeg)
+
+Now, for pre-recording your video, one of the most feasible tools is Wondershare Filmora. Not only does it ensure high-quality streaming, but it also renders impress and useful features.
+
+The intuitive user interface and simple steps ensure the video records in a hassle-free manner. The tool does not have any complicated configuration. Thus, it can save your time from all the inconvenience. Also, below powerful features make it a must-use for recordings:
+
+* Simultaneous recording from both screen and webcam
+* Mouse spotlight feature to highlight the essentials
+* Write and draw on the recording
+* Fade in and fade out for audio
+* Zoom and pan on a particular area
+
+[screen-recorder](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![wondershare filmorascrn](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-6.jpeg)
+
+## Conclusion
+
+So, that's the process of how to go live on a Facebook page with a pre-recorded video. As live videos are becoming more popular, it's worth using them as a medium to interact with your followers. Try these steps now to stream your pre-recorded video in a blink! Hopefully, these methods solve your problem.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You must have thought of streaming a Facebook live pre-recorded video at least once in your social media duration. But things must have been too confusing! Pre-recorded video is where you already have a video on your device.
+
+Likewise, live video means streaming something that's current and ongoing. So, the combination of both may not seem possible. Fortunately, that's not the case. If you have a video on your device and want to stream it live on Facebook, there are ways to do so. Also, there is no such tech-hassle to perform this process.
+
+Just some simple steps would do! Here's a quick guide to the same:
+
+![how to stream a pre-recorded video live on facebook](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-1.jpeg)
+
+* LiveReacting
+* Open Broadcaster Software
+* Restream
+
+#### In this article
+
+Part 1: [How to Make Pre-Recorded Facebook Videos?](#step1)
+
+Part 2: [How to Post A Pre-Recorded Video Live on Facebook?](#step2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 1\. How to Make Pre-Recorded Facebook Videos?
+
+Be it the content of the recorded video or any other reason; you may stream a pre-recorded Facebook video for multiple motives. Now, the appropriate way to do so is through video recording/editing softwares like Wondershare Filmora. With multiple formats supporting and an in-built video recorder, this tool is a complete package for live streamings.
+
+It also has more than 300 effects for different domains. Besides Facebook Live, the tool also allows you to burn the video to DVD or stream on YouTube. It's an efficient way to transfer video to any famous portable device. The tool comes with an effortless user interface where you can employ videos in any possible way. It also records your screen to help you with hassle-free streaming. The process of recording is quite straightforward and involves the following steps:
+
+1. Install and open the Wondershare Filmora software. Double click on its desktop icon to launch the "Full Feature" mode.
+1. Go to the Record menu and click on "Record PC Screen". This will instantly initiate a screen recorder window on your PC screen. Make sure to modify the settings for your video streaming.
+1. Look for a rectangular icon beside the Wondershare screen recorder window. It's a feature through which you can select an area that you want to record. Select anyone from the three options, i.e. Full Screen, Custom, or Target Window. While the Full-Screen option records your entire screen, the Custom option allows you to modify a screen section for recording.  
+If you want, you can resize the area or make adjustments through custom resolutions (width and height). Lastly, the Target Window allows you to select a program, browser or any other window for recording.
+1. For voice and sound, select the Microphone icon. This will help you choose a mic to record the content for your streaming. Select the Speakers option if you want to employ them in your live video.
+1. Look for the Settings option in your window and click on it. It's situated on the lower right side of the screen. This will open a plethora of options to customize the pre-recorded video for live streaming:
+
+* **Save to:**To select the location on your PC where you want to save the recording.
+* **Frame rate:**To choose the appropriate frame rate for recording.
+* **Quality:**To select from the multiple quality options (good, better, best) for streaming.
+* **Record Timer:**To assign a time slot where your recording stops automatically. Do not tick the option if you want manual customization.
+* **Mouse:**To select if you want to display the mouse clicks during the recording.
+* **Pause/Resume Hotkey:**To select a keyboard key for pausing and resuming the recording.
+* **Start/Stop Hotkey:**To select a keyboard key to start or stop the recording.
+* **Camera:**Tick this box if you want content from the webcam to display on the recording. If you choose this option, your webcam feed will be visible on the screen. Place them in the right position before recording. However, do not move past the recording area.
+
+[record-pc-screen](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![how to make pre-recorded facebook videos](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-2.jpeg)
+
+1. Click on the Rec button to initiate the streaming. The same will start after 3 seconds. If you want to stop the ongoing recording, press the F9 button.
+
+## Part 2\. How to Post A Pre-Recorded Video Live on Facebook?
+
+Other than that, there are numerous platforms through which you can post a pre-recorded video live on Facebook. It comes with top-notch features that allow you to schedule streams efficiently. While it may be a bit too much for beginners, it's still worth trying for your live streaming. Let's know about them in detail:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### LiveReacting
+
+[LiveReacting](https://www.livereacting.com/) is a cloud-based tool that helps you to upload pre-recorded videos to Facebook Live. As it's cloud-based, there are no scenarios of any third-party involvement. It renders numerous efficient features like auto-uploads, countdowns, quizzes, and logo addition to the live video. Here's how you can use the platform for streaming pre-recorded video live on Facebook:
+
+![livereacting](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-3.jpeg)
+
+* Go to LiveReacting and log in to your account. Select a template or go to the studio to launch a new project.
+* Upload the video that you want to live stream. For that, you can navigate to the video layer of the editor and then click on the "Select file" option. Once you see the file manager, select whether you want to upload a new file or upload something that was previously uploaded.
+* Modify the streaming settings by choosing the social account where you want to go live on. Mention the title, description, adjust stream duration, and schedule any automatic uploads if you want to.
+* After making the adjustments, click on "Go Live". This will broadcast your video in 5-4 seconds.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Open Broadcaster Software
+
+While the process may be a bit complex, [Open Broadcaster Software](https://obsproject.com/) allows you to stream pre-recorded video live on Facebook for free. It's an outstanding open-source platform that ensures efficient screencasting, recording, and Live streaming. Live videos get more viral than conventional videos. Thus, its popularity is obligatory.
+
+Start by launching the Stream key to enable the use of streaming software. Do not disclose the Stream Key to anyone as it may be misused. The validity of the Stream key is around seven days. Also, you have around 5 hours to stream your video live (after the preview). Launch any new key for more time. Here's how to do so:
+
+* Go to your Facebook account and click on Publishing Tools. From there, navigate to Video Library and +Live.
+* Click on Next and wait for the "Create Live Video" option to appear. Keep the window as it is and move on to the configuration of OBS.
+* Download and start the Open Broadcaster Software on your PC.
+* Go to Settings and then to the stream. Input the Stream key and click on OK.
+* Navigate to the Sources section and click on the '+' icon. Choose the VLC video source.
+* Add videos and create a playlist. Assign a name to the playlist and click on the OK button. Customize the settings on how you want to stream the video. If you want to stream even after window minimization, click on "Always play even when not visible".
+* The "+" icon allows you to add multiple videos. Make sure to do so if you want to feature a list of videos. Once done, click on the Ok button and mute the Mic/Aux. Now, click on the Start Streaming button.
+* Navigate to the Facebook window and click on the "Go live" button.
+
+![open broadcaster software](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-4.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Restream
 
 Started as a multi-stream tool, [Restream](https://restream.io/) allows you to upload and reschedule pre-recorded video live on the Facebook page. Not just Facebook, it's a powerful live-streaming tool that ensures broadcasting in more than thirty streaming channels. That too, simultaneously! It comes with an easy user interface where you can follow the below steps for pre-recorded video scheduling.
@@ -551,8 +508,9 @@ The intuitive user interface and simple steps ensure the video records in a hass
 ![wondershare filmorascrn](https://images.wondershare.com/filmora/article-images/2021/pre-recorded-video-live-on-facebook-6.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 So, that's the process of how to go live on a Facebook page with a pre-recorded video. As live videos are becoming more popular, it's worth using them as a medium to interact with your followers. Try these steps now to stream your pre-recorded video in a blink! Hopefully, these methods solve your problem.
@@ -570,8 +528,6 @@ So, that's the process of how to go live on a Facebook page with a pre-recorded 
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -580,7 +536,20 @@ So, that's the process of how to go live on a Facebook page with a pre-recorded 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlocking-creativity-producing-original-and-entertaining-reels-on-facebook/"><u>[New] In 2024, Unlocking Creativity Producing Original and Entertaining Reels on Facebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-masterclass-carving-out-your-digital-self/"><u>[New] YouTube Masterclass Carving Out Your Digital Self</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-10-best-facebook-meme-pages-you-never-know-before/"><u>[Updated] 2024 Approved 10 Best Facebook Meme Pages You Never Know Before</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-bridging-the-gap-youtube-and-facebook-content-collaboration-for-2024/"><u>[Updated] Bridging the Gap YouTube and Facebook Content Collaboration for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-firefoxs-social-media-edge-top-downloader-extensions-and-addons-for-fb-content/"><u>[Updated] In 2024, FireFox's Social Media Edge Top Downloader Extensions and Addons for FB Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-virtual-impression-sculpting-a-playful-digital-identity/"><u>[Updated] In 2024, Virtual Impression Sculpting a Playful Digital Identity</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-snicker-sphere-top-grade-no-charge-memes/"><u>[Updated] Snicker Sphere Top-Grade, No-Charge Memes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-blueprint-designing-your-first-youtube-trailer/"><u>[Updated] The Blueprint Designing Your First YouTube Trailer</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-fixes-for-better-sound-update-your-windows-computers-xp-vista-7-10-11-usb-audio-drivers/"><u>Easy Fixes for Better Sound: Update Your Windows Computer's (XP, Vista, 7, 10, 11) USB Audio Drivers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-honor-x9b-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor X9b Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/maximize-story-exposure-with-linked-fb-profile/"><u>Maximize Story Exposure with Linked FB Profile</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pro-tips-for-slow-motion-videos-on-gopro-hero-10/"><u>Pro Tips for Slow Motion Videos on GoPro Hero 10</u></a></li>
+</ul></div>
 

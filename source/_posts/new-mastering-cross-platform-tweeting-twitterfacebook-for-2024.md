@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Cross-Platform Tweeting (Twitter/Facebook) for 2024\""
-date: 2024-12-19T15:04:13.283Z
-updated: 2024-12-22T18:13:42.007Z
+date: 2024-12-27T23:20:25.113Z
+updated: 2024-12-29T03:52:20.826Z
 tags:
   - ai video
   - ai facebook
@@ -26,7 +26,7 @@ thumbnail: https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6
  Mar 27, 2024• Proven solutions
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why share Twitter posts to Facebook?
@@ -43,32 +43,36 @@ thumbnail: https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
@@ -181,10 +185,6 @@ thumbnail: https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -200,20 +200,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlocking-potential-in-marketing-with-strategic-use-of-hash-tags-on-facebook/"><u>[New] In 2024, Unlocking Potential in Marketing with Strategic Use of Hash Tags on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unveiling-1-ranked-ios-apps-to-download-facebook-videos-and-gigs/"><u>[New] In 2024, Unveiling #1 Ranked iOS Apps to Download Facebook Videos and Gigs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-aspect-ratio-preferences-on-facebook-vids/"><u>[Updated] 2024 Approved Aspect Ratio Preferences on Facebook Vids</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-comprehensive-guide-to-cross-posting-youtube-video-on-fb/"><u>[Updated] 2024 Approved Comprehensive Guide to Cross-Posting YouTube Video on FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-expert-fb-video-sharing-tactics-for-desktop-and-handheld-devices-for-2024/"><u>[Updated] Expert FB Video Sharing Tactics for Desktop and Handheld Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-maximize-your-youtube-yields-small-channel-sponsorship-strategies/"><u>[Updated] Maximize Your YouTube Yields Small Channel Sponsorship Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-optimizing-online-content-delivery-to-key-social-media-channels/"><u>2024 Approved Optimizing Online Content Delivery to Key Social Media Channels</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/5-effiziente-techniken-zum-klonen-einer-ms-sql-server-datenbank/"><u>5 Effiziente Techniken Zum Klonen Einer MS SQL Server Datenbank</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/get-your-multiversus-game-up-and-running-on-pc-expert-repair-techniques-revealed/"><u>Get Your MultiVersus Game Up and Running on PC - Expert Repair Techniques Revealed</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-12-pro-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme 12 Pro 5G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-screenshot-and-video-tools-top-8-smartphone-essentials-for-2024/"><u>Innovative Screenshot & Video Tools – Top 8 Smartphone Essentials for 2024</u></a></li>
-<li><a href="https://tools.techidaily.com/movavi/products/"><u>Movavi's Products</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/recover-elusive-facebook-watch-video-icon-for-2024/"><u>Recover Elusive Facebook Watch Video Icon for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/rectifying-identity-mix-up-in-fb-text-exchange-for-2024/"><u>Rectifying Identity Mix-Up in FB Text Exchange for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/transformative-tech-advances-from-1844-onwards-a-selection-of-the-most-significant/"><u>Transformative Tech Advances From 1844 Onwards - A Selection of the Most Significant</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-expert-insights-into-micro-photography-and-film-production/"><u>[New] In 2024, Expert Insights Into Micro Photography and Film Production</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-mastering-youtube-on-facebook-the-art-of-video-creation/"><u>[New] In 2024, Mastering YouTube on Facebook The Art of Video Creation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-niconico-stars-in-snapchat-moments/"><u>[New] Niconico Stars in Snapchat Moments</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unlocking-video-metrics-incorporating-tags-wisely/"><u>[Updated] 2024 Approved Unlocking Video Metrics Incorporating Tags Wisely</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-elevate-brand-recognition-optimizing-facebook-with-keywords-and-links/"><u>[Updated] In 2024, Elevate Brand Recognition Optimizing Facebook with Keywords and Links</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-nixing-facebook-broadcasts-effortlessly-for-2024/"><u>[Updated] Nixing Facebook Broadcasts Effortlessly for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-creativity-in-youtube-video-splitting-for-2024/"><u>[Updated] Unlocking Creativity in YouTube Video Splitting for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-the-process-for-achieving-facebooks-trusted-marker-for-2024/"><u>[Updated] Unveiling the Process for Achieving Facebook's Trusted Marker for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-mastering-hash-tactics-for-thriving-gaming-vids/"><u>2024 Approved Mastering Hash Tactics for Thriving Gaming Vids</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210789706-9782889701445-astro-le-livre-du-feu/"><u>Astro : le livre du Feu | Free Book</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/avatar-asymmetry-artistry-designing-your-animated-look/"><u>Avatar Asymmetry Artistry Designing Your Animated Look</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-gimbals-matched-for-high-res-dslrs/"><u>Best Gimbals Matched for High-Res DSLRs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-innovating-advertising-on-facebook-the-most-effective-videography/"><u>In 2024, Innovating Advertising on Facebook The Most Effective Videography</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-perfectly-preserve-facebook-films-with-top-5-chrome-plugs/"><u>In 2024, Perfectly Preserve Facebook Films with Top 5 Chrome Plugs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/locating-live-broadcasts-and-shared-films-on-fb/"><u>Locating Live Broadcasts and Shared Films on FB</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-efficient-ways-to-extract-and-save-audio-tracks-from-video-files-across-multiple-devices/"><u>New 2024 Approved Efficient Ways to Extract and Save Audio Tracks From Video Files Across Multiple Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ify-video-creation-making-engaging-youtube-trailers-in-filmora/"><u>Simplify Video Creation Making Engaging YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/step-by-step-craft-your-viral-story-in-online-videos/"><u>Step by Step, Craft Your Viral Story in Online Videos</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185841-9788792633699-the-oracle-travels-light/"><u>The Oracle Travels Light | Free Book</u></a></li>
 </ul></div>
 

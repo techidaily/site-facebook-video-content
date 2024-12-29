@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB's Look Back Feature  Edit Tutorial for 2024\""
-date: 2024-12-20T17:27:40.923Z
-updated: 2024-12-23T05:35:23.253Z
+date: 2024-12-22T00:15:57.786Z
+updated: 2024-12-28T21:13:40.377Z
 tags:
   - ai video
   - ai facebook
@@ -35,13 +35,13 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
  Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Powerful Editor to Edit Facebook Look Back Video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Why Choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to edit Facebook Look back video?
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -64,15 +64,15 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -82,20 +82,20 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
@@ -126,18 +126,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-2023s-top-8-video-sensations-a-facebook-deep-dive/"><u>[New] In 2024, 2023'S Top 8 Video Sensations A Facebook Deep Dive</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-boost-your-facebook-profile-select-8-apps-with-highest-like-potential/"><u>[New] In 2024, Boost Your Facebook Profile Select 8 Apps with Highest Like Potential</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-cinematic-closeness-a-kinemaster-expertise-for-close-up-craft/"><u>[New] In 2024, Cinematic Closeness A Kinemaster Expertise for Close-Up Craft</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-integrating-virtual-boards-into-remote-discussions-iphoneipadandroid-and-computers/"><u>[New] In 2024, Integrating Virtual Boards Into Remote Discussions IPhone/iPad/Android and Computers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-reimagining-the-corporate-environment-to-maximize-employee-potential-for-2024/"><u>[Updated] Reimagining the Corporate Environment to Maximize Employee Potential for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-snap-into-fb-shorts-saga/"><u>2024 Approved Snap Into FB Shorts Saga</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-strategic-pricing-analysis-cloud-services-financial-face/"><u>2024 Approved Strategic Pricing Analysis Cloud Services' Financial Face</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/a-step-by-step-guide-altering-text-styles-within-the-aldiko-ebook-player-on-android-systems/"><u>A Step-by-Step Guide: Altering Text Styles Within the Aldiko eBook Player on Android Systems</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/how-to-safely-back-up-your-windows-registry-with-yl-software-solutions/"><u>How to Safely Back Up Your Windows Registry with YL Software Solutions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-prime-selection-of-top-20-humorous-lockdown-memes-lifting-spirits-on-facebook/"><u>In 2024, Prime Selection of Top 20 Humorous Lockdown Memes, Lifting Spirits on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-trailblazing-through-time-era-images-explore-3-inverse-techniques-on-facebook/"><u>In 2024, Trailblazing Through Time-Era Images Explore 3 Inverse Techniques on Facebook</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/screenshot-expert-evaluator-for-2024/"><u>ScreenShot Expert Evaluator for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/six-easy-steps-to-acquire-fb-links-for-free-for-2024/"><u>Six Easy Steps to Acquire FB Links for FREE for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exclusive-list-of-8-best-apps-to-enhance-facebook-likes-for-2024/"><u>[New] Exclusive List of 8 Best Apps To Enhance Facebook Likes for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>[New] In 2024, Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-rokus-potential-engaging-with-facebook-live/"><u>[New] Unveiling Roku's Potential Engaging with Facebook Live</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-palette-perfection-the-colorists-manual/"><u>[Updated] Palette Perfection The Colorist's Manual</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/broadcast-your-best-gameplay-from-xbox-to-fb-live-for-2024/"><u>Broadcast Your Best Gameplay From Xbox to FB Live for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/crafting-success-on-facebook-a-beginners-and-pro-guide-compilation-for-2024/"><u>Crafting Success on Facebook A Beginner's & Pro Guide Compilation for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/google-docs-viewers-revealed-techniques-to-track-file-accesses/"><u>Google Docs Viewers Revealed: Techniques to Track File Accesses</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-motorola-edge-2023-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Motorola Edge 2023 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-displaycast-critique-service/"><u>In 2024, DisplayCast Critique Service</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211257379-9782889702336-le-guide-100-pratique-du-voyage-au-tambour-explorez-les-mondes-chamaniques/"><u>Le guide 100 % pratique du voyage au tambour : Explorez les mondes chamaniques | Free Book</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722962878415-streamlined-procedure-to-get-the-newest-synaptics-drivers-on-windows/"><u>Streamlined Procedure to Get the Newest Synaptics Drivers on Windows!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-role-of-gaming-in-e-commerce-for-2024/"><u>The Role of Gaming in E-Commerce for 2024</u></a></li>
 </ul></div>
 

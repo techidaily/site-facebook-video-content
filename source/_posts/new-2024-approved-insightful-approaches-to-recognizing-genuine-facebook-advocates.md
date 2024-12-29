@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Insightful Approaches to Recognizing Genuine Facebook Advocates\""
-date: 2024-12-16T21:22:50.474Z
-updated: 2024-12-23T07:21:23.708Z
+date: 2024-12-25T21:48:44.377Z
+updated: 2024-12-28T21:50:30.979Z
 tags:
   - ai video
   - ai facebook
@@ -32,10 +32,6 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -44,12 +40,16 @@ No doubt, the Facebook page gains more likes through them, but not effective in 
 
 Businesses dealing with fake followers have staff to maintain these accounts to pass as regular accounts which is a big issue. Influencers often involve through engagement pods on each others’ content and get high ranks for the feeds by fooling the social algorithms. If you access these influencers as a brand in terms of quality, they have nothing substantial to offer you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to spot fake followers on Facebook for Influencer quickly
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 1: Inspect comment
@@ -59,7 +59,11 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
@@ -68,21 +72,17 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
 
@@ -115,19 +115,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-crafting-success-in-fb-video-advertising-a-collection-of-20-essentials/"><u>[New] 2024 Approved Crafting Success in FB Video Advertising – A Collection of 20 Essentials</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-lit-tales-in-just-a-minute/"><u>[New] 2024 Approved Lit Tales in Just a Minute</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-best-practices-in-fb-advertising-leading-video-trends-for-2024/"><u>[New] Best Practices in FB Advertising Leading Video Trends for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-video-frame-changer/"><u>[New] In 2024, Twitter Video Frame Changer</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-strategies-for-televised-social-media-engagements-fb-live/"><u>[New] Strategies for Televised Social Media Engagements FB Live</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-beginners-bane-the-top-8-youtube-errors-you-shouldnt-commit/"><u>[Updated] Beginner's Bane The Top 8 Youtube Errors You Shouldn't Commit</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-final-steps-for-irreversible-tiktok-un-signup/"><u>[Updated] Final Steps for Irreversible TikTok Un-Signup</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-ignite-your-narratives-complimentary-fb-apps-for-everyday-users/"><u>[Updated] Ignite Your Narratives Complimentary FB Apps for Everyday Users</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-to-respond-if-you-see-myself-in-a-facebook-live-video/"><u>2024 Approved How To Respond If You See Myself in a Facebook Live Video</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/5-tips-to-get-more-views-with-youtube-optimization-for-2024/"><u>5 Tips to Get More Views with YouTube Optimization for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/create-captivating-image-slideshows-on-youtube-a-comprehensive-tutorial-for-uploading-pictures-and-converting-them-into-videos/"><u>Create Captivating Image SlideShows on YouTube - A Comprehensive Tutorial for Uploading Pictures and Converting Them Into Videos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/efficient-strategies-eliminating-video-freeze/"><u>Efficient Strategies Eliminating Video Freeze</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-thrustmaster-t300-controller-software-for-windows-11-and-10-free-download-options/"><u>Latest Thrustmaster T300 Controller Software for Windows 11 & 10 - Free Download Options</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-10-leading-ai-named-generators-boosting-podcast-titles/"><u>[New] 10 Leading AI Named Generators Boosting Podcast Titles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-new-developments-in-facebook-2023-edition/"><u>[New] 2024 Approved New Developments in Facebook - 2023 Edition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-horizontal-vs-vertical-deciding-the-right-face-for-vids/"><u>[New] In 2024, Horizontal Vs. Vertical - Deciding the Right Face for Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-bridging-past-video-to-present-streaming-live-via-facebook/"><u>[Updated] 2024 Approved Bridging Past Video to Present Streaming Live via Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-explore-these-8-sizzling-social-media-sensations-on-fb/"><u>[Updated] 2024 Approved Explore These 8 Sizzling Social Media Sensations on FB</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-essential-screen-recording-steps-for-perfection/"><u>[Updated] Essential Screen Recording Steps for Perfection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-innovative-ways-to-create-captivating-slow-motion-videos-for-instagram-fame/"><u>2024 Approved Innovative Ways to Create Captivating Slow Motion Videos for Instagram Fame</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-soundwaves-unleashed-essential-hits-of-viral-tiktok-rappers/"><u>2024 Approved Soundwaves Unleashed Essential Hits of Viral TikTok Rappers</u></a></li>
+<li><a href="https://article-files.techidaily.com/crafting-the-perfect-day-for-podcast-release/"><u>Crafting the Perfect Day for Podcast Release</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dive-into-toms-hardware-wisdom-for-cutting-edge-devices/"><u>Dive Into Tom's Hardware Wisdom for Cutting-Edge Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-vivo-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Vivo FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harmony-in-sounds-legally-downloaded-meditation-chants-and-more-for-2024/"><u>Harmony in Sounds Legally Downloaded Meditation Chants & More for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-huawei-mediapad-m5-review-superior-display-and-immersive-soundscape-awaits/"><u>The Ultimate Huawei MediaPad M5 Review - Superior Display and Immersive Soundscape Awaits!</u></a></li>
 </ul></div>
 
