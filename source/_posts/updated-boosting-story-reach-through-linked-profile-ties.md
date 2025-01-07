@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Story Reach Through Linked Profile Ties"
-date: 2024-12-07T04:36:13.361Z
-updated: 2024-12-08T01:46:51.596Z
+date: 2025-01-04T18:38:50.680Z
+updated: 2025-01-07T20:14:03.014Z
 tags:
   - ai video
   - ai facebook
@@ -51,15 +51,19 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 ![create Facebook Page story](https://images.wondershare.com/filmora/article-images/create-story-on-facebook-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** You need to type the website name and, on the top, you will see the link icon. Once you are ready with the website name, click on the link icon. Now can choose some buttons based on what kind of link you have shared. For example, shop now, book now, call now, and so on.
 
 ![add link to Facebook Page story](https://images.wondershare.com/filmora/article-images/add-link-to-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And that’s it; your story will be added to Facebook Story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Add Link to Facebook Story Using WhatsApp?
 
@@ -75,11 +79,11 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
 
-**Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
 
 ## Part 4: How to Add YouTube Video Link on Facebook Story?
 
@@ -89,15 +93,15 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 ![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
 
 ![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And you will see the Story with YouTube video link at the top of your Story section.
 
@@ -111,21 +115,17 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 
 ![add swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-swipe-up-button-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** On your story page, you see a link icon. Click on that, and you will be able to add the link you want to add to the story. Choose any of the buttons, and the link will now be ready.
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Please note that the swipe option will be visible to your audience only after you have added the link.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Social Media Video Maker and Editor
 
@@ -144,15 +144,15 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 So, that’s it. These are some ways to **add a link to** your **Facebook story.** We hope this article has been helpful to you. Leverage this feature if you are a business page or an influencer and want more people to engage with your website and your brand.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -169,21 +169,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-seamless-conversion-of-video-content-to-dynamic-gif-formats/"><u>[New] 2024 Approved Seamless Conversion of Video Content to Dynamic GIF Formats</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-catching-facebooks-favorite-visual-stories/"><u>[New] In 2024, Catching Facebook's Favorite Visual Stories</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-revolutionizing-tv-broadcasts-with-fb-live-streaming-for-2024/"><u>[New] Revolutionizing TV Broadcasts with FB Live Streaming for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-achieving-seamless-360-streaming-on-facebook/"><u>[Updated] In 2024, Achieving Seamless 360 Streaming on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-fb-easy-listen-no-pay-required/"><u>[Updated] In 2024, FB Easy Listen No Pay Required</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-exclusive-selection-of-the-top-4k-capture-apps/"><u>2024 Approved Exclusive Selection of the Top 4K Capture Apps</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/3-copywriting-structure-for-facebook-ads/"><u>3 Copywriting Structure for Facebook Ads</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-insights-for-optimized-web-analytics-and-conversion-tracking/"><u>Cookiebot Driven Insights for Optimized Web Analytics and Conversion Tracking</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/enhancing-cross-platform-engagement-sharing-tiktok-on-facebook-for-2024/"><u>Enhancing Cross-Platform Engagement Sharing TikTok on Facebook for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/getting-wrc-10-to-run-without-issues-on-windows-fixes-for-frequent-pc-interruptions-during-play/"><u>Getting WRC 10 to Run Without Issues on Windows - Fixes for Frequent PC Interruptions During Play</u></a></li>
-<li><a href="https://win-guides.techidaily.com/guide-facile-localisez-tous-vos-cliches-en-windows-11/"><u>Guide Facile : Localisez Tous Vos Clichés en Windows 11</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/ideas-to-enhance-the-visibility-of-fb-ad-videos-for-2024/"><u>Ideas to Enhance the Visibility of FB Ad Videos for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>In 2024, How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
-<li><a href="https://driver-install.techidaily.com/keep-astro-operating-at-its-best-with-driver-updates-on-windows/"><u>Keep Astro Operating at Its Best with Driver Updates on Windows</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/overcoming-technical-challenges-with-your-jabra-earphones-2024-user-manual/"><u>Overcoming Technical Challenges with Your Jabra Earphones - 2024 User Manual</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/strategies-for-improving-youtubefacebook-video-quality/"><u>Strategies for Improving YouTube/Facebook Video Quality</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-integrating-gopro-adventures-with-popular-social-media-channels/"><u>[New] 2024 Approved Integrating GoPro Adventures with Popular Social Media Channels</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unseen-pathways-to-friend-finder-excellence/"><u>[New] Unseen Pathways to Friend Finder Excellence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-your-essential-gift-a-compact-bundle-of-50-banners/"><u>[Updated] Your Essential Gift A Compact Bundle of 50 Banners!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-snapchat-selfie-aspect-ratios/"><u>2024 Approved Snapchat Selfie Aspect Ratios</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-stay-ahead-the-guide-to-facebooks-new-algorithm/"><u>2024 Approved Stay Ahead The Guide to Facebook's New Algorithm</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-top-8-fb-movie-extraction-tools/"><u>2024 Approved Top 8 FB Movie Extraction Tools</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/gratis-restaurazione-come-recuperare-cartelle-cancellate-su-una-chiavetta-usb-utilizzando-metodi-di-4-modi/"><u>Gratis Restaurazione: Come Recuperare Cartelle Cancellate Su Una Chiavetta USB Utilizzando Metodi Di 4 Modi</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-safely-extract-conversation-records-from-chatgpt-best-practices/"><u>How to Safely Extract Conversation Records From ChatGPT: Best Practices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-z-flip-5-phone-without-google-account-by-drfone-android/"><u>How to Unlock Samsung Galaxy Z Flip 5 Phone without Google Account?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oneplus-ace-2-pro-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your OnePlus Ace 2 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-8-without-apple-id-password-by-drfone-ios/"><u>In 2024, How To Erase an iPhone 8 Without Apple ID Password?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723001818270-is-there-any-disruption-with-xbox-live-servers-latest-status-report/"><u>Is There Any Disruption with Xbox Live Servers? Latest Status Report</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-create-stunning-cartoons-top-mobile-apps-for-animation/"><u>New In 2024, Create Stunning Cartoons Top Mobile Apps for Animation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/syncing-sound-with-visuals-on-facebook-essential-guide/"><u>Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/top-2023s-top-browser-extensions-download-facebook-videos-effortlessly-for-2024/"><u>Top 2023'S Top Browser Extensions Download Facebook Videos Effortlessly for 2024</u></a></li>
 </ul></div>
 

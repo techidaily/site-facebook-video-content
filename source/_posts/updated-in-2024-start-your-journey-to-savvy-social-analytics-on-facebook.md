@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Start Your Journey to Savvy Social Analytics on Facebook"
-date: 2024-12-26T03:59:08.718Z
-updated: 2024-12-28T21:34:46.733Z
+date: 2025-01-03T20:11:14.986Z
+updated: 2025-01-07T19:43:16.658Z
 tags:
   - ai video
   - ai facebook
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 * [**Part 2: Where to Find Facebook Insights**](#part2)
 * [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is Facebook Insights
 
  A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
@@ -48,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Use Facebook Insights for Beginners
@@ -59,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Page Likes
 
  There are three basic metrics in the likes section.
@@ -72,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
@@ -106,7 +106,7 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. People Analytics
@@ -122,7 +122,11 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -130,10 +134,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -152,20 +152,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-to-autoplay-youtube-videos-on-facebook/"><u>[New] 2024 Approved How to Autoplay Youtube Videos on Facebook?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-techniques-for-harvesting-hd-facebook-videos/"><u>[New] In 2024, Techniques for Harvesting HD Facebook Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-enigma-of-missing-video-suggestions-in-your-feed/"><u>[New] In 2024, The Enigma of Missing Video Suggestions in Your Feed</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-the-basics-of-facebook-membership-creation-for-2024/"><u>[New] Unveiling the Basics of Facebook Membership Creation for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2023-how-to-download-facebook-status-videos-in-2024/"><u>[Updated] 2023 | How to Download Facebook Status Videos, In 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-effortless-free-capture-of-your-android-world/"><u>2024 Approved Effortless Free Capture of Your Android World</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/captivate-audiences-techniques-for-livestreaming-video-in-spherical-views-on-youtube-for-2024/"><u>Captivate Audiences Techniques for Livestreaming Video in Spherical Views on YouTube for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/easy-steps-to-multi-task-efficiently-by-dividing-the-desktop-on-windows-11/"><u>Easy Steps to Multi-Task Efficiently by Dividing the Desktop on Windows 11</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevating-your-entertainment-game-on-roku-and-facebook-live-for-2024/"><u>Elevating Your Entertainment Game on Roku and Facebook LIVE for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-california-drivers-can-securely-store-licenses-in-apple-and-google-wallets-step-by-step-guide/"><u>How California Drivers Can Securely Store Licenses in Apple and Google Wallets - Step-by-Step Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/solving-your-plex-remote-connectivity-issues-a-step-by-step-guide/"><u>Solving Your Plex Remote Connectivity Issues: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/mline-marketing-with-top-rated-video-tags-generators/"><u>Streamline Marketing with Top-Rated Video Tags Generators</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-portable-power-a-compact-car-charger-for-all-devices-laptops-tablets-and-phones/"><u>Ultimate Portable Power: A Compact Car Charger for All Devices - Laptops, Tablets & Phones</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-best-beat-sync-video-editing-apps-for-2024/"><u>Updated Best Beat Sync Video Editing Apps for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-ultimate-iphone-video-editing-roundup-top-5-apps/"><u>Updated In 2024, The Ultimate iPhone Video Editing Roundup Top 5 Apps</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-premier-6-discreet-movie-downloader-pros/"><u>[New] 2024 Approved Premier 6 Discreet Movie Downloader Pros</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-step-by-step-procedures-swapping-out-your-facebook-backdrop/"><u>[New] 2024 Approved Step-by-Step Procedures Swapping Out Your Facebook Backdrop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-how-to-get-more-engagement-on-fb-video-content/"><u>[New] In 2024, How to Get More Engagement on FB Video Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-incorporating-tracks-into-online-visual-narratives/"><u>[Updated] 2024 Approved Incorporating Tracks Into Online Visual Narratives</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-gear-up-with-smart-techniques-elevating-your-ps4-gameplay-capture-abilities/"><u>[Updated] Gear Up with Smart Techniques Elevating Your PS4 Gameplay Capture Abilities</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-timelessly-taken-selfies-from-the-bygone-era/"><u>2024 Approved Timelessly Taken Selfies From the Bygone Era</u></a></li>
+<li><a href="https://techtrends.techidaily.com/m4a-mkv-movavi/"><u>免費線上服務：改變 M4A 成功 MKV - 使用 Movavi 音訊編解碼器</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/advanced-multimedia-editor-macx-hd-pro-on-windows-11-seamless-conversion-of-videos-to-iosandroid-compatible-formats-including-mkv-and-wmv/"><u>Advanced Multimedia Editor MacX HD Pro on Windows 11 – Seamless Conversion of Videos to iOS/Android Compatible Formats Including MKV & WMV</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/como-hacer-backups-automaticos-swiftly-tecnicas-faciles-para-windows-7/"><u>Cómo Hacer Backups Automáticos Swiftly: Técnicas Fáciles Para Windows 7</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-realme-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/techniques-for-captivating-visual-fb-ads-for-2024/"><u>Techniques for Captivating Visual FB Ads for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-computer-secrets-at-toms-hardware-fortress/"><u>Unveiling Computer Secrets at Tom's Hardware Fortress</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-potential-of-apples-pocket-sized-marvel-an-insightful-look-at-the-ipad-mini-5/"><u>Unveiling the Potential of Apple's Pocket-Sized Marvel: An Insightful Look at the iPad Mini 5</u></a></li>
 </ul></div>
 

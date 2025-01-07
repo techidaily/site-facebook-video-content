@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Efficiently Explore Every Entry  Facebook Profile Hunt 101 for 2024\""
-date: 2024-12-27T17:00:53.320Z
-updated: 2024-12-29T04:24:17.225Z
+date: 2025-01-05T16:35:02.595Z
+updated: 2025-01-07T16:29:09.523Z
 tags:
   - ai video
   - ai facebook
@@ -35,7 +35,7 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to search people on Facebook
@@ -44,21 +44,25 @@ Here are two ways to search people on Facebook. The second option also helps you
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Check your list of Friends on Facebook
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 4: Friends Search
 
@@ -70,23 +74,19 @@ On the left panel, you can find several names matching your search filter. You j
 
 ## Part 2: How to search people using Search Is Back
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -99,7 +99,7 @@ Once you have filled in all the filters in the page, you can hit Find People but
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,11 +114,11 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -135,17 +135,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-youtube-on-fb-maximizing-auto-play-efficiency/"><u>[New] 2024 Approved YouTube on FB Maximizing Auto-Play Efficiency</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-blueprint-for-successful-biographies-top-tips-and-techniques-from-experts/"><u>[New] The Blueprint for Successful Biographies Top Tips & Techniques From Experts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fixing-freeze-problems-in-fb-livestreams/"><u>[Updated] 2024 Approved Fixing Freeze Problems in FB Livestreams</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-inside-out-the-explanation-for-youtubes-unlisted-media/"><u>[Updated] Inside Out The Explanation for YouTube's Unlisted Media</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-digital-deck-changes-predicting-the-future-of-fb-ads/"><u>2024 Approved The Digital Deck Changes Predicting the Future of FB Ads</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-logitech-brio-webcam-drivers-for-widows-1187-easy-installation-guide/"><u>Get the Latest Logitech Brio Webcam Drivers for Widows 11/8/7 - Easy Installation Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-oppo-a56s-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Oppo A56s 5G to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-fix-and-install-broadcom-gigabit-ethernet-drivers-on-your-windows-10-machine-successfully/"><u>How to Fix and Install Broadcom Gigabit Ethernet Drivers on Your Windows 10 Machine Successfully</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-poco-x6-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Poco X6</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-convert-facebook-posts-to-mp3-files/"><u>In 2024, Convert Facebook Posts to MP3 Files</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-revolutionize-your-photo-editing-skills-with-pixlr-insights/"><u>In 2024, Revolutionize Your Photo Editing Skills with Pixlr Insights</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-budget-deals-on-high-quality-gopros/"><u>[New] Budget Deals on High-Quality GoPros</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-crack-the-code-of-content-discovery-on-facebook-for-2024/"><u>[New] Crack the Code of Content Discovery on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-enhancing-visibility-key-steps-in-social-media-video-marketing-for-2024/"><u>[New] Enhancing Visibility Key Steps in Social Media Video Marketing for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-hidden-powerhouses-in-your-instagram-toolkit/"><u>[New] In 2024, The Hidden Powerhouses in Your Instagram Toolkit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-uncovering-your-just-watched-list-on-facebook/"><u>[New] In 2024, Uncovering Your Just-Watched List on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-polishing-profile-vids-tips-and-tricks/"><u>[New] Polishing Profile Vids Tips and Tricks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-insiders-look-at-creating-viral-fb-cover-videos/"><u>[New] The Insider's Look at Creating Viral FB Cover Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-effortlessly-traverse-facebooks-past-posts/"><u>[Updated] 2024 Approved Effortlessly Traverse Facebook’s Past Posts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-gaming-evolved-streaming-xbox-content-on-facebook/"><u>[Updated] In 2024, Gaming Evolved Streaming Xbox Content on Facebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-igtv-followers-essential-techniques-to-grow-your-audience/"><u>[Updated] In 2024, Mastering IGTV Followers Essential Techniques to Grow Your Audience</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1715859817771-updated-seeking-authentic-ps2-play-check-out-the-5-best-android-simulators/"><u>[Updated] Seeking Authentic PS2 Play? Check Out the 5 Best Android Simulators!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamline-your-content-on-youtube-a-detailed-tutorial/"><u>[Updated] Streamline Your Content on YouTube A Detailed Tutorial</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-reviews-top-5-masterful-motion-capture-devices-for-2024/"><u>Expert Reviews Top 5 Masterful Motion Capture Devices for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/managing-a-day-job-and-your-thriving-youtube-channel-for-2024/"><u>Managing a Day Job and Your Thriving YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-soundtrack-strategy-addmpy-in-videos-on-fb-for-2024/"><u>The Soundtrack Strategy Addmpy in Videos on FB for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transform-your-phones-background-with-our-dynamic-digital-dashboard-compatible-live-wallpapers/"><u>Transform Your Phone's Background with Our Dynamic Digital Dashboard-Compatible Live Wallpapers!</u></a></li>
 </ul></div>
 
