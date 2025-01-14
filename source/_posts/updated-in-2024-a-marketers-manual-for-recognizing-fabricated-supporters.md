@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Marketer’s Manual for Recognizing Fabricated Supporters"
-date: 2025-01-01T17:26:42.810Z
-updated: 2025-01-07T18:23:03.753Z
+date: 2025-01-09T03:38:04.658Z
+updated: 2025-01-14T04:59:55.617Z
 tags:
   - ai video
   - ai facebook
@@ -45,7 +45,7 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 1: Inspect comment
@@ -55,7 +55,11 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
@@ -63,6 +67,10 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
 
@@ -73,7 +81,7 @@ Fake followers on Facebook can be detected if all of a sudden follower count inc
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -81,14 +89,6 @@ For tracking fake followers on Facebook, you need to know their location. Knowin
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -115,18 +115,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-a-thorough-examination-adobe-lightroom-for-android-users-for-2024/"><u>[New] A Thorough Examination Adobe Lightroom for Android Users for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-stay-ahead-in-the-stream-top-5-video-capture-platforms-reviewed-for-2024/"><u>[New] Stay Ahead in the Stream Top 5 Video Capture Platforms Reviewed for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-mystery-of-non-existent-videos-insight-into-fb-feed-absence-for-2024/"><u>[New] The Mystery of Non-Existent Videos Insight Into FB Feed Absence for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-be-the-game-changer-xbox-one-screen-recording-mastery/"><u>[Updated] 2024 Approved Be the Game Changer Xbox One Screen Recording Mastery</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-four-approaches-to-airing-fb-live-on-tv-channels/"><u>2024 Approved Four Approaches to Airing FB Live on TV Channels</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-poco-c50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Poco C50 | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/accelerate-your-storytelling-with-customized-speed-settings-for-2024/"><u>Accelerate Your Storytelling with Customized Speed Settings for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevate-your-facebook-chronicles-with-gratuitous-upgrades/"><u>Elevate Your Facebook Chronicles with Gratuitous Upgrades</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebook-visual-posts-aspect-ratio-considerations-for-2024/"><u>Facebook Visual Posts Aspect Ratio Considerations for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oneplus-open-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of OnePlus Open Without PUK Codes</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-find-x6-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Find X6 Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-speedy-windowed-image-viewer/"><u>In 2024, Speedy Windowed Image Viewer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2023s-fb-url-vault-securely-access-8-free-downloads-online-for-2024/"><u>[New] 2023'S FB URL Vault Securely Access 8 Free Downloads Online for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elevate-your-online-identity-with-tailored-fb-slideshow-content/"><u>[New] 2024 Approved Elevate Your Online Identity with Tailored FB Slideshow Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-enhanced-mp4-streaming-for-facebook-networks/"><u>[New] Enhanced MP4 Streaming for Facebook Networks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-the-world-of-fb-instream-ads-a-comprehensive-setup-manual/"><u>[New] In 2024, Navigating the World of FB Instream Ads A Comprehensive Setup Manual</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-step-by-step-inserting-chapters-in-vimeo-videos-for-2024/"><u>[New] Step-by-Step Inserting Chapters in Vimeo Videos for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-top-rated-apps-for-taking-screenshots-in-windows-8-for-2024/"><u>[New] Top-Rated Apps for Taking Screenshots in Windows 8 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elite-4k-gaming-laptops-ranked-1/"><u>[Updated] 2024 Approved Elite 4K Gaming Laptops Ranked #1</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-how-much-do-you-really-make-as-a-podcaster/"><u>[Updated] 2024 Approved How Much Do You Really Make as a Podcaster?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-invisible-viewers-of-fb-episodes/"><u>[Updated] 2024 Approved Invisible Viewers of Fb Episodes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-seamless-video-transmission-success-in-facebook-messengers-iphoneandroid/"><u>[Updated] 2024 Approved Seamless Video Transmission Success in Facebook Messengers, iPhone/Android</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-streamlining-your-site-facebook-live-integration-guide/"><u>[Updated] Streamlining Your Site Facebook LIVE Integration Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-decoding-fb-lives-multiscreen-mastery-techniques/"><u>2024 Approved Decoding FB Live's Multiscreen Mastery Techniques</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-xiaomi-redmi-note-13-pro-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Xiaomi Redmi Note 13 Pro 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-mkv-movies-on-galaxy-s24-ultra-is-it-possible-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Play MKV movies on Galaxy S24 Ultra, is it possible?</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-enhancing-visuals-the-guide-to-blending-photos-with-music-for-2024/"><u>Updated Enhancing Visuals The Guide to Blending Photos with Music for 2024</u></a></li>
 </ul></div>
 

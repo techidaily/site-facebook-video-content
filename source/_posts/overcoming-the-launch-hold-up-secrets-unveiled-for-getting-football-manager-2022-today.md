@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Launch Hold-Up: Secrets Unveiled For Getting Football Manager 2022 Today"
-date: 2025-01-04T18:45:40.916Z
-updated: 2025-01-07T21:41:48.488Z
+date: 2025-01-12T22:12:28.160Z
+updated: 2025-01-14T01:02:57.689Z
 tags:
   - win11
   - win10
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
  Football Manager 2022 PC players are reporting that the game is crashing at launch or not starting at all. Here is how to fix Football Manager 2022 not launching issue.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Football Manager 2022 launch issues?
 
  Here are a few fixes that have helped other users resolve their Football Manager 2022 not launching problem. You may not need to try them all; just work your way down the list until you find the one that works for you.”
@@ -36,9 +32,17 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 7. [**Open the game in windowed mode**](https://tools.techidaily.com/drivereasy/download/)
 8. **[Repair your system files](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 1\. Check your PC specs
 
  Make sure you’re playing Football Manager 2022 in a 64-bit processor and operating system. If you’re on a 32-bit system, it’s recommended to upgrade your system and perhaps your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2\. Add an exception to your antivirus
 
@@ -51,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 * **[McAfee](https://service.mcafee.com/?page=shell&shell=article-view&articleId=TS102056)**
 
  Or you can uninstall your antivirus temporarily (note that disabling it won’t work) and be very careful about the websites you’re visiting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3\. Update your graphics driver
 
@@ -65,20 +73,16 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/driver-easy-5.7.1.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.(This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![update all drivers](https://images.drivereasy.com/wp-content/uploads/2021/10/update-all.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
 After updating your drivers, restart your PC and test the gameplay.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4\. Verify the integrity of game files
 
@@ -91,6 +95,10 @@ After updating your drivers, restart your PC and test the gameplay.
 
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once complete, launch the game to check if your game is working again.
 
@@ -106,6 +114,10 @@ Once complete, launch the game to check if your game is working again.
 
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 6\. Run the game executable file as admin
 
  If you can’t launch Football Manager 2022 after following the steps above, you may want to run this executable game file directly to see if this helps.
@@ -113,10 +125,6 @@ Once complete, launch the game to check if your game is working again.
  1) Right-click **Football Manager 2021** from the game list and click **Properties** .
 
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  2) Select **Local Files** and then**Browse local files** .
 
@@ -131,18 +139,14 @@ Once complete, launch the game to check if your game is working again.
  1) Right-click on Football Manager 2021 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
 
- Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
 
 ### Fix 8\. Repair your system files
 
@@ -169,10 +173,6 @@ Once complete, launch the game to check if your game is working again.
  2) Open Fortect and run a free scan. This might take 3\~5 minutes to fully analyze your PC. Once complete, you will be able to review the detailed scan report.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  3) You’ll see the summary of detected issues on your PC. Click **START REPAIR** and all the issues will be fixed automatically. (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).
 
@@ -201,7 +201,7 @@ sfc /scannow
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/scan-now.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4) You may receive something like the following messages after the verification.
@@ -261,22 +261,16 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-blue-badge-breakdown-a-guide-to-social-media-credibility/"><u>[New] 2024 Approved The Blue Badge Breakdown A Guide to Social Media Credibility</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-elevate-your-influence-with-masterful-facebook-story-techniques/"><u>[New] In 2024, Elevate Your Influence with Masterful Facebook Story Techniques</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-foundations-of-facebook-video-marketing/"><u>[New] In 2024, The Foundations of Facebook Video Marketing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-ultimate-smartphone-to-vr-makeover-tutorial/"><u>[New] The Ultimate Smartphone-to-VR Makeover Tutorial</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tips-and-tricks-adjusting-aspect-ratios-for-effective-fb-sharing/"><u>[Updated] In 2024, Tips & Tricks Adjusting Aspect Ratios for Effective FB Sharing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-inquiry-exploring-shared-videos-and-images-in-direct-conversations/"><u>[Updated] Inquiry Exploring Shared Videos & Images in Direct Conversations</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>2024 Approved Easy Paths to Profitable YouTube Business Channels, Top 10 List!</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-perfect-your-social-media-presence-wirecast-streaming-tips/"><u>2024 Approved Perfect Your Social Media Presence Wirecast Streaming Tips</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlock-hd-potential-for-your-social-media-platform-fb/"><u>2024 Approved Unlock HD Potential for Your Social Media Platform (FB)</u></a></li>
-<li><a href="https://win-latest.techidaily.com/1728464557235-windows-11/"><u>三种办法在保留程序完整性的前提下为Windows 11进行再生产：详解</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/exploring-boundaries-sharing-360-photos-from-mobile-devices-for-2024/"><u>Exploring Boundaries Sharing 360 Photos From Mobile Devices for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-huawei-nova-y71-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Huawei Nova Y71 Devices | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-perform-a-cmos-memory-erase-for-refreshed-bios-configurations/"><u>How To Perform a CMOS Memory Erase for Refreshed BIOS Configurations</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-roguelikes-traditional-tactics-vs-modern-mechanics/"><u>In 2024, Roguelike's Traditional Tactics Vs. Modern Mechanics</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/mastery-of-video-dimensions-achieving-balanced-facebook-posts-for-2024/"><u>Mastery of Video Dimensions Achieving Balanced Facebook Posts for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-future-of-convenient-pet-feeding-discover-arfs-revolutionary-automatic-pet-dispenser/"><u>The Future of Convenient Pet Feeding - Discover Arf's Revolutionary Automatic Pet Dispenser</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-messages-from-lava-blaze-2-pro-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Lava Blaze 2 Pro</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-az-video-grabber-in-depth-app-analysis-and-diversions/"><u>[New] 2024 Approved AZ Video Grabber In-Depth App Analysis & Diversions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-beyond-viral-tactics-uncovering-the-facts-about-reels-on-instagram/"><u>[New] 2024 Approved Beyond Viral Tactics Uncovering the Facts About Reels on Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-elevate-your-facebook-voice-with-gratuitous-enhancement-tools/"><u>[New] In 2024, Elevate Your Facebook Voice with Gratuitous Enhancement Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-personal-emblem-creation-fashioning-an-exaggerated-self/"><u>[New] In 2024, Personal Emblem Creation Fashioning an Exaggerated Self</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-enhancing-gaming-the-ultimate-xbox-screen-recorders-guide/"><u>[Updated] In 2024, Enhancing Gaming The Ultimate Xbox Screen Recorder's Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-paving-the-way-for-smooth-video-autoplay-on-social-media-platforms/"><u>[Updated] In 2024, Paving the Way for Smooth Video Autoplay on Social Media Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2023-how-to-find-facebook-recently-watched-videos/"><u>2023 | How to Find Facebook Recently Watched Videos?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-vivo-y100i-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Vivo Y100i Phone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-samsung-galaxy-f14-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Samsung Galaxy F14 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/key-commodities-for-your-company-8-indispensable-tools-that-cant-be-ignored-for-2024/"><u>Key Commodities for Your Company 8 Indispensable Tools That Can’t Be Ignored for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/regain-stability-the-definitive-net-window-repair-guide-max-156/"><u>Regain Stability: The Definitive .NET Window Repair Guide (Max 156)</u></a></li>
 </ul></div>
 

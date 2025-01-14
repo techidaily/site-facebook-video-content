@@ -1,7 +1,7 @@
 ---
 title: "Unraveling the Web of Social Media Illusions for Marketers"
-date: 2025-01-02T21:35:51.329Z
-updated: 2025-01-07T22:34:25.162Z
+date: 2025-01-07T00:13:29.109Z
+updated: 2025-01-14T04:47:29.680Z
 tags:
   - ai video
   - ai facebook
@@ -32,10 +32,6 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -45,7 +41,7 @@ No doubt, the Facebook page gains more likes through them, but not effective in 
 Businesses dealing with fake followers have staff to maintain these accounts to pass as regular accounts which is a big issue. Influencers often involve through engagement pods on each others’ content and get high ranks for the feeds by fooling the social algorithms. If you access these influencers as a brand in terms of quality, they have nothing substantial to offer you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to spot fake followers on Facebook for Influencer quickly
@@ -58,22 +54,34 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -82,10 +90,6 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have realized that finding fake Facebook followers is not that tough, if you learn the right way to do. The above mentioned points in the article would assist you in getting the best out of Facebook fake follower tracking and resolving.
@@ -93,10 +97,6 @@ From the above article, we have realized that finding fake Facebook followers is
 Knowing these aspects, you will be able to protect your brand page and garner genuine followers on Facebook without any hassle. Ensure that while picking a third party tool, opt for a trustworthy one so that your Facebook page gains better results and genuine followers.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -115,17 +115,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-fb-stream-to-sound-an-audio-conversion-tool-for-2024/"><u>[New] FB Stream to Sound An Audio Conversion Tool for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-streamline-your-storage-download-vimeo-videos-in-mp4-formats/"><u>[New] In 2024, Streamline Your Storage Download Vimeo Videos in MP4 Formats</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-social-syncopation-the-rhythm-of-sharing-media-on-facebook/"><u>[New] Social Syncopation The Rhythm of Sharing Media on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-broadcasting-fb-movies-on-whatsapp-for-2024/"><u>[Updated] Broadcasting FB Movies on WhatsApp for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-myvideocapture-social-media-video-download/"><u>[Updated] MyVideoCapture Social Media Video Download</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-navigating-the-social-sphere-instaplustiktok/"><u>[Updated] Navigating the Social Sphere Insta+TikTok</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-silent-canvases-unscheduled-vid-removal/"><u>[Updated] Silent Canvases Unscheduled Vid Removal</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/a-step-by-step-guide-to-updating-photos-and-videos-on-instagram/"><u>A Step-by-Step Guide to Updating Photos and Videos on Instagram</u></a></li>
-<li><a href="https://win-forum.techidaily.com/easy-setup-instructions-for-activating-your-revo-app-manager/"><u>Easy Setup Instructions for Activating Your Revo App Manager</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210968395-9781088227381-encuentros-con-la-verdad/"><u>Encuentros con la Verdad | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210408450-9781735173870-finding-everyday-magic/"><u>Finding Everyday Magic | Free Book</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-device-companion-for-metaventureers-for-2024/"><u>The Ultimate Device Companion for Metaventureers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-mastering-full-screen-fb-video-settings/"><u>[New] 2024 Approved Mastering Full-Screen FB Video Settings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-airborne-broadcasting-how-to-stream-with-dji-drones-for-2024/"><u>[New] Airborne Broadcasting How to Stream with DJI Drones for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exploring-the-past-of-social-storytelling-step-by-step-laptopmobile-process-for-2024/"><u>[New] Exploring the Past of Social Storytelling Step-by-Step Laptop/Mobile Process for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ancient-images-modern-preservation-the-art-and-science-of-old-print-digitizing/"><u>[New] In 2024, Ancient Images, Modern Preservation The Art & Science of Old Print Digitizing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-free-web-meeting-applications-your-ultimate-guide-to-cloud-collaboration/"><u>[Updated] Free Web Meeting Applications Your Ultimate Guide to Cloud Collaboration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-next-gen-experience-vr-in-leisure-and-media/"><u>[Updated] In 2024, Next-Gen Experience VR in Leisure and Media</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-androids-facetime-essentials-explained/"><u>2024 Approved Android's FaceTime Essentials Explained</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-reclaiming-gone-reddit-content-a-time-saving-guide/"><u>2024 Approved Reclaiming Gone-Reddit Content A Time-Saving Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ideal-termination-immersive-reality/"><u>Ideal Termination Immersive Reality</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-videosnap-messenger-edition/"><u>In 2024, VideoSnap – Messenger Edition</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimal-start-menu-no-commercials-here/"><u>Optimal Start Menu: No Commercials Here!</u></a></li>
 </ul></div>
 

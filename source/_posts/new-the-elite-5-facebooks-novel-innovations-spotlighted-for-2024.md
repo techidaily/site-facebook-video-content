@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Elite 5  Facebook's Novel Innovations Spotlighted for 2024\""
-date: 2025-01-04T17:02:54.414Z
-updated: 2025-01-07T20:19:58.047Z
+date: 2025-01-08T02:14:30.560Z
+updated: 2025-01-13T19:37:38.218Z
 tags:
   - ai video
   - ai facebook
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -43,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -52,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Facebook Live
@@ -62,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
@@ -75,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Group Videos
@@ -83,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,18 +103,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-make-viral-buzz-on-facebook/"><u>[New] How to Make Viral Buzz on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-11-cutting-edge-techniques-for-optimizing-your-fb-videos/"><u>[Updated] 2024 Approved 11 Cutting-Edge Techniques for Optimizing Your FB Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhancing-follows-into-genuine-subscriptions/"><u>[Updated] 2024 Approved Enhancing Follows Into Genuine Subscriptions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-setting-up-your-vlog-fb-preferred-dimensions/"><u>[Updated] 2024 Approved Setting Up Your Vlog FB Preferred Dimensions</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-from-novice-to-pro-your-journey-with-the-io-screener-for-2024/"><u>[Updated] From Novice to Pro Your Journey with the IO Screener for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigating-networks-generating-social-media-sensations/"><u>[Updated] In 2024, Navigating Networks Generating Social Media Sensations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-making-sporting-scenes-spectacomed/"><u>[Updated] Making Sporting Scenes Spectacomed</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-proven-strategies-for-successful-youtube-shorts-for-2024/"><u>[Updated] Proven Strategies for Successful YouTube Shorts for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/efficiently-update-and-download-lenovo-ideapad-100-drivers-compatible-with-windows-11-complete-instructions/"><u>Efficiently Update and Download Lenovo IdeaPad 100 Drivers Compatible with Windows 11 - Complete Instructions</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-back-time-iphones-video-reversal-trick/"><u>In 2024, Navigating Back Time IPhone's Video Reversal Trick</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-roadmap-how-to-make-your-covers-shine/"><u>In 2024, The Roadmap How To Make Your Covers Shine</u></a></li>
-<li><a href="https://techtrends.techidaily.com/securing-your-profile-updating-your-secret-code-on-x/"><u>Securing Your Profile: Updating Your Secret Code on X</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/taming-the-gray-windows-outage/"><u>Taming the Gray Windows Outage</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-profile-persona-painting-crafting-an-animated-imagery/"><u>[New] 2024 Approved Profile Persona Painting Crafting an Animated Imagery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-youtube-spots-for-video-marketing-success/"><u>[New] 2024 Approved Top YouTube Spots for Video Marketing Success</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-8-trending-videos-on-facebook-for-2024/"><u>[New] 8 Trending Videos on Facebook for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-quicktakes-why-videos-thrive-on-twitter-writes/"><u>[New] In 2024, QuickTakes Why Videos Thrive on Twitter' Writes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-free-software-strategies-for-efficient-educational-streaming-for-2024/"><u>[Updated] Free Software Strategies for Efficient Educational Streaming for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-peering-behind-recordcasts-curtain/"><u>[Updated] Peering Behind RecordCast's Curtain</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-to-claim-facebooks-accredited-elite-verification/"><u>2024 Approved How to Claim Facebook's Accredited, Elite Verification</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mobiledesktop-seamless-fb-video-downloading-2023/"><u>2024 Approved Mobile/Desktop Seamless FB Video Downloading, 2023</u></a></li>
+<li><a href="https://win-able.techidaily.com/epa-2015-glyphosate-and-aminomethylphosphonic-acid-retrieved-from-(httpswwwepagovinventorysearchresultssourcegandcompoundandnameaminomethylphphosphonic20aci538/"><u>EPA (2015). Glyphosate and Aminomethylphosphonic Acid. Retrieved From <https://www.epa.gov/inventory/search_results/?source=G&compound=&name=AMINOMETHYLPHPHOSPHONIC ACID&smi=C13H8NClO5P></u></a></li>
+<li><a href="https://win-luxury.techidaily.com/fehlerbehebung-fur-windows-migrationshilfe-losungsansatze-fur-haufig-auftretende-probleme/"><u>Fehlerbehebung Für Windows-Migrationshilfe: Lösungsansätze Für Häufig Auftretende Probleme</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/preparing-for-facebooks-updated-marketing-strategy/"><u>Preparing for Facebook’s Updated Marketing Strategy</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamlining-image-editing-taking-out-backgrounds-for-2024/"><u>Streamlining Image Editing Taking Out Backgrounds for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-journey-to-facebooks-high-level-status-symbol/"><u>The Journey to Facebook's High-Level Status Symbol</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-path-to-digital-riches-on-facebook/"><u>The Path to Digital Riches on Facebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/uncover-solutions-for-overcoming-fallout-4s-black-screen-challenge/"><u>Uncover Solutions for Overcoming Fallout 4'S Black Screen Challenge</u></a></li>
 </ul></div>
 

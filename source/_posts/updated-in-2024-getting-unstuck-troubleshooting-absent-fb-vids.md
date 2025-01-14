@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Getting Unstuck  Troubleshooting Absent FB Vids\""
-date: 2024-07-23T23:18:25.271Z
-updated: 2024-07-24T23:18:25.271Z
+date: 2025-01-12T16:11:59.050Z
+updated: 2025-01-13T19:30:13.432Z
 tags:
   - ai video
   - ai facebook
@@ -41,16 +41,10 @@ Part 2: [How Does Facebook Determine Which Videos Are Suggested for You?](#step2
 
 Part 3: [How Can You Customize the Suggested Videos Yourself?](#step3)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. Reasons for Facebook Suggested Videos Not Showing Up
 
 Facebook has various tabs and features that the user can access and use. Facebook has a Feed that is always full of fun stuff, your friend’s status and life updates, etc. You can also message, call and video call your loved ones who are far away from you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![reasons for suggested videos not showing up](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-1.jpg)
 
 There is another section on Facebook that holds a variety of videos. The section keeps an eye on you. It only consists of videos for fun and entertainment. It has been reported sometimes that the **Facebook suggested videos not showing up.** In any such scenario, we always figure out a way to watch the videos, but no one bothers to know about the reasoning factors that have caused this problem.
@@ -81,9 +75,6 @@ A corrupt cache is another big reason why your Fb suggested videos don't show up
 
 For this scenario, the suggested solution is to stop Facebook forcefully. Once that is done, now it’s time to clear and empty the cache for applications' better performance.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Update Required
 
 The last reason that might be causing this problem is the old version of Facebook. This tip is specifically for iPhone and also Android users. This trouble is very common as most people forget to Update the applications, which in return causes some problems.
@@ -96,9 +87,6 @@ As mentioned earlier, Facebook has a section where various hundreds of videos ar
 
 The coming section of this article will walk you through several factors on the basis on which the suggested videos are displayed. Let’s get started.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Videos Popularity
 
 The number 1 reason that how could some random videos make their way to your suggested videos is the popularity of any particular video. If you find any unusual video in your videos section, then the first thing that should come to your mind is that the video is popular all over Facebook and the internet.
@@ -107,195 +95,6 @@ Any video that offers entertainment, good and quality content, motivation quotes
 
 So, any famous or trending video that a lot of Facebook users have viewed, shared, liked, or commented on will automatically make its way to your and others' suggested video tab. This is how random videos show up in your suggested videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
-### 2\. People and Pages You Follow
-
-Another factor that aids in bringing random videos to your Facebook suggested videos section is whom you follow and like. Like the real world, Facebook is that platform where every person has their own identify, their accounts. Every business, different startups have their pages. Influencers have pages from where they can spread their voice through their content.
-
-Being Facebook users, we follow different pages and follow different people as well. We add different friends on Facebook as it is the social media platform that aims to provide connectivity. So hence, in simple words, we are surrounded by many different personalities who have entirely different approaches, preferences, likes, and dislikes.
-
-Several videos in your suggested video section come from the people and pages you are surrounded by. The pages and people whom you follow there liked and viewed videos end up in your videos section too.
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 3\. How Can You Customize the Suggested Videos Yourself?
-
-Whenever we sit and scroll on Facebook to kill, sometimes we actually end up killing hours of our day. Facebook is that hub where you will find unlimited entertainment in all categories. Once you involve yourself in that, you cannot easily get out of it.
-
-Sometimes we love one video so much that we want to see more of such videos. For that, what could possibly be done? Search for videos? Search for related pages? These solutions sound quite impossible.
-
-If you want to customize your suggested videos and get more of your favorite videos, then this section of the article is going to share the steps to get this customization done.
-
-### For Mobile Devices
-
-If you want to customize the suggested videos section on your mobile, then it is very simple. We suggest you follow the steps given below, and you will easily customize the videos.
-
-**Step 1:** The first and basic step for this customization is opening Facebook on your mobile device. Then, locate the ‘Watch’ option from the Facebook shortcut bar.
-
-![access facebook app watch](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-2.jpg)
-
-**Step 2:** In the watch section, you are supposed to head over to your favorite video. You will see three-horizontal dots on top of every video; click on that. Upon clicking, a drop-down menu will show up on the screen.
-
-![tap on three dots](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-3.jpg)
-
-**Step 3:** From that drop-down menu, you are required to select the ‘See More’ option. With this option, you are more like following that page and telling Facebook that you prefer to watch these videos, and this is how your favorite videos are customized to stay on top.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
-![click on see more button](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-4.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### For Computer
-
-For computer Facebook users, you can also customize your suggested videos with 3 easy steps. Given below are the steps to guide you for this type of customization.
-
-**Step 1:** Start with opening the browser and logging in to your Facebook account.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
-![login your facebook account](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-5.jpg)
-
-**Step 2**: Now, head over to the ‘Watch’ section and scroll down and look for your favorite video. Once found, you first have to ‘Open and Watch’ it. When the video is played, you will see three horizontal dots on the screen.
-
-![access facebook watch](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-6.jpg)
-
-**Step 3:** If you click on those three horizontal dots, a drop-down menu appears in front of you. You will see an option of 'Follow' in that menu. You simply have to click on it to follow the page. This way, you have customized your videos section, and your favorite videos will always stay on top.
-
-![tap on follow option](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Bonus Tip: Powerful and Facebook Compatible Video Editor - Wondershare Filmora
-
-When you talk about videos, you should never forget about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora is the editing guru for videos. This is a very popular and brilliant video editing software. Many impressive and attractive videos on the internet that we all love to watch are edited with this editor.
-
-Filmora has an endless list of features that can drastically change your video into a masterpiece with just a few clicks and a little bit of editing. You can split-screen, trim your videos, join different videos together. Filmora does not restrict you to one file format. You can export the video file in your desired format and share it anywhere you want to.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Bottom Line
-
-As mentioned earlier that this article has everything one would want to know about Facebook suggested videos. The entertaining feature of Facebook can sometimes cause trouble. It is very much possible that you face the problem of **Facebook suggested videos not showing up.**
-
-This article has provided you with various reasons that cause this type of problem and create such a scenario. Not just the resulting factors, but we also shed light on the reasons that how random videos end up in your suggested video section. We have also shared the steps needed in case you plan on customizing your videos.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-In the early years, Facebook was merely to connect with your friends and family and to get entertained, whereas today, Facebook is a market with a huge customer influx. Facebook is the best way to promote your startups. Facebook is that platform that provides you with the customer, product, and product owners, all at the same place.
-
-In this social media world, Facebook has gained great popularity. Today, Facebook is the most used platform, the biggest hub for entertainment, and the biggest sale purchase platform. With Facebook, you can connect with others and get entertained by the suggested videos. One reported problem is that **Facebook Suggested videos not showing**. Let’s discuss this with you.
-
-**Bonus Tip: Powerful and Facebook Compatible Video Editor - Wondershare Filmora**
-
-#### In this article
-
-Part 1: [Reasons for Facebook Suggested Videos Not Showing Up.](#step1)
-
-Part 2: [How Does Facebook Determine Which Videos Are Suggested for You?](#step2)
-
-Part 3: [How Can You Customize the Suggested Videos Yourself?](#step3)
-
-## Part 1\. Reasons for Facebook Suggested Videos Not Showing Up
-
-Facebook has various tabs and features that the user can access and use. Facebook has a Feed that is always full of fun stuff, your friend’s status and life updates, etc. You can also message, call and video call your loved ones who are far away from you.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![reasons for suggested videos not showing up](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-1.jpg)
-
-There is another section on Facebook that holds a variety of videos. The section keeps an eye on you. It only consists of videos for fun and entertainment. It has been reported sometimes that the **Facebook suggested videos not showing up.** In any such scenario, we always figure out a way to watch the videos, but no one bothers to know about the reasoning factors that have caused this problem.
-
-In this section of the article, we will highlight the various reasons why Facebook suggested videos are not showing up.
-
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### 1\. Improper Launching
-
-One resulting factor that might cause your **Facebook suggested videos not to show up** is the improper launch of the application. Sometimes improper launch hinders your way and blocks the view of suggested videos.
-
-You should always try to treat the problem on time. You are suggested to follow the given solutions for this particular problem because you never know what might work for you. First of all, you should log out from Facebook, and you can also delete the browser completely. After that, you should install it fresh. You should also restart your system. Then give it some time to work properly.
-
-### 2\. Poor Network Signals
-
-A very common reason observed for **FB suggested videos not showing up** is the weak connection. This is the most accurate reason for many Facebook problems. Not just this issue but with poor network signals, you might also face some other troubles.
-
-The best thing to tackle this problem is selecting a good and strong connection environment. With this solution, you can avoid many other problems as well, including this problem. With a stronger network connection, refresh the page because it increases the chance to view the videos.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
-### 3\. Insufficient Space
-
-As we mentioned earlier, there is a complete section of random entertaining videos. It consists of hundreds of videos that it has to buffer at once. Facebook videos need buffering to get played, and for that, they require quite the space.
-
-If you don't have sufficient space, this might be the resulting factor for **Facebook suggested videos not showing up.** This is the reason that causes the delay in loading the videos on time.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
-### 4\. Cache problems
-
-A corrupt cache is another big reason why your Fb suggested videos don't show up. Cache or even the cookies also slow down the performance of your favorite application. As with corrupt cache and cookies, the application does not work like it usually works efficiently.
-
-For this scenario, the suggested solution is to stop Facebook forcefully. Once that is done, now it’s time to clear and empty the cache for applications' better performance.
-
-### 5\. Update Required
-
-The last reason that might be causing this problem is the old version of Facebook. This tip is specifically for iPhone and also Android users. This trouble is very common as most people forget to Update the applications, which in return causes some problems.
-
-One such problem is **FB suggested videos not showing up.** In this case, all the Android and iPhone users should update Facebook and then check the suggested videos after an update.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
-## Part 2\. How Does Facebook Determine Which Videos Are Suggested for You?
-
-As mentioned earlier, Facebook has a section where various hundreds of videos are available. You can easily access that tab and enjoy and entertain yourself with those videos. We also mentioned that this video section keeps an eye on you.
-
-The coming section of this article will walk you through several factors on the basis on which the suggested videos are displayed. Let’s get started.
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### 1\. Videos Popularity
-
-The number 1 reason that how could some random videos make their way to your suggested videos is the popularity of any particular video. If you find any unusual video in your videos section, then the first thing that should come to your mind is that the video is popular all over Facebook and the internet.
-
-Any video that offers entertainment, good and quality content, motivation quotes or speech, some kind of love-hate poetry. Even compilation videos of different sports, matches, funny moments, and a lot more things can fall in this category that gets the fame.
-
-So, any famous or trending video that a lot of Facebook users have viewed, shared, liked, or commented on will automatically make its way to your and others' suggested video tab. This is how random videos show up in your suggested videos.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. People and Pages You Follow
 
 Another factor that aids in bringing random videos to your Facebook suggested videos section is whom you follow and like. Like the real world, Facebook is that platform where every person has their own identify, their accounts. Every business, different startups have their pages. Influencers have pages from where they can spread their voice through their content.
@@ -322,31 +121,23 @@ If you want to customize the suggested videos section on your mobile, then it is
 
 **Step 2:** In the watch section, you are supposed to head over to your favorite video. You will see three-horizontal dots on top of every video; click on that. Upon clicking, a drop-down menu will show up on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![tap on three dots](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-3.jpg)
 
 **Step 3:** From that drop-down menu, you are required to select the ‘See More’ option. With this option, you are more like following that page and telling Facebook that you prefer to watch these videos, and this is how your favorite videos are customized to stay on top.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click on see more button](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### For Computer
 
 For computer Facebook users, you can also customize your suggested videos with 3 easy steps. Given below are the steps to guide you for this type of customization.
 
 **Step 1:** Start with opening the browser and logging in to your Facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![login your facebook account](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2**: Now, head over to the ‘Watch’ section and scroll down and look for your favorite video. Once found, you first have to ‘Open and Watch’ it. When the video is played, you will see three horizontal dots on the screen.
 
@@ -357,8 +148,9 @@ For computer Facebook users, you can also customize your suggested videos with 3
 ![tap on follow option](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Tip: Powerful and Facebook Compatible Video Editor - Wondershare Filmora
 
 When you talk about videos, you should never forget about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora is the editing guru for videos. This is a very popular and brilliant video editing software. Many impressive and attractive videos on the internet that we all love to watch are edited with this editor.
@@ -399,23 +191,21 @@ There is another section on Facebook that holds a variety of videos. The section
 
 In this section of the article, we will highlight the various reasons why Facebook suggested videos are not showing up.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Improper Launching
 
 One resulting factor that might cause your **Facebook suggested videos not to show up** is the improper launch of the application. Sometimes improper launch hinders your way and blocks the view of suggested videos.
 
 You should always try to treat the problem on time. You are suggested to follow the given solutions for this particular problem because you never know what might work for you. First of all, you should log out from Facebook, and you can also delete the browser completely. After that, you should install it fresh. You should also restart your system. Then give it some time to work properly.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Poor Network Signals
 
 A very common reason observed for **FB suggested videos not showing up** is the weak connection. This is the most accurate reason for many Facebook problems. Not just this issue but with poor network signals, you might also face some other troubles.
 
 The best thing to tackle this problem is selecting a good and strong connection environment. With this solution, you can avoid many other problems as well, including this problem. With a stronger network connection, refresh the page because it increases the chance to view the videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Insufficient Space
 
@@ -457,9 +247,6 @@ Being Facebook users, we follow different pages and follow different people as w
 
 Several videos in your suggested video section come from the people and pages you are surrounded by. The pages and people whom you follow there liked and viewed videos end up in your videos section too.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3\. How Can You Customize the Suggested Videos Yourself?
 
 Whenever we sit and scroll on Facebook to kill, sometimes we actually end up killing hours of our day. Facebook is that hub where you will find unlimited entertainment in all categories. Once you involve yourself in that, you cannot easily get out of it.
@@ -468,10 +255,154 @@ Sometimes we love one video so much that we want to see more of such videos. For
 
 If you want to customize your suggested videos and get more of your favorite videos, then this section of the article is going to share the steps to get this customization done.
 
+### For Mobile Devices
+
+If you want to customize the suggested videos section on your mobile, then it is very simple. We suggest you follow the steps given below, and you will easily customize the videos.
+
+**Step 1:** The first and basic step for this customization is opening Facebook on your mobile device. Then, locate the ‘Watch’ option from the Facebook shortcut bar.
+
+![access facebook app watch](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-2.jpg)
+
+**Step 2:** In the watch section, you are supposed to head over to your favorite video. You will see three-horizontal dots on top of every video; click on that. Upon clicking, a drop-down menu will show up on the screen.
+
+![tap on three dots](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-3.jpg)
+
+**Step 3:** From that drop-down menu, you are required to select the ‘See More’ option. With this option, you are more like following that page and telling Facebook that you prefer to watch these videos, and this is how your favorite videos are customized to stay on top.
+
+![click on see more button](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-4.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### For Computer
+
+For computer Facebook users, you can also customize your suggested videos with 3 easy steps. Given below are the steps to guide you for this type of customization.
+
+**Step 1:** Start with opening the browser and logging in to your Facebook account.
+
+![login your facebook account](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-5.jpg)
+
+**Step 2**: Now, head over to the ‘Watch’ section and scroll down and look for your favorite video. Once found, you first have to ‘Open and Watch’ it. When the video is played, you will see three horizontal dots on the screen.
+
+![access facebook watch](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-6.jpg)
+
+**Step 3:** If you click on those three horizontal dots, a drop-down menu appears in front of you. You will see an option of 'Follow' in that menu. You simply have to click on it to follow the page. This way, you have customized your videos section, and your favorite videos will always stay on top.
+
+![tap on follow option](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Bonus Tip: Powerful and Facebook Compatible Video Editor - Wondershare Filmora
+
+When you talk about videos, you should never forget about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora is the editing guru for videos. This is a very popular and brilliant video editing software. Many impressive and attractive videos on the internet that we all love to watch are edited with this editor.
+
+Filmora has an endless list of features that can drastically change your video into a masterpiece with just a few clicks and a little bit of editing. You can split-screen, trim your videos, join different videos together. Filmora does not restrict you to one file format. You can export the video file in your desired format and share it anywhere you want to.
+
+## Bottom Line
+
+As mentioned earlier that this article has everything one would want to know about Facebook suggested videos. The entertaining feature of Facebook can sometimes cause trouble. It is very much possible that you face the problem of **Facebook suggested videos not showing up.**
+
+This article has provided you with various reasons that cause this type of problem and create such a scenario. Not just the resulting factors, but we also shed light on the reasons that how random videos end up in your suggested video section. We have also shared the steps needed in case you plan on customizing your videos.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+In the early years, Facebook was merely to connect with your friends and family and to get entertained, whereas today, Facebook is a market with a huge customer influx. Facebook is the best way to promote your startups. Facebook is that platform that provides you with the customer, product, and product owners, all at the same place.
+
+In this social media world, Facebook has gained great popularity. Today, Facebook is the most used platform, the biggest hub for entertainment, and the biggest sale purchase platform. With Facebook, you can connect with others and get entertained by the suggested videos. One reported problem is that **Facebook Suggested videos not showing**. Let’s discuss this with you.
+
+**Bonus Tip: Powerful and Facebook Compatible Video Editor - Wondershare Filmora**
+
+#### In this article
+
+Part 1: [Reasons for Facebook Suggested Videos Not Showing Up.](#step1)
+
+Part 2: [How Does Facebook Determine Which Videos Are Suggested for You?](#step2)
+
+Part 3: [How Can You Customize the Suggested Videos Yourself?](#step3)
+
+## Part 1\. Reasons for Facebook Suggested Videos Not Showing Up
+
+Facebook has various tabs and features that the user can access and use. Facebook has a Feed that is always full of fun stuff, your friend’s status and life updates, etc. You can also message, call and video call your loved ones who are far away from you.
+
+![reasons for suggested videos not showing up](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-1.jpg)
+
+There is another section on Facebook that holds a variety of videos. The section keeps an eye on you. It only consists of videos for fun and entertainment. It has been reported sometimes that the **Facebook suggested videos not showing up.** In any such scenario, we always figure out a way to watch the videos, but no one bothers to know about the reasoning factors that have caused this problem.
+
+In this section of the article, we will highlight the various reasons why Facebook suggested videos are not showing up.
+
+### 1\. Improper Launching
+
+One resulting factor that might cause your **Facebook suggested videos not to show up** is the improper launch of the application. Sometimes improper launch hinders your way and blocks the view of suggested videos.
+
+You should always try to treat the problem on time. You are suggested to follow the given solutions for this particular problem because you never know what might work for you. First of all, you should log out from Facebook, and you can also delete the browser completely. After that, you should install it fresh. You should also restart your system. Then give it some time to work properly.
+
+### 2\. Poor Network Signals
+
+A very common reason observed for **FB suggested videos not showing up** is the weak connection. This is the most accurate reason for many Facebook problems. Not just this issue but with poor network signals, you might also face some other troubles.
+
+The best thing to tackle this problem is selecting a good and strong connection environment. With this solution, you can avoid many other problems as well, including this problem. With a stronger network connection, refresh the page because it increases the chance to view the videos.
+
+### 3\. Insufficient Space
+
+As we mentioned earlier, there is a complete section of random entertaining videos. It consists of hundreds of videos that it has to buffer at once. Facebook videos need buffering to get played, and for that, they require quite the space.
+
+If you don't have sufficient space, this might be the resulting factor for **Facebook suggested videos not showing up.** This is the reason that causes the delay in loading the videos on time.
+
+### 4\. Cache problems
+
+A corrupt cache is another big reason why your Fb suggested videos don't show up. Cache or even the cookies also slow down the performance of your favorite application. As with corrupt cache and cookies, the application does not work like it usually works efficiently.
+
+For this scenario, the suggested solution is to stop Facebook forcefully. Once that is done, now it’s time to clear and empty the cache for applications' better performance.
+
+### 5\. Update Required
+
+The last reason that might be causing this problem is the old version of Facebook. This tip is specifically for iPhone and also Android users. This trouble is very common as most people forget to Update the applications, which in return causes some problems.
+
+One such problem is **FB suggested videos not showing up.** In this case, all the Android and iPhone users should update Facebook and then check the suggested videos after an update.
+
+## Part 2\. How Does Facebook Determine Which Videos Are Suggested for You?
+
+As mentioned earlier, Facebook has a section where various hundreds of videos are available. You can easily access that tab and enjoy and entertain yourself with those videos. We also mentioned that this video section keeps an eye on you.
+
+The coming section of this article will walk you through several factors on the basis on which the suggested videos are displayed. Let’s get started.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 1\. Videos Popularity
+
+The number 1 reason that how could some random videos make their way to your suggested videos is the popularity of any particular video. If you find any unusual video in your videos section, then the first thing that should come to your mind is that the video is popular all over Facebook and the internet.
+
+Any video that offers entertainment, good and quality content, motivation quotes or speech, some kind of love-hate poetry. Even compilation videos of different sports, matches, funny moments, and a lot more things can fall in this category that gets the fame.
+
+So, any famous or trending video that a lot of Facebook users have viewed, shared, liked, or commented on will automatically make its way to your and others' suggested video tab. This is how random videos show up in your suggested videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 2\. People and Pages You Follow
+
+Another factor that aids in bringing random videos to your Facebook suggested videos section is whom you follow and like. Like the real world, Facebook is that platform where every person has their own identify, their accounts. Every business, different startups have their pages. Influencers have pages from where they can spread their voice through their content.
+
+Being Facebook users, we follow different pages and follow different people as well. We add different friends on Facebook as it is the social media platform that aims to provide connectivity. So hence, in simple words, we are surrounded by many different personalities who have entirely different approaches, preferences, likes, and dislikes.
+
+Several videos in your suggested video section come from the people and pages you are surrounded by. The pages and people whom you follow there liked and viewed videos end up in your videos section too.
+
+## Part 3\. How Can You Customize the Suggested Videos Yourself?
+
+Whenever we sit and scroll on Facebook to kill, sometimes we actually end up killing hours of our day. Facebook is that hub where you will find unlimited entertainment in all categories. Once you involve yourself in that, you cannot easily get out of it.
+
+Sometimes we love one video so much that we want to see more of such videos. For that, what could possibly be done? Search for videos? Search for related pages? These solutions sound quite impossible.
+
+If you want to customize your suggested videos and get more of your favorite videos, then this section of the article is going to share the steps to get this customization done.
+
 ### For Mobile Devices
 
 If you want to customize the suggested videos section on your mobile, then it is very simple. We suggest you follow the steps given below, and you will easily customize the videos.
@@ -500,11 +431,12 @@ For computer Facebook users, you can also customize your suggested videos with 3
 
 ![access facebook watch](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** If you click on those three horizontal dots, a drop-down menu appears in front of you. You will see an option of 'Follow' in that menu. You simply have to click on it to follow the page. This way, you have customized your videos section, and your favorite videos will always stay on top.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap on follow option](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-7.jpg)
 
 ## Bonus Tip: Powerful and Facebook Compatible Video Editor - Wondershare Filmora
@@ -541,18 +473,12 @@ Part 3: [How Can You Customize the Suggested Videos Yourself?](#step3)
 
 Facebook has various tabs and features that the user can access and use. Facebook has a Feed that is always full of fun stuff, your friend’s status and life updates, etc. You can also message, call and video call your loved ones who are far away from you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![reasons for suggested videos not showing up](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-1.jpg)
 
 There is another section on Facebook that holds a variety of videos. The section keeps an eye on you. It only consists of videos for fun and entertainment. It has been reported sometimes that the **Facebook suggested videos not showing up.** In any such scenario, we always figure out a way to watch the videos, but no one bothers to know about the reasoning factors that have caused this problem.
 
 In this section of the article, we will highlight the various reasons why Facebook suggested videos are not showing up.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Improper Launching
 
 One resulting factor that might cause your **Facebook suggested videos not to show up** is the improper launch of the application. Sometimes improper launch hinders your way and blocks the view of suggested videos.
@@ -565,9 +491,6 @@ A very common reason observed for **FB suggested videos not showing up** is the 
 
 The best thing to tackle this problem is selecting a good and strong connection environment. With this solution, you can avoid many other problems as well, including this problem. With a stronger network connection, refresh the page because it increases the chance to view the videos.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Insufficient Space
 
 As we mentioned earlier, there is a complete section of random entertaining videos. It consists of hundreds of videos that it has to buffer at once. Facebook videos need buffering to get played, and for that, they require quite the space.
@@ -586,23 +509,6 @@ The last reason that might be causing this problem is the old version of Faceboo
 
 One such problem is **FB suggested videos not showing up.** In this case, all the Android and iPhone users should update Facebook and then check the suggested videos after an update.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## Part 2\. How Does Facebook Determine Which Videos Are Suggested for You?
 
 As mentioned earlier, Facebook has a section where various hundreds of videos are available. You can easily access that tab and enjoy and entertain yourself with those videos. We also mentioned that this video section keeps an eye on you.
@@ -633,31 +539,26 @@ Sometimes we love one video so much that we want to see more of such videos. For
 
 If you want to customize your suggested videos and get more of your favorite videos, then this section of the article is going to share the steps to get this customization done.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### For Mobile Devices
 
 If you want to customize the suggested videos section on your mobile, then it is very simple. We suggest you follow the steps given below, and you will easily customize the videos.
 
 **Step 1:** The first and basic step for this customization is opening Facebook on your mobile device. Then, locate the ‘Watch’ option from the Facebook shortcut bar.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![access facebook app watch](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-2.jpg)
 
 **Step 2:** In the watch section, you are supposed to head over to your favorite video. You will see three-horizontal dots on top of every video; click on that. Upon clicking, a drop-down menu will show up on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![tap on three dots](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-3.jpg)
 
 **Step 3:** From that drop-down menu, you are required to select the ‘See More’ option. With this option, you are more like following that page and telling Facebook that you prefer to watch these videos, and this is how your favorite videos are customized to stay on top.
 
 ![click on see more button](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### For Computer
 
 For computer Facebook users, you can also customize your suggested videos with 3 easy steps. Given below are the steps to guide you for this type of customization.
@@ -666,29 +567,24 @@ For computer Facebook users, you can also customize your suggested videos with 3
 
 ![login your facebook account](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Now, head over to the ‘Watch’ section and scroll down and look for your favorite video. Once found, you first have to ‘Open and Watch’ it. When the video is played, you will see three horizontal dots on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![access facebook watch](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-6.jpg)
 
 **Step 3:** If you click on those three horizontal dots, a drop-down menu appears in front of you. You will see an option of 'Follow' in that menu. You simply have to click on it to follow the page. This way, you have customized your videos section, and your favorite videos will always stay on top.
 
 ![tap on follow option](https://images.wondershare.com/filmora/article-images/2021/facebook-suggested-videos-not-showing-up-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus Tip: Powerful and Facebook Compatible Video Editor - Wondershare Filmora
 
 When you talk about videos, you should never forget about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora is the editing guru for videos. This is a very popular and brilliant video editing software. Many impressive and attractive videos on the internet that we all love to watch are edited with this editor.
 
 Filmora has an endless list of features that can drastically change your video into a masterpiece with just a few clicks and a little bit of editing. You can split-screen, trim your videos, join different videos together. Filmora does not restrict you to one file format. You can export the video file in your desired format and share it anywhere you want to.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bottom Line
 
 As mentioned earlier that this article has everything one would want to know about Facebook suggested videos. The entertaining feature of Facebook can sometimes cause trouble. It is very much possible that you face the problem of **Facebook suggested videos not showing up.**
@@ -708,8 +604,6 @@ This article has provided you with various reasons that cause this type of probl
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -718,7 +612,26 @@ This article has provided you with various reasons that cause this type of probl
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-essential-chromes-leading-fb-video-grabs/"><u>[New] 2024 Approved Essential Chromes Leading FB Video Grabs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-a-guide-to-tailoring-your-hashtag-strategy-for-maximum-engagement-and-conversion-rates-on-facebook/"><u>[New] A Guide to Tailoring Your Hashtag Strategy for Maximum Engagement and Conversion Rates on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fix-missing-fb-watch-icon-quick-guide/"><u>[New] Fix Missing FB Watch Icon - Quick Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-ingenious-approaches-to-facebook-video-ad-crafting/"><u>[New] Ingenious Approaches to Facebook Video Ad Crafting</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unleashing-vintage-charm-filters-for-existing-media-on-ig/"><u>[Updated] 2024 Approved Unleashing Vintage Charm Filters for Existing Media on IG</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-anonymous-artifacts-auction-2023-the-quest-for-digital-secrecy/"><u>[Updated] Anonymous Artifacts Auction-2023 The Quest for Digital Secrecy</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-future-of-fb-ads-whats-a-must-try-in-2024/"><u>[Updated] Future of FB Ads – What’s a Must-Try, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-live-streaming-pre-recorded-videos-the-facebook-approach-for-2024/"><u>[Updated] Live Streaming Pre-Recorded Videos The Facebook Approach for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-8-unbeatable-zero-price-software-choices-for-online-media-makers/"><u>2024 Approved 8 Unbeatable Zero-Price Software Choices For Online Media Makers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-exclusive-selection-of-top-hd-stream-cameras/"><u>2024 Approved Exclusive Selection of Top HD Stream Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gopro-vs-polaroid-which-video-editor-prevails-for-2024/"><u>GoPro Vs. Polaroid Which Video Editor Prevails for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-achieve-smooth-gaming-in-battlefield-v-a-guide-to-resolving-lag-problems/"><u>How to Achieve Smooth Gaming in Battlefield V: A Guide to Resolving Lag Problems</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-maximize-online-sales-the-most-reliable-15-facebook-analysis-tools/"><u>In 2024, Maximize Online Sales The Most Reliable 15 Facebook Analysis Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-professional-stream-techniques-for-high-res-fb-views/"><u>In 2024, Professional Stream Techniques for High-Res FB Views</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-screenshots-how-to-freeze-your-hp-laptops-momentum/"><u>Mastering Screenshots: How to Freeze Your HP Laptop’s Momentum</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/micronics-introduces-affordable-desktop-sized-sls-3d-printer-at-299/"><u>Micronics Introduces Affordable Desktop-Sized SLS 3D Printer at $2,99</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/proven-practice-for-preserving-playthroughs-tips-and-tricks-for-recording-roblox-gameplay-on-a-mac-for-2024/"><u>Proven Practice for Preserving Playthroughs Tips & Tricks for Recording Roblox Gameplay on a Mac for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unmissable-apple-product-savings-on-prime-day-grab-your-macbook-air-and-airpods-pro-now/"><u>Unmissable Apple Product Savings on Prime Day - Grab Your MacBook Air & AirPods Pro Now!</u></a></li>
+</ul></div>
 

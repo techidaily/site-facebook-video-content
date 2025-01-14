@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlock Old Facebook Memories with a Click"
-date: 2025-01-04T16:33:46.245Z
-updated: 2025-01-07T18:36:39.917Z
+date: 2025-01-12T01:23:35.921Z
+updated: 2025-01-13T23:48:12.255Z
 tags:
   - ai video
   - ai facebook
@@ -53,10 +53,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -64,10 +60,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -81,17 +73,21 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -102,12 +98,16 @@ The only chance is that if your friend has uploaded those stories on highlights 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -160,7 +160,7 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -178,16 +178,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-efficiently-record-your-screen-with-io-screen-recorder/"><u>[New] Efficiently Record Your Screen with IO Screen Recorder</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-endless-broadcast-flow-mastering-the-art-of-fixing-livestream-pauses-for-2024/"><u>[New] Endless Broadcast Flow Mastering the Art of Fixing Livestream Pauses for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-broadcasting-with-gopro-tips-for-facebookperiscope-integration/"><u>[Updated] 2024 Approved Broadcasting with GoPro Tips for Facebook/Periscope Integration</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-camstudio-2023-screen-recorder-insights-and-reviews/"><u>[Updated] In 2024, CamStudio 2023 Screen Recorder Insights & Reviews</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-undisclosed-browsing-of-fb-stories/"><u>[Updated] In 2024, Undisclosed Browsing of FB Stories</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721267765033-stellar/"><u>【急速】Stellar 画像修復ソフトウェアを今すぐダウンロード</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-gamegazers-graphic-guide/"><u>2024 Approved GameGazer's Graphic Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-solve-missing-feed-items-from-linkedin/"><u>2024 Approved Solve Missing Feed Items From LinkedIn</u></a></li>
-<li><a href="https://article-files.techidaily.com/advanced-mobile-mounting-accurate-camera-positioning-for-2024/"><u>Advanced Mobile Mounting Accurate Camera Positioning for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/download-and-install-mtk-usb-for-winxp1110-oses/"><u>Download & Install: MTK USB for WINXP11/10 OSes</u></a></li>
-<li><a href="https://extra-support.techidaily.com/instant-luxury-iphones-extended-shutter-mastery-for-2024/"><u>Instant Luxury IPhone's Extended Shutter Mastery for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-strategies-for-clearer-facebook-live-footage-viewing/"><u>[New] Strategies for Clearer Facebook Live Footage Viewing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-bridging-past-and-present-successfully-live-streaming-recorded-media/"><u>[Updated] 2024 Approved Bridging Past and Present Successfully Live-Streaming Recorded Media</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-obs-upgrade-tips-clearer-footage/"><u>[Updated] In 2024, OBS Upgrade Tips Clearer Footage</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-top-converter-mp4-to-facebook-social-media-pro/"><u>[Updated] Top Converter MP4 to Facebook (Social Media Pro)</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-the-big-four-of-social-networking-fb-tw-ig-yt/"><u>Exploring the Big Four of Social Networking: FB, TW, IG, YT</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-12-pro-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone 12 Pro With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/les-meilleurs-outils-videomakers-pour-reduire-facilement-la-taille-des-fichiers-videos/"><u>Les Meilleurs Outils Videomakers Pour Réduire Facilement La Taille Des Fichiers Vidéos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-elusive-artifact-auction-2023s-online-gambit/"><u>The Elusive Artifact Auction 2023'S Online Gambit</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oppo-a1-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Oppo A1 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-huawei-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Huawei Phones</u></a></li>
 </ul></div>
 

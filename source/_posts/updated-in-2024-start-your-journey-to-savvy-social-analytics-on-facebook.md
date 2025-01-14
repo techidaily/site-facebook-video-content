@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Start Your Journey to Savvy Social Analytics on Facebook"
-date: 2025-01-03T20:11:14.986Z
-updated: 2025-01-07T19:43:16.658Z
+date: 2025-01-11T17:09:26.196Z
+updated: 2025-01-13T23:56:56.261Z
 tags:
   - ai video
   - ai facebook
@@ -35,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 * [**Part 2: Where to Find Facebook Insights**](#part2)
 * [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Insights
 
  A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
@@ -50,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
@@ -74,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Post Reach
@@ -89,9 +81,21 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -104,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -122,11 +122,11 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -152,18 +152,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-premier-6-discreet-movie-downloader-pros/"><u>[New] 2024 Approved Premier 6 Discreet Movie Downloader Pros</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-step-by-step-procedures-swapping-out-your-facebook-backdrop/"><u>[New] 2024 Approved Step-by-Step Procedures Swapping Out Your Facebook Backdrop</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-how-to-get-more-engagement-on-fb-video-content/"><u>[New] In 2024, How to Get More Engagement on FB Video Content</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-incorporating-tracks-into-online-visual-narratives/"><u>[Updated] 2024 Approved Incorporating Tracks Into Online Visual Narratives</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-gear-up-with-smart-techniques-elevating-your-ps4-gameplay-capture-abilities/"><u>[Updated] Gear Up with Smart Techniques Elevating Your PS4 Gameplay Capture Abilities</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-timelessly-taken-selfies-from-the-bygone-era/"><u>2024 Approved Timelessly Taken Selfies From the Bygone Era</u></a></li>
-<li><a href="https://techtrends.techidaily.com/m4a-mkv-movavi/"><u>免費線上服務：改變 M4A 成功 MKV - 使用 Movavi 音訊編解碼器</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/advanced-multimedia-editor-macx-hd-pro-on-windows-11-seamless-conversion-of-videos-to-iosandroid-compatible-formats-including-mkv-and-wmv/"><u>Advanced Multimedia Editor MacX HD Pro on Windows 11 – Seamless Conversion of Videos to iOS/Android Compatible Formats Including MKV & WMV</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/como-hacer-backups-automaticos-swiftly-tecnicas-faciles-para-windows-7/"><u>Cómo Hacer Backups Automáticos Swiftly: Técnicas Fáciles Para Windows 7</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-realme-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/techniques-for-captivating-visual-fb-ads-for-2024/"><u>Techniques for Captivating Visual FB Ads for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-computer-secrets-at-toms-hardware-fortress/"><u>Unveiling Computer Secrets at Tom's Hardware Fortress</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-the-potential-of-apples-pocket-sized-marvel-an-insightful-look-at-the-ipad-mini-5/"><u>Unveiling the Potential of Apple's Pocket-Sized Marvel: An Insightful Look at the iPad Mini 5</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-reclaiming-lost-moments-curing-livestream-pauses-on-facebook/"><u>[New] 2024 Approved Reclaiming Lost Moments Curing Livestream Pauses on Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-remedy-misidentified-face-photo-in-chat-corner/"><u>[New] In 2024, Remedy Misidentified Face Photo in Chat Corner</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-seamless-strategies-downloading-graphics-images-from-facebook-and-beyond/"><u>[New] Seamless Strategies Downloading Graphics Images From Facebook & Beyond</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elevate-your-digital-identity-top-101-masterclass-in-personal-bios/"><u>[Updated] Elevate Your Digital Identity Top 101 Masterclass in Personal Bios</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-embrace-the-big-picture-facebooks-full-screen-feature-explained/"><u>[Updated] Embrace the Big Picture Facebook's Full Screen Feature Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-find-facebook-recently-watched-videos/"><u>[Updated] In 2024, How to Find Facebook Recently Watched Videos?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-simplified-steps-for-photo-motion-blur-in-photoshop/"><u>[Updated] Simplified Steps for Photo Motion Blur in Photoshop</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-boost-your-game-strategy-experience-the-best-free-voice-transformer-today/"><u>2024 Approved Boost Your Game Strategy Experience the Best Free Voice Transformer Today</u></a></li>
+<li><a href="https://win-lab.techidaily.com/avoid-compromising-your-mac-understand-the-risks-of-persistent-pop-ups-and-effective-removal-techniques-by-malwarefox-experts/"><u>Avoid Compromising Your Mac: Understand the Risks of Persistent Pop-Ups & Effective Removal Techniques by MalwareFox Experts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/cookiebot-enabled-enhance-your-websites-conversion-rates-with-our-advanced-analytics-tools/"><u>Cookiebot-Enabled: Enhance Your Website's Conversion Rates with Our Advanced Analytics Tools</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/elite-network-equipment-cabinets-and-racks-reviewed-2er-2024s-top-choices/"><u>Elite Network Equipment Cabinets & Racks Reviewed: 2Er 2024'S Top Choices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-wps-file-document-with-digital-signature-tutorial-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign .wps file document with Digital Signature - (Tutorial)</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-sony-xperia-10-v-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Sony Xperia 10 V without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-a24-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/restoring-hidden-watch-icon-for-optimal-experience/"><u>Restoring Hidden Watch Icon for Optimal Experience</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Infinix Hot 30i | Dr.fone</u></a></li>
 </ul></div>
 
