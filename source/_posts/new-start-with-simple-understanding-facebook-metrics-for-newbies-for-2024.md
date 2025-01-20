@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Start with Simple  Understanding Facebook Metrics for Newbies for 2024\""
-date: 2025-01-08T04:27:49.882Z
-updated: 2025-01-13T17:59:14.474Z
+date: 2025-01-19T03:58:45.592Z
+updated: 2025-01-19T23:22:34.739Z
 tags:
   - ai video
   - ai facebook
@@ -41,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -53,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
@@ -60,7 +60,11 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -73,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Post Reach
 
  The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
@@ -88,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
@@ -109,10 +105,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -125,17 +117,25 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -152,22 +152,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elevating-facebook-vids-with-fullscreen/"><u>[New] 2024 Approved Elevating Facebook Vids with Fullscreen</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-rank-the-best-fb-video-downloaders-heres-how/"><u>[New] 2024 Approved Rank the Best FB Video Downloaders - Here's How</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-kik-id-visualization-width-x-height-aspect-ratio-duration/"><u>[New] Kik ID Visualization Width X Height, Aspect Ratio, Duration</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-augmenting-visual-appeal-implementing-black-bar-and-box-on-fb/"><u>[Updated] 2024 Approved Augmenting Visual Appeal Implementing Black Bar & Box on FB</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-capturing-your-workflow-optimal-screenshot-tools/"><u>[Updated] 2024 Approved Capturing Your Workflow Optimal Screenshot Tools</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-combat-fuzzy-visuals-facebook-videos-tips-and-tricks-for-2024/"><u>[Updated] Combat Fuzzy Visuals Facebook Videos Tips & Tricks for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-fast-track-your-periscope-broadcasting/"><u>[Updated] Fast-Track Your Periscope Broadcasting</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-perfecting-live-photo-your-ios-journey/"><u>[Updated] In 2024, Perfecting Live Photo Your iOS Journey</u></a></li>
-<li><a href="https://win11.techidaily.com/correcting-common-windows-crash-codes-0xc0000001/"><u>Correcting Common Windows Crash Codes (0xC0000001)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-infinix-note-30-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Infinix Note 30 5G Phone?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/il-download-ottimale-del-decodificatore-dvd-libero-per-unintegrazione-agevole-con-i-tuoi-dvd/"><u>Il Download Ottimale Del Decodificatore DVD Libero per Un'Integrazione Agevole Con I Tuoi DVD</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-analyzing-why-your-facebook-doesnt-suggest-movies/"><u>In 2024, Analyzing Why Your Facebook Doesn't Suggest Movies</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-20-proplus-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 20 Pro+ to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-ultimate-2023-guide-to-watching-fb-live/"><u>In 2024, The Ultimate 2023 Guide to Watching FB Live</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-transforming-viewing-habits-with-fb-live-on-roku/"><u>In 2024, Transforming Viewing Habits with FB Live on Roku</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/step-into-the-future-elevate-your-gameplay-with-fbx-recorder-for-2024/"><u>Step Into the Future Elevate Your Gameplay with FBX Recorder for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigating-the-minefield-suddenly-banned-videos-on-social-media/"><u>[New] 2024 Approved Navigating the Minefield Suddenly Banned Videos on Social Media</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-revolutionize-your-mobile-viewing-experience/"><u>[New] In 2024, Revolutionize Your Mobile Viewing Experience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-screenmaster-mastering-window-recordings-on-spring/"><u>[Updated] 2024 Approved ScreenMaster Mastering Window Recordings on Spring</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-2023s-top-8-video-sensations-a-facebook-deep-dive/"><u>[Updated] In 2024, 2023'S Top 8 Video Sensations A Facebook Deep Dive</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-sign-up-saga-crafting-your-digital-persona-facebook/"><u>[Updated] In 2024, Sign Up Saga Crafting Your Digital Persona (Facebook)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-stay-up-to-date-with-facebooks-latest-watched-content/"><u>[Updated] In 2024, Stay Up-to-Date with Facebook's Latest Watched Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-zeroing-out-blemishes-how-to-use-psxs-eraser-tool/"><u>[Updated] Zeroing Out Blemishes How to Use PSX's Eraser Tool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-optimize-my-notebook-with-a-new-cpu/"><u>Can You Optimize My Notebook with a New CPU?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/free-vob-to-m4v-conversion-service-by-moveave-convert-dvds-instantly/"><u>Free VOB to M4V Conversion Service by Moveave - Convert DVDs Instantly!</u></a></li>
+<li><a href="https://win11.techidaily.com/hypervisor-blues-heres-your-win-10-and-11-fix-guide/"><u>Hypervisor Blues? Here's Your Win 10 & 11 Fix Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-anticipated-shifts-in-social-media-marketing-fb-ad-trends-of-24/"><u>In 2024, The Anticipated Shifts in Social Media Marketing FB Ad Trends of '24</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/maximizing-your-texts-without-breaking-the-bank-on-data/"><u>Maximizing Your Texts Without Breaking the Bank on Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagine-your-digital-life-4-key-strategies-to-refine-your-facebook-viewing/"><u>Reimagine Your Digital Life: 4 Key Strategies to Refine Your Facebook Viewing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/tackling-challenges-head-on-essentials-for-onestream-livestreamers/"><u>Tackling Challenges Head-On Essentials for OneStream Livestreamers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-hidden-pathway-how-to-seamlessly-integrate-youtube-content-onto-facebook/"><u>The Hidden Pathway How to Seamlessly Integrate YouTube Content Onto Facebook</u></a></li>
 </ul></div>
 

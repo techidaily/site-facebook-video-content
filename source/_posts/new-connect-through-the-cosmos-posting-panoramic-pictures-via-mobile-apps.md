@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Connect Through the Cosmos  Posting Panoramic Pictures via Mobile Apps\""
-date: 2025-01-08T21:12:15.363Z
-updated: 2025-01-13T22:54:20.352Z
+date: 2025-01-17T23:05:05.547Z
+updated: 2025-01-19T18:17:12.614Z
 tags:
   - ai video
   - ai facebook
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/310ebf5ae5294b3c09bff886e3c558b63079bc0b8
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/310ebf5ae5294b3c09bff886e3c558b63079bc0b8
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking 360 Photos on Android Smartphone with Google Street View
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/310ebf5ae5294b3c09bff886e3c558b63079bc0b8
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Viewing 360 Photos on Facebook
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/310ebf5ae5294b3c09bff886e3c558b63079bc0b8
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -87,14 +87,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-pinterest-pin-square-advice/"><u>[New] In 2024, Pinterest Pin Square Advice</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-mystery-reader-fb-narratives-explorer/"><u>[New] Mystery Reader FB Narratives Explorer</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-tips-for-dynamic-and-engaging-video-covers-on-the-worlds-largest-social-media-network-for-2024/"><u>[Updated] Tips for Dynamic & Engaging Video Covers on the World's Largest Social Media Network for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-supreme-storytelling-through-soundscape/"><u>2024 Approved Supreme Storytelling Through Soundscape</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-on-your-apple-iphone-14-plus-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID On your Apple iPhone 14 Plus without Security Questions?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-poco-c51-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Poco C51 Phone Hassle-Free</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-best-free-split-screen-video-editor-online-and-offline/"><u>New In 2024, Best Free Split Screen Video Editor Online & Offline</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unraveling-the-purpose-behind-a-common-symbol-on-fb-chat/"><u>Unraveling the Purpose Behind a Common Symbol on FB Chat</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-join-the-social-gaming-movement-xbox-and-fb-livestreams/"><u>[New] In 2024, Join the Social Gaming Movement Xbox & FB Livestreams</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-navigating-backward-image-hunt-on-the-worlds-largest-social-site/"><u>[Updated] 2024 Approved Navigating Backward Image Hunt on the World's Largest Social Site</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-live-stream-xbox-to-facebook-live/"><u>[Updated] How to Live Stream Xbox to Facebook Live</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-efficient-methods-for-youtube-video-preservation/"><u>[Updated] In 2024, Efficient Methods for YouTube Video Preservation</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/achieve-the-best-fps-in-games-by-tuning-your-system-advice-from-yl-software-experts/"><u>Achieve the Best FPS in Games by Tuning Your System - Advice From YL Software Experts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enhancing-engagement-with-best-practices-for-fb-cover-vids/"><u>Enhancing Engagement with Best Practices for FB Cover Vids</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-vivo-v29-pro-phone-by-drfone-android/"><u>How to Reset a Locked Vivo V29 Pro Phone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-crafting-success-on-facebook-a-beginners-and-pro-guide-compilation/"><u>In 2024, Crafting Success on Facebook A Beginner's & Pro Guide Compilation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-fix-hidden-suggested-youtube-and-facebook-videos-explained/"><u>In 2024, Fix Hidden Suggested YouTube & Facebook Videos Explained</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-iphone-camera-challenges-7-common-issues-and-solutions-explained/"><u>Overcome iPhone Camera Challenges: 7 Common Issues and Solutions Explained</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcome-the-challenge-of-accidental-keystrokes-and-typos/"><u>Overcome the Challenge of Accidental Keystrokes and Typos</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/transforma-flvs-a-formatos-de-video-movil-como-3gp-sin-coste-con-conversor-de-videollamas/"><u>Transforma FLVs a Formatos De Video Móvil Como 3GP Sin Coste Con Conversor De Videollamas</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Efficiently Explore Every Entry  Facebook Profile Hunt 101 for 2024\""
-date: 2025-01-08T19:40:00.798Z
-updated: 2025-01-13T22:26:08.931Z
+date: 2025-01-14T02:10:56.174Z
+updated: 2025-01-19T17:38:51.146Z
 tags:
   - ai video
   - ai facebook
@@ -40,6 +40,10 @@ Here are two ways to search people on Facebook. The second option also helps you
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Check your list of Friends on Facebook
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
@@ -52,10 +56,6 @@ To reach the friend’s finder page, click on “find friends” from the friend
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
@@ -64,7 +64,15 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to search people using Search Is Back
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Open and Select
 
@@ -73,16 +81,12 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -95,7 +99,7 @@ Once you have filled in all the filters in the page, you can hit Find People but
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -111,14 +115,10 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,17 +135,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-pioneering-the-path-to-digital-dominance-wirecast-livestreams-on-facebook/"><u>[New] Pioneering the Path to Digital Dominance Wirecast Livestreams on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-why-does-facebook-suggested-videos-not-showing-up/"><u>[New] Why Does Facebook Suggested Videos Not Showing Up?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-social-snapshot-an-all-encompassing-2023-vlog-collection/"><u>[Updated] 2024 Approved Social Snapshot An All-Encompassing 2023 Vlog Collection</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-top-10-tips-to-make-your-podcast-teasers-stand-out/"><u>[Updated] 2024 Approved Top 10 Tips to Make Your Podcast Teasers Stand Out</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-bring-your-gopro-adventures-online-facebookperiscope-livestream-setup/"><u>[Updated] Bring Your Gopro Adventures Online Facebook/Periscope Livestream Setup</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-essential-skills-androids-screen-recording-functionality/"><u>[Updated] In 2024, Essential Skills Android's Screen Recording Functionality</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-freeze-entire-browser-display/"><u>[Updated] In 2024, Freeze Entire Browser Display</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For ZTE Axon 40 Lite | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/downloading-fb-content-the-ultimate-guide-top-5-list/"><u>Downloading FB Content The Ultimate Guide - TOP 5 List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/navigate-to-notoriety-on-facebook-with-10-effective-tactics-for-2024/"><u>Navigate to Notoriety on Facebook with 10 Effective Tactics for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-realme-c67-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Realme C67 5G Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-innovate-or-stagnate-the-must-know-fb-ad-trends-for-24/"><u>[New] 2024 Approved Innovate or Stagnate – The Must-Know FB Ad Trends for '24</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-enhancing-revenue-the-15-premier-fb-insight-gadgets-for-2024/"><u>[New] Enhancing Revenue The 15 Premier FB Insight Gadgets for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-enhance-yi-4k-video-quality-with-essential-kits/"><u>[New] In 2024, Enhance YI 4K Video Quality with Essential Kits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-video-presentation-boost-adding-bb-and-lc-frameworks-for-2024/"><u>[Updated] Facebook Video Presentation Boost Adding BB and LC Frameworks for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-innovative-approach-to-revamping-your-videos-cover-images-on-fb/"><u>[Updated] In 2024, Innovative Approach to Revamping Your Videos' Cover Images on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-maximize-fun-mp4-extractor-for-fb-videos/"><u>[Updated] In 2024, Maximize Fun MP4 Extractor for FB Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-essentials-of-firefoxs-pip-functionality/"><u>[Updated] The Essentials of Firefox's PIP Functionality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-what-every-youtuber-should-know-about-live-thumbnails/"><u>2024 Approved What Every YouTuber Should Know About Live Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-pathway-to-successful-youtube-beginnings-techniques-1-and-2/"><u>2024 Approved Your Pathway to Successful YouTube Beginnings (Techniques 1 & 2)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/crafting-a-viral-narrative-on-social-media-for-2024/"><u>Crafting a Viral Narrative on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enhanced-video-clarity-on-iphone-and-android-platforms-for-2024/"><u>Enhanced Video Clarity on iPhone & Android Platforms for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-into-the-oneplus-6t-fantastic-performance-and-economy/"><u>Expert Insights Into the OnePlus 6T: Fantastic Performance & Economy</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-poco-c65-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Poco C65? Try These Fixes</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/konigstons-ssd-toolbox-unzutreffende-erfassung-von-solid-state-drives-ssds-festgestellt/"><u>Königstons SSD Toolbox - Unzutreffende Erfassung Von Solid State Drives (SSDs) Festgestellt!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/taking-off-in-tutorials-the-beginners-guide-to-fashionable-mac-footage/"><u>Taking Off in Tutorials The Beginner’s Guide to Fashionable Mac Footage</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/top-5-effektivnyh-agentstv-po-optimizacii-dlya-onlajn-rosta-v-ssha-optimizeboost-elite/"><u>Топ-5 Эффективных Агентств По Оптимизации Для Онлайн Роста В США | OptimizeBoost Elite</u></a></li>
 </ul></div>
 

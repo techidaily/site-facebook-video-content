@@ -1,7 +1,7 @@
 ---
 title: "[New] Launch Your Own FB Stream on PC, Mac & Laptop Using OBS"
-date: 2025-01-03T21:11:18.780Z
-updated: 2025-01-07T16:52:50.946Z
+date: 2025-01-12T17:59:35.740Z
+updated: 2025-01-19T22:46:21.832Z
 tags:
   - ai video
   - ai facebook
@@ -44,6 +44,10 @@ Step 2: Now you need to add sources to the scenes.
 
 ![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
 ![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
@@ -53,20 +57,24 @@ Step 4: Prefer to use default settings for source and then press OK.
 ![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
 
 ![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
 ![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## B. Stream setting according to Facebook
 
@@ -77,7 +85,7 @@ Step 1: First of all you need to go to the settings.
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
@@ -88,10 +96,6 @@ Step 3: Make settings for resolution as well as FPS. The desired maximum resolut
 
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
 ![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
@@ -100,16 +104,12 @@ Step 5: It is time to move to the ‘create live video’ page. You have to copy
 
 ![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## C. Preview and Test your before go live
@@ -128,16 +128,12 @@ Step 3: It is time to add your title as per preferences, make selection for your
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
@@ -156,6 +152,10 @@ Step 5: This is all about how to live stream your videos over facebook directly 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -171,22 +171,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-revolutionize-your-content-harnessing-the-power-of-fb-lives/"><u>[New] 2024 Approved Revolutionize Your Content Harnessing the Power of FB Lives</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-time-travel-on-fb-accessing-historical-posts/"><u>[New] In 2024, Time Travel on FB Accessing Historical Posts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-eliminate-inaccurate-image-portrayal-in-online-messaging/"><u>[Updated] Eliminate Inaccurate Image Portrayal in Online Messaging</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-best-in-class-facebook-media-firefox-edition/"><u>[Updated] In 2024, Best-in-Class Facebook Media FireFox Edition</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-building-your-brand-through-effective-fb-reel-strategies/"><u>[Updated] In 2024, Building Your Brand Through Effective FB Reel Strategies</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-become-a-biography-guru-top-tips-for-standout-bios-on-facebook/"><u>2024 Approved Become a Biography Guru Top Tips for Standout Bios on Facebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-beyond-reality-the-future-of-virtual-experiences/"><u>2024 Approved Beyond Reality The Future of Virtual Experiences</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-honor-magic-v2-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Honor Magic V2</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-70-lite-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor 70 Lite 5G for Free? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-blaze-2-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Lava Blaze 2 Phone without Google Account?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-12-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme 12 5G Phone without Google Account?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-looking-to-access-the-whole-spectrum-of-shared-media-by-contacts/"><u>In 2024, Looking to Access the Whole Spectrum of Shared Media by Contacts</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-of-the-fitbit-versa-2-your-ultimate-guide-to-a-healthier-lifestyle-with-intelligent-watch-features/"><u>In-Depth Analysis of the Fitbit Versa 2: Your Ultimate Guide to a Healthier Lifestyle with Intelligent Watch Features</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/rapid-removal-of-ssgnature-backdrops-explained/"><u>Rapid Removal of Ssgnature Backdrops Explained</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/seeking-clearance-can-you-upload-media-on-fb-in-2024/"><u>Seeking Clearance Can You Upload Media on FB, In 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/the-ultimate-resource-for-understanding-toms-tech-hardware/"><u>The Ultimate Resource for Understanding Tom's Tech Hardware</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exploring-the-lost-stories-of-facebook-tech-savvy-approach/"><u>[New] Exploring the Lost Stories of Facebook Tech-Savvy Approach</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-guide-to-youtubes-latest-income-strategies/"><u>[New] In 2024, Guide to YouTube's Latest Income Strategies</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-maximizing-image-excellence-zero-price-tag-for-2024/"><u>[New] Maximizing Image Excellence, Zero Price Tag for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-roadmap-for-effective-advertising-on-facebook-for-2024/"><u>[New] The Roadmap for Effective Advertising on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-inquiry-how-to-view-all-media-sharing-in-app-messages/"><u>[Updated] In 2024, Inquiry How to View All Media Sharing in App Messages?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-ultimate-srt-file-craftsmanship-manual/"><u>[Updated] In 2024, The Ultimate SRT File Craftsmanship Manual</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-master-the-art-of-social-media-video-capture-with-5-leaders/"><u>[Updated] Master the Art of Social Media Video Capture with 5 Leaders</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-sifting-through-centuries-online-unlicensed-treasures/"><u>[Updated] Sifting Through Centuries Online Unlicensed Treasures</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-beyond-the-basics-transformative-tactics-for-facebook-advertising/"><u>2024 Approved Beyond the Basics Transformative Tactics for Facebook Advertising</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-steps-to-build-a-hidden-snapstory-collection/"><u>2024 Approved Steps to Build a Hidden Snapstory Collection</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-mystery-unexpectedly-non-appearing-videos-on-fb/"><u>2024 Approved The Mystery Unexpectedly Non-Appearing Videos on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unintended-self-appearance-fixes-for-video-calls-and-chats/"><u>In 2024, Unintended Self-Appearance Fixes for Video Calls and Chats</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/introducing-lenovos-new-mac-studio-alternative-for-windows-enthusiasts-could-it-surpass-apple/"><u>Introducing Lenovo's New Mac Studio Alternative for Windows Enthusiasts: Could It Surpass Apple?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-unreachable-issues-fixing-mb-service-disconnect-in-windows-11/"><u>Overcoming Unreachable Issues: Fixing MB Service Disconnect in Windows 11</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/step-by-step-guide-troubleshooting-and-activating-your-computers-secure-boot-feature/"><u>Step-by-Step Guide: Troubleshooting & Activating Your Computer's Secure Boot Feature</u></a></li>
 </ul></div>
 

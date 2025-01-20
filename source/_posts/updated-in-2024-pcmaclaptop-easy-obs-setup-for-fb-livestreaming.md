@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, PC/Mac/Laptop  Easy OBS Setup for FB Livestreaming\""
-date: 2025-01-12T18:52:03.934Z
-updated: 2025-01-14T03:14:05.420Z
+date: 2025-01-13T00:46:27.950Z
+updated: 2025-01-20T07:51:43.488Z
 tags:
   - ai video
   - ai facebook
@@ -44,24 +44,16 @@ Step 2: Now you need to add sources to the scenes.
 
 ![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
 ![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 4: Prefer to use default settings for source and then press OK.
 
 ![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
@@ -69,12 +61,16 @@ Step 5: Once you have done settings for all sources then they must be adjusted o
 ![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
 ![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## B. Stream setting according to Facebook
 
@@ -96,17 +92,25 @@ Step 4: Now you need to visit the facebook page and then click on the video, go 
 
 ![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
 ![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## C. Preview and Test your before go live
 
@@ -115,7 +119,7 @@ Step 1: It is time to hit the button “Start Streaming”.
 ![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Now move back to your facebook page and then choose to preview.
@@ -126,11 +130,11 @@ Step 3: It is time to add your title as per preferences, make selection for your
 
 ![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
-![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
@@ -139,10 +143,6 @@ Step 4: Once your procedure for live streaming is complete then you are free to 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 
 ## Video tutorial
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook stream parameter requirements
 
@@ -171,22 +171,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-2023-best-8-private-video-downloaders/"><u>[Updated] 2024 Approved 2023 | Best 8 Private Video Downloaders</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-tips-for-shooting-and-sharing-videos-on-instagram/"><u>[Updated] 2024 Approved Tips for Shooting & Sharing Videos on Instagram</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-harnessing-hashtags-for-hitting-video-hotspots-on-fb/"><u>[Updated] In 2024, Harnessing Hashtags for Hitting Video Hotspots on FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-leveraging-fb-instream-ad-techniques-to-boost-engagement/"><u>[Updated] Leveraging FB Instream Ad Techniques to Boost Engagement</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-liberate-your-video-files-free-online-tools-for-facebook-videos-in-1080phd-for-2024/"><u>[Updated] Liberate Your Video Files - Free Online Tools for Facebook Videos in 1080P/HD for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-secret-social-scrolls-best-kept-facebook-memes-for-2024/"><u>[Updated] Secret Social Scrolls Best-Kept Facebook Memes for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-revive-mobile-playback-quick-fixes-for-facebook-videos/"><u>2024 Approved Revive Mobile Playback - Quick Fixes for Facebook Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-seamless-integration-of-fb-and-whatsapp-for-video-sharing/"><u>2024 Approved Seamless Integration of FB & WhatsApp for Video Sharing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-snapchat-soundscapes-full-playback-no-missed-beats/"><u>2024 Approved Snapchat Soundscapes Full Playback, No Missed Beats</u></a></li>
-<li><a href="https://network-issues.techidaily.com/ending-issues-a-solution-to-hybrid-gpu-problem-with-intellnvidia/"><u>Ending Issues: A Solution to Hybrid GPU Problem with Intell/NVIDIA</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-realme-gt-3-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Realme GT 3 Location | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/inside-the-wearable-world-how-does-vr-work-for-2024/"><u>Inside the Wearable World How Does VR Work for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209742304-9781722522667-the-power-of-your-subconscious-mind-with-study-guide/"><u>The Power of Your Subconscious Mind with Study Guide | Free Book</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/troubleshooting-tips-why-wont-my-powerdvd-play-a-dvd/"><u>Troubleshooting Tips: Why Won’t My PowerDVD Play a DVD?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-the-secrets-where-are-bsod-logs-stored/"><u>Unlocking the Secrets: Where Are BSOD Logs Stored?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/upcoming-release-discover-the-motorola-devices-eligible-for-android-15-update/"><u>Upcoming Release: Discover the Motorola Devices Eligible for Android 15 Update</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-take-your-audio-to-the-next-level-top-10-editing-software/"><u>Updated 2024 Approved Take Your Audio to the Next Level Top 10 Editing Software</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-social-media-savvy-how-to-download-status-vids-on-fb/"><u>[New] 2024 Approved Social Media Savvy How to Download Status Vids on FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-breaking-down-barriers-with-shared-youtube-curations-for-2024/"><u>[New] Breaking Down Barriers with Shared YouTube Curations for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-getting-involved-in-the-global-village-facebook/"><u>[New] Getting Involved in the Global Village (Facebook)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-leading-apps-top-10-choices-for-seamless-vimeo-file-extraction/"><u>[New] Leading Apps Top 10 Choices for Seamless Vimeo File Extraction</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-social-sharing-during-facebook-lives-for-2024/"><u>[New] Mastering Social Sharing During Facebook Lives for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-cameraphone-trackers-precision-power-performance/"><u>[Updated] 2024 Approved Top Camera/Phone Trackers Precision, Power, Performance</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-utilizing-fb-features-for-broadcasting-historical-video-footage/"><u>[Updated] 2024 Approved Utilizing FB Features for Broadcasting Historical Video Footage</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elevate-engagement-4-steps-to-add-fb-story-link-for-2024/"><u>[Updated] Elevate Engagement 4 Steps to Add FB Story Link for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-exclusive-mp4-uploader-to-facebook-platform-for-2024/"><u>[Updated] Exclusive MP4 Uploader to Facebook Platform for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-silent-screens-to-captivating-media-instantly-create-captions-on-fb/"><u>[Updated] From Silent Screens to Captivating Media Instantly Create Captions on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-live-streaming-guide-facebook-via-androidios-devices/"><u>[Updated] In 2024, Live Streaming Guide Facebook via Android/iOS Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-stealthy-video-streamer-reviews-1-8/"><u>[Updated] In 2024, Stealthy Video Streamer Reviews #1-8</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-key-strategies-for-gaining-facebooks-top-marker-for-2024/"><u>[Updated] Key Strategies for Gaining Facebook's Top Marker for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-comprehensive-guide-to-podcast-rss-feed-crafting/"><u>2024 Approved Comprehensive Guide to Podcast RSS Feed Crafting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/avoiding-blur-techniques-for-hand-held-stability-for-2024/"><u>Avoiding Blur Techniques for Hand-Held Stability for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/enhancing-your-gaming-experience-with-crisp-imagery-in-outriders-updated-version/"><u>Enhancing Your Gaming Experience with Crisp Imagery in Outriders' Updated Version</u></a></li>
+<li><a href="https://windows11.techidaily.com/further-issues-discovered-new-windows-updates-causing-devastating-bluescreens/"><u>Further Issues Discovered: New Windows Updates Causing Devastating Bluescreens</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-driver-for-your-hp-deskjet-eb3755-all-in-one-printer-on-windows-operating-systems-windows-10-8-and-7/"><u>Get the Latest Driver for Your HP DeskJet Eb3755 All-in-One Printer on Windows Operating Systems (Windows 10, 8 & 7)</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/untangling-dll-dilemmas-effective-solutions-for-handling-msvcr70dll-disappearance-errors/"><u>Untangling DLL Dilemmas: Effective Solutions for Handling MSVCR70.DLL Disappearance Errors</u></a></li>
 </ul></div>
 
