@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Start with Simple  Understanding Facebook Metrics for Newbies for 2024\""
-date: 2025-01-19T03:58:45.592Z
-updated: 2025-01-19T23:22:34.739Z
+date: 2025-01-22T19:00:52.373Z
+updated: 2025-01-25T17:13:01.863Z
 tags:
   - ai video
   - ai facebook
@@ -49,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
@@ -60,11 +56,7 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -76,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -93,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Video Analytics
 
  Now, the video tab gives you a complete overview of how your videos are performing. You can check out the paid and organic, repeat and unique, and manual click and auto click views on your videos. There are 3 tabs under this section.
@@ -104,6 +104,10 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -118,11 +122,11 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -132,10 +136,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -152,20 +152,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigating-the-minefield-suddenly-banned-videos-on-social-media/"><u>[New] 2024 Approved Navigating the Minefield Suddenly Banned Videos on Social Media</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-revolutionize-your-mobile-viewing-experience/"><u>[New] In 2024, Revolutionize Your Mobile Viewing Experience</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-screenmaster-mastering-window-recordings-on-spring/"><u>[Updated] 2024 Approved ScreenMaster Mastering Window Recordings on Spring</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-2023s-top-8-video-sensations-a-facebook-deep-dive/"><u>[Updated] In 2024, 2023'S Top 8 Video Sensations A Facebook Deep Dive</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-sign-up-saga-crafting-your-digital-persona-facebook/"><u>[Updated] In 2024, Sign Up Saga Crafting Your Digital Persona (Facebook)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-stay-up-to-date-with-facebooks-latest-watched-content/"><u>[Updated] In 2024, Stay Up-to-Date with Facebook's Latest Watched Content</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-zeroing-out-blemishes-how-to-use-psxs-eraser-tool/"><u>[Updated] Zeroing Out Blemishes How to Use PSX's Eraser Tool</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/can-you-optimize-my-notebook-with-a-new-cpu/"><u>Can You Optimize My Notebook with a New CPU?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/free-vob-to-m4v-conversion-service-by-moveave-convert-dvds-instantly/"><u>Free VOB to M4V Conversion Service by Moveave - Convert DVDs Instantly!</u></a></li>
-<li><a href="https://win11.techidaily.com/hypervisor-blues-heres-your-win-10-and-11-fix-guide/"><u>Hypervisor Blues? Here's Your Win 10 & 11 Fix Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-anticipated-shifts-in-social-media-marketing-fb-ad-trends-of-24/"><u>In 2024, The Anticipated Shifts in Social Media Marketing FB Ad Trends of '24</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/maximizing-your-texts-without-breaking-the-bank-on-data/"><u>Maximizing Your Texts Without Breaking the Bank on Data</u></a></li>
-<li><a href="https://facebook.techidaily.com/reimagine-your-digital-life-4-key-strategies-to-refine-your-facebook-viewing/"><u>Reimagine Your Digital Life: 4 Key Strategies to Refine Your Facebook Viewing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/tackling-challenges-head-on-essentials-for-onestream-livestreamers/"><u>Tackling Challenges Head-On Essentials for OneStream Livestreamers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/the-hidden-pathway-how-to-seamlessly-integrate-youtube-content-onto-facebook/"><u>The Hidden Pathway How to Seamlessly Integrate YouTube Content Onto Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximizing-engagement-choosing-your-fb-video-direction/"><u>[New] 2024 Approved Maximizing Engagement - Choosing Your FB Video Direction</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-ultimate-caption-creation-process-for-compelling-facebook-media/"><u>[New] 2024 Approved The Ultimate Caption Creation Process for Compelling Facebook Media</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-insiders-handbook-for-instagram-video-woes/"><u>[Updated] 2024 Approved The Insider’s Handbook for Instagram Video Woes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-broadcasting-facebook-videos-whats-the-future-like-in-2024/"><u>[Updated] Broadcasting Facebook Videos What's the Future Like, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-art-of-hashtagging-strategies-for-maximum-impact-on-facebook/"><u>[Updated] The Art of Hashtagging Strategies for Maximum Impact on Facebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-uncovering-top-tier-cloud-services-to-sustain-data/"><u>[Updated] Uncovering Top-Tier Cloud Services to Sustain Data</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtuber-yield-the-leaders-with-the-largest-audiences-for-2024/"><u>[Updated] YouTuber Yield The Leaders with the Largest Audiences for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-talkback-transforming-prompts-into-conversations/"><u>ChatGPT Talkback: Transforming Prompts Into Conversations</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/effortless-facebook-live-streams-from-your-smartphone-for-2024/"><u>Effortless Facebook Live Streams From Your Smartphone for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-encounter-with-urdu-basic-vocabulary-lists/"><u>First Encounter with Urdu: Basic Vocabulary Lists</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/go-pro-simple-techniques-for-captivating-slow-motion-videos-on-android-for-2024/"><u>Go Pro Simple Techniques for Captivating Slow Motion Videos on Android for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-gta-v-the-troubleshooting-guide-for-game-freezes-and-crashes/"><u>Solving GTA V: The Troubleshooting Guide for Game Freezes & Crashes</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/transforming-mac-data-retrieval-with-stellars-12v-software-update/"><u>Transforming Mac Data Retrieval with Stellar's 12v Software Update</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-flawless-streams-with-sharper-views/"><u>Unlocking Flawless Streams with Sharper Views</u></a></li>
 </ul></div>
 

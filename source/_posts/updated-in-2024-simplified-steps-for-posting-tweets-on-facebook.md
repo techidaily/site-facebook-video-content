@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Simplified Steps for Posting Tweets on Facebook"
-date: 2025-01-16T03:35:08.516Z
-updated: 2025-01-19T20:41:55.497Z
+date: 2025-01-18T16:57:44.773Z
+updated: 2025-01-26T01:02:06.075Z
 tags:
   - ai video
   - ai facebook
@@ -25,17 +25,9 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why share Twitter posts to Facebook?
 
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Post Tweets to Facebook – Step by Step guide
 
@@ -47,28 +39,40 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
@@ -181,10 +185,6 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -200,22 +200,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-advanced-conversion-mp4-to-facebook-2023/"><u>[New] 2024 Approved Advanced Conversion MP4 to FaceBook 2023</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-simplifying-fb-live-sessions-on-roku-devices/"><u>[New] 2024 Approved Simplifying FB Live Sessions on Roku Devices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-paving-the-way-for-smooth-video-autoplay-on-social-media-platforms/"><u>[New] Paving the Way for Smooth Video Autoplay on Social Media Platforms</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-microphone-choices-for-filmmakers-for-2024/"><u>[New] Ultimate Microphone Choices for Filmmakers for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unveiling-the-elite-video-cameras-for-2-point-zero-four-two-for-2024/"><u>[New] Unveiling the Elite Video Cameras for 2 Point Zero Four Two for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-resolve-vanished-watch-video-icon-issue-2023/"><u>[Updated] 2024 Approved Resolve Vanished Watch Video Icon Issue, 2023</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-ultimate-guide-to-selecting-optimal-drones-motors/"><u>[Updated] 2024 Approved The Ultimate Guide to Selecting Optimal Drones Motors</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-disqus-poster-pixel-arrangement/"><u>[Updated] Disqus Poster Pixel Arrangement</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-guide-to-creating-an-eye-catching-collage/"><u>[Updated] Step-by-Step Guide to Creating an Eye-Catching Collage</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-future-is-virtual-making-and-sharing-immersive-footage-for-fb/"><u>[Updated] The Future Is Virtual Making and Sharing Immersive Footage for FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-three-foundational-elements-for-powerful-facebook-ad-headlines/"><u>[Updated] Three Foundational Elements for Powerful Facebook Ad Headlines</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-c12-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia C12 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-11-cutting-edge-techniques-for-optimizing-your-fb-videos/"><u>In 2024, 11 Cutting-Edge Techniques for Optimizing Your FB Videos</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-motorola-razr-40-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Motorola Razr 40</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-showdown-how-the-dji-mavic-2-pro-became-the-premier-choice-among-drone-experts/"><u>Review Showdown: How the DJI Mavic 2 Pro Became the Premier Choice Among Drone Experts</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-of-the-best-professional-animation-software-for-mac-and-windows/"><u>Updated Best of the Best Professional Animation Software for Mac and Windows</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-get-started-with-jaycut-a-beginners-guide-to-free-online-video-editing-for-2024/"><u>Updated Get Started with Jaycut A Beginners Guide to Free Online Video Editing for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-composing-engaging-podcast-thumbnails/"><u>[New] In 2024, Composing Engaging Podcast Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-generate-interest-making-your-own-youtube-intros-for-2024/"><u>[Updated] Generate Interest Making Your Own YouTube Intros for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-becoming-a-live-broadcast-pro-the-essential-guide-to-wirecast-and-fb/"><u>2024 Approved Becoming a Live Broadcast Pro The Essential Guide to Wirecast and FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-conquering-commercials-dodge-fb-vids/"><u>2024 Approved Conquering Commercials Dodge FB Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigating-the-social-media-labyrinth-30-marketing-secrets/"><u>2024 Approved Navigating the Social Media Labyrinth 30 Marketing Secrets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-optimal-viewing-angles-for-fb-videos/"><u>2024 Approved Optimal Viewing Angles for FB Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-securely-accessing-social-memories-fb-status-videos-guide/"><u>2024 Approved Securely Accessing Social Memories FB Status Videos Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-step-by-step-blueprint-accessing-facebook-status-videos/"><u>2024 Approved Step-by-Step Blueprint Accessing Facebook Status Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unblocking-video-sharing-how-to-solve-fb-chat-issues-for-iphonesandroid/"><u>2024 Approved Unblocking Video Sharing How to Solve FB Chat Issues for iPhones/Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>2024 Approved Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/closer-than-ever-to-flawlessness-a-comprehensive-look-at-the-samsung-galaxy-s22/"><u>Closer Than Ever to Flawlessness - A Comprehensive Look at the Samsung Galaxy S22</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-curated-selection-of-best-ps3-simulators-pc-edition/"><u>Expert-Curated Selection of Best PS3 Simulators (PC Edition)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/guide-seamless-facebook-live-integration-for-web-pages-for-2024/"><u>Guide Seamless Facebook Live Integration for Web Pages for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-specs-hp-envy-27s-4k-capabilities/"><u>In 2024, Unveiling the Specs HP Envy 27'S 4K Capabilities</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-poco-c65-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Poco C65</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/snap-into-clarity-10-online-tools-to-blur-proof-images/"><u>Snap Into Clarity 10 Online Tools to Blur-Proof Images</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/solving-stick-drift-issues-a-comprehensive-guide-for-steam-deck-gamers/"><u>Solving Stick Drift Issues: A Comprehensive Guide for Steam Deck Gamers</u></a></li>
 </ul></div>
 
