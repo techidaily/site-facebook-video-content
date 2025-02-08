@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Start Your Journey to Savvy Social Analytics on Facebook"
-date: 2025-01-20T02:32:53.206Z
-updated: 2025-01-25T18:00:09.313Z
+date: 2025-01-31T19:33:55.913Z
+updated: 2025-02-07T16:38:02.990Z
 tags:
   - ai video
   - ai facebook
@@ -41,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -59,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Page Likes
 
  There are three basic metrics in the likes section.
@@ -72,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -86,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -106,7 +102,7 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. People Analytics
@@ -122,7 +118,11 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -134,7 +134,7 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,22 +152,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-ultimate-guide-to-shoot-and-upload-immersive-footage-on-fb/"><u>[New] 2024 Approved The Ultimate Guide to Shoot & Upload Immersive Footage on FB</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-av1-decoded-a-novices-introduction/"><u>[New] In 2024, AV1 Decoded A Novice's Introduction</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-calculating-cost-for-shooting-a-song-in-cinematic-style/"><u>[New] In 2024, Calculating Cost for Shooting A Song in Cinematic Style</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-maximizing-social-reach-with-tiktok-to-facebook-integration/"><u>[New] In 2024, Maximizing Social Reach with TikTok to Facebook Integration</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlock-old-facebook-memories-with-a-click/"><u>[New] In 2024, Unlock Old Facebook Memories with a Click</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-enhance-facebook-stream-volume-completely/"><u>[Updated] 2024 Approved How to Enhance Facebook Stream Volume Completely</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-personalize-your-viewing-experience-building-a-google-cardboard-vr-setup/"><u>[Updated] 2024 Approved Personalize Your Viewing Experience Building a Google Cardboard VR Setup</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-superior-screenplays-distributed-among-classified-types/"><u>[Updated] 2024 Approved Superior Screenplays Distributed Among Classified Types</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-ultimate-list-of-untapped-facebook-meme-havens/"><u>[Updated] In 2024, The Ultimate List of Untapped Facebook Meme Havens</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-amazonbasics-flat-antenna-for-tvs-comprehensive-evaluation/"><u>Budget Friendly AmazonBasics Flat Antenna for TVs: Comprehensive Evaluation</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/dissecting-facebook-short-videos-a-comprehensive-overview-for-2024/"><u>Dissecting Facebook Short Videos A Comprehensive Overview for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/high-staking-haven-evalutations-for-2024/"><u>HIGH-STAKING HAVEN EVALUTATIONS for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-discover-the-a-list-of-excellent-ios-video-apps/"><u>In 2024, Discover the A-List of Excellent iOS Video Apps</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-from-your-apple-iphone-15-plus-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card from Your Apple iPhone 15 Plus Apple ID and Apple Pay</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-masterclass-in-creating-dynamic-facebook-slideshows/"><u>In 2024, Masterclass in Creating Dynamic Facebook Slideshows</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/rights-overload-immediate-content-scrapping-for-2024/"><u>Rights Overload Immediate Content Scrapping for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/upgrade-your-tiktok-content-with-elite-ring-lights-of-2eighteen-a-comprehensive-guide-for-creators-siliconspectrum/"><u>Upgrade Your TikTok Content with Elite Ring Lights of 2Eighteen: A Comprehensive Guide for Creators | SiliconSpectrum</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-streamlining-access-to-fb-live-via-roku/"><u>[New] 2024 Approved Streamlining Access to FB Live via Roku</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-easy-path-sending-fb-videos-to-whatsapp-contacts-for-2024/"><u>[New] Easy Path Sending FB Videos to WhatsApp Contacts for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exclusive-rescue-regaining-fb-passwords-for-2024/"><u>[New] Exclusive Rescue Regaining FB Passwords for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-social-stream-top-8-viral-videos-for-2024/"><u>[New] Social Stream Top 8 Viral Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-top-five-revolutionary-facebook-enhancements/"><u>[New] Top Five Revolutionary Facebook Enhancements</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-fastest-practices-powerpoint-recordings/"><u>[Updated] 2024 Approved Fastest Practices PowerPoint Recordings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-navigating-the-path-of-adobe-presenter-video-creation/"><u>[Updated] In 2024, Navigating the Path of Adobe Presenter Video Creation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-sow-and-reap-rivalries-farming-games-to-remember-for-2024/"><u>[Updated] Sow & Reap Rivalries Farming Games to Remember for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transitioning-from-srt-to-subtitles/"><u>[Updated] Transitioning From SRT to Subtitles</u></a></li>
+<li><a href="https://blog-min.techidaily.com/advanced-frame-generation-technique-using-ai-improving-frames-per-second-fps-and-ensuring-buttery-smooth-transitions-in-videos/"><u>Advanced Frame Generation Technique Using AI: Improving Frames Per Second (FPS) and Ensuring Buttery Smooth Transitions in Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elevate-your-fan-count-top-tactics-for-fb-page-ranks/"><u>Elevate Your Fan Count Top Tactics for FB Page Ranks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/find-and-install-canon-mx340-printing-software-compatible-with-windows-7-8-and-10/"><u>Find and Install Canon MX340 Printing Software: Compatible with Windows 7, 8 & 10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-tecno-spark-10-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Tecno Spark 10 Pro Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-zero-cost-zest-the-ultimate-guide-to-free-game-film/"><u>In 2024, Zero Cost Zest The Ultimate Guide to Free Game Film</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/los-8-estilos-clasicos-de-dibujo-lo-esencial-para-artistas-emergentes/"><u>Los 8 Estilos Clásicos De Dibujo: Lo Esencial Para Artistas Emergentes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/quickly-uncover-lately-watched-facebook-videos/"><u>Quickly Uncover Lately Watched Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/requesting-for-unrestricted-access-to-shared-visual-and-audio-content/"><u>Requesting for Unrestricted Access to Shared Visual & Audio Content</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-prime-collection-of-pc-screen-capture-tools-win11/"><u>The Prime Collection of PC Screen Capture Tools (Win11)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tiktok-audio-integrity-overcoming-silent-intervals-in-videos/"><u>TikTok Audio Integrity Overcoming Silent Intervals in Videos</u></a></li>
 </ul></div>
 

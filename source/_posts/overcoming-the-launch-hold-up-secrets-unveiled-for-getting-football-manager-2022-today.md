@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Launch Hold-Up: Secrets Unveiled For Getting Football Manager 2022 Today"
-date: 2025-01-25T09:33:27.821Z
-updated: 2025-01-26T00:15:50.814Z
+date: 2025-02-04T21:19:35.412Z
+updated: 2025-02-08T05:41:54.997Z
 tags:
   - win11
   - win10
@@ -20,7 +20,7 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
  Football Manager 2022 PC players are reporting that the game is crashing at launch or not starting at all. Here is how to fix Football Manager 2022 not launching issue.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to fix Football Manager 2022 launch issues?
@@ -52,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
  Or you can uninstall your antivirus temporarily (note that disabling it won’t work) and be very careful about the websites you’re visiting.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 3\. Update your graphics driver
 
  If you are using the wrong or outdated graphics driver, it can cause launch issues especially in new game titles such as Football Manager 2022\. So, it is recommended to keep your graphics driver up to date. The updated driver should solve the crashing at launch issues and it can also help to boost up the overall game’s performance.
@@ -68,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 2. Run Driver Easy and click**Scan Now** . Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/driver-easy-5.7.1.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.(This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![update all drivers](https://images.drivereasy.com/wp-content/uploads/2021/10/update-all.jpg)
 
@@ -105,10 +97,14 @@ Once complete, launch the game to check if your game is working again.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-8-1200x758.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6\. Run the game executable file as admin
 
@@ -122,11 +118,11 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/11/image-9.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Locate the game’s executable and run the game as an administrator.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 7\. Open the game in windowed mode
 
@@ -135,13 +131,17 @@ Once complete, launch the game to check if your game is working again.
  1) Right-click on Football Manager 2021 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
 
  Launch your Football Manager 2022 to check if your launch issues have been resolved successfully.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 8\. Repair your system files
@@ -170,13 +170,13 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) You’ll see the summary of detected issues on your PC. Click **START REPAIR** and all the issues will be fixed automatically. (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Option 2 – Manually
 
@@ -190,10 +190,6 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/cmd-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Click**Yes** when prompted for permission to make changes to your device.
 
  2) In the Command Prompt, type the following command and hit**Enter** .
@@ -203,6 +199,10 @@ sfc /scannow
  3) System File Check will begin to scan all system files and repair any corrupted or missing ones it detected. This may take 3-5 minutes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/scan-now.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4) You may receive something like the following messages after the verification.
 
@@ -261,19 +261,14 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unseen-fb-video-tactics-unlock-all-sharing-options/"><u>[New] 2024 Approved Unseen FB Video Tactics Unlock All Sharing Options</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-deciphering-online-videography-a-facebook-journey/"><u>[New] Deciphering Online Videography A Facebook Journey</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-journey-to-excellent-ps2-gaming-via-these-5-android-apps/"><u>[Updated] In 2024, Journey to Excellent PS2 Gaming via These 5 Android Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/de-to-gathering-creative-themes-using-google-trends/"><u>A Guide to Gathering Creative Themes Using Google Trends</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/determining-your-promotion-budget-on-youtube/"><u>Determining Your Promotion Budget on YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-turn-on-hdr-settings-in-windows-11/"><u>In 2024, How to Turn On HDR Settings in Windows 11</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-nokia-c110-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Nokia C110 Without PUK Codes</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-instant-live-from-obs-to-instagram-app/"><u>In 2024, Instant Live From OBS to Instagram App</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/leading-visual-voice-message-apps-this-year/"><u>Leading Visual Voice Message Apps This Year</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/maximizing-gameplay-in-battle-royales-strategies-to-overcome-lag-and-increase-fps-efficiency/"><u>Maximizing Gameplay in Battle Royales: Strategies to Overcome Lag and Increase FPS Efficiency</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/tips-for-perfected-framing-implementing-letterboxing-on-social-media-for-2024/"><u>Tips for Perfected Framing Implementing Letterboxing on Social Media for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-ranking-visual-voice-mail-solutions/"><u>Top-Ranking Visual Voice Mail Solutions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unleashing-potential-11-steps-to-enhance-facebook-traffic-through-video/"><u>Unleashing Potential 11 Steps to Enhance Facebook Traffic Through Video</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/whats-fresh-with-facebook-latest-info-here-for-2024/"><u>What’s Fresh with Facebook? Latest Info Here for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-leverage-both-platforms-youtube-and-facebook-integration/"><u>[New] 2024 Approved Leverage Both Platforms YouTube and Facebook Integration</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-step-by-step-grab-facebook-videos-on-both-oses/"><u>[Updated] 2024 Approved Step-by-Step Grab Facebook Videos on Both OSes</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/expert-recommended-6-online-apps-to-delete-background-perfectly-for-2024/"><u>Expert-Recommended 6 Online Apps to Delete Background Perfectly for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/film-for-a-friendly-facebook-feature-for-2024/"><u>Film for a Friendly Facebook Feature for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-interactive-media-platform-breakdown/"><u>In 2024, Interactive Media Platform Breakdown</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-master-stitching-gopro-content-in-extended-panorama-videos/"><u>In 2024, Master Stitching GoPro Content in Extended Panorama Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/photo-savvy-with-an-iphone-ideal-perspectives-uncovered/"><u>Photo Savvy with an iPhone Ideal Perspectives Uncovered</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-the-xerox-print-service-windows-update-issue-error-code-0x800f020b/"><u>Resolving the 'Xerox Print Service' Windows Update Issue (Error Code 0X800F020B)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/violation-woes-abrupt-creative-cut-off/"><u>Violation Woes Abrupt Creative Cut-Off</u></a></li>
 </ul></div>
 

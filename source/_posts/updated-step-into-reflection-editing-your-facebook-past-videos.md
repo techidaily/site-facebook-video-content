@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step Into Reflection  Editing Your Facebook Past Videos\""
-date: 2025-01-18T22:00:21.008Z
-updated: 2025-01-26T00:12:57.999Z
+date: 2025-02-05T18:11:47.773Z
+updated: 2025-02-08T00:14:26.591Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
@@ -74,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
@@ -81,13 +81,13 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
@@ -102,13 +102,13 @@ thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -126,17 +126,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-a-deep-dive-into-apples-m1-processor-power/"><u>[New] A Deep Dive Into Apple's M1 Processor Power</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-download-fb-content-windows-and-mac-guide/"><u>[New] Download FB Content Windows & Mac Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-invisible-vibes-dimming-music-on-computers/"><u>[New] Invisible Vibes Dimming Music on Computers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-boosting-facebook-ad-revenue-with-strategic-animated-content-design-for-2024/"><u>[Updated] Boosting Facebook Ad Revenue with Strategic Animated Content Design for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-ultimate-guide-to-collecting-key-tools-in-your-toolkit/"><u>[Updated] In 2024, The Ultimate Guide to Collecting Key Tools in Your Toolkit</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-socialsnatcher-hd-extractor/"><u>2024 Approved SocialSnatcher HD Extractor</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-infinix-note-30i-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Infinix Note 30i? Try These Fixes</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/funnyframe-easy-memes-no-stress-for-2024/"><u>FunnyFrame Easy Memes, No Stress for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-nokia-c12-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Nokia C12.</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/integrating-past-videos-into-current-live-feeds-on-fb-for-2024/"><u>Integrating Past Videos Into Current Live Feeds on FB for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/premier-ai-for-stunning-photo-creation/"><u>Premier AI for Stunning Photo Creation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-5-essentials-pre-purchase-checklist-when-investing-in-your-new-game-system/"><u>Top 5 Essentials: Pre-Purchase Checklist When Investing in Your New Game System</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-bring-a-chuckle-to-life-generating-text-memes/"><u>[New] 2024 Approved Bring a Chuckle to Life Generating Text Memes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-download-premium-facebook-hd-content-anywhere/"><u>[New] In 2024, Download Premium Facebook HD Content Anywhere</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-how-to-search-people-on-facebook-quickly-2-ways-included/"><u>[New] In 2024, How to Search People on Facebook Quickly (2 Ways Included)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-interactive-insights-archive/"><u>[New] In 2024, Interactive Insights Archive</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-invisible-riches-the-online-auction-exclusive-to-the-elusive-2023-edition/"><u>[New] In 2024, Invisible Riches The Online Auction Exclusive to the Elusive, 2023 Edition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unlock-the-potential-of-your-fb-cover-image-with-these-top-11-websites/"><u>[New] Unlock the Potential of Your FB Cover Image with These Top 11 Websites</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-shine-a-light-the-12-ultimate-fixes-for-making-facebook-videos-visible-again/"><u>[Updated] 2024 Approved Shine a Light The 12 Ultimate Fixes for Making Facebook Videos Visible Again</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-efficiently-merging-webcam-with-monitor-data/"><u>[Updated] Efficiently Merging Webcam with Monitor Data</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximize-reach-essential-youtube-seo-tools-unlocked/"><u>[Updated] Maximize Reach Essential YouTube SEO Tools Unlocked</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-setting-up-audio-on-modern-windows-10/"><u>[Updated] Setting Up Audio on Modern Windows 10</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-live-recording-setup-on-xbox-for-gamers/"><u>2024 Approved Live Recording Setup on Xbox for Gamers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-prime-top-5-virtual-reality-drones/"><u>2024 Approved Prime Top 5 Virtual Reality Drones</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/origin-wont-go-online-fixed/"><u>Origin Won’t Go Online [FIXED]</u></a></li>
 </ul></div>
 

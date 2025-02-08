@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Start with Simple  Understanding Facebook Metrics for Newbies for 2024\""
-date: 2025-01-22T19:00:52.373Z
-updated: 2025-01-25T17:13:01.863Z
+date: 2025-02-01T06:08:15.206Z
+updated: 2025-02-07T22:14:05.776Z
 tags:
   - ai video
   - ai facebook
@@ -47,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Use Facebook Insights for Beginners
 
 ### 1\. Overview
@@ -56,7 +60,7 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -70,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Post Reach
@@ -85,13 +89,13 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -106,7 +110,11 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. People Analytics
@@ -120,14 +128,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -152,19 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximizing-engagement-choosing-your-fb-video-direction/"><u>[New] 2024 Approved Maximizing Engagement - Choosing Your FB Video Direction</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-ultimate-caption-creation-process-for-compelling-facebook-media/"><u>[New] 2024 Approved The Ultimate Caption Creation Process for Compelling Facebook Media</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-insiders-handbook-for-instagram-video-woes/"><u>[Updated] 2024 Approved The Insider’s Handbook for Instagram Video Woes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-broadcasting-facebook-videos-whats-the-future-like-in-2024/"><u>[Updated] Broadcasting Facebook Videos What's the Future Like, In 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-art-of-hashtagging-strategies-for-maximum-impact-on-facebook/"><u>[Updated] The Art of Hashtagging Strategies for Maximum Impact on Facebook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-uncovering-top-tier-cloud-services-to-sustain-data/"><u>[Updated] Uncovering Top-Tier Cloud Services to Sustain Data</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtuber-yield-the-leaders-with-the-largest-audiences-for-2024/"><u>[Updated] YouTuber Yield The Leaders with the Largest Audiences for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-talkback-transforming-prompts-into-conversations/"><u>ChatGPT Talkback: Transforming Prompts Into Conversations</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/effortless-facebook-live-streams-from-your-smartphone-for-2024/"><u>Effortless Facebook Live Streams From Your Smartphone for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-encounter-with-urdu-basic-vocabulary-lists/"><u>First Encounter with Urdu: Basic Vocabulary Lists</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/go-pro-simple-techniques-for-captivating-slow-motion-videos-on-android-for-2024/"><u>Go Pro Simple Techniques for Captivating Slow Motion Videos on Android for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-gta-v-the-troubleshooting-guide-for-game-freezes-and-crashes/"><u>Solving GTA V: The Troubleshooting Guide for Game Freezes & Crashes</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/transforming-mac-data-retrieval-with-stellars-12v-software-update/"><u>Transforming Mac Data Retrieval with Stellar's 12v Software Update</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unlocking-flawless-streams-with-sharper-views/"><u>Unlocking Flawless Streams with Sharper Views</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gold-standard-of-livestream-performances/"><u>[New] Gold Standard of Livestream Performances</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-watch-facebook-live-in-2024/"><u>[New] How to Watch Facebook Live, In 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-metadata-title-and-description-for-youtube-traction/"><u>[New] Mastering Metadata Title and Description for YouTube Traction</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-set-up-facebook-cover-videos/"><u>[New] Set up Facebook Cover Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-simplified-installation-dive-into-ifunnys-meme-world/"><u>[New] Simplified Installation Dive Into iFunny's Meme World</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-comprehensive-guide-to-cross-posting-youtube-video-on-fb-for-2024/"><u>[Updated] Comprehensive Guide to Cross-Posting YouTube Video on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-explore-our-updated-top-10-best-fb-video-extractors-for-android-users-for-2024/"><u>[Updated] Explore Our Updated Top 10 Best FB Video Extractors for Android Users for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-four-streaming-ways-to-showcase-fb-live-events-on-tv/"><u>[Updated] In 2024, Four Streaming Ways to Showcase FB Live Events on TV</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-skype-tone-searching-made-easy-pick-from-the-4-ace-lists/"><u>[Updated] In 2024, Skype Tone Searching Made Easy Pick From the 4 Ace Lists</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-dissecting-backwards-image-trails-on-social-media-giant-facebook/"><u>2024 Approved Dissecting Backwards Image Trails on Social Media Giant Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-youtubers-guide-to-picking-perfect-recording-tools/"><u>2024 Approved The YouTuber's Guide to Picking Perfect Recording Tools</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/access-private-text-interactions-converse-with-chatgpt-through-duckduckgos-secure-ai-messaging-app/"><u>Access Private Text Interactions: Converse with ChatGPT Through DuckDuckGo’s Secure AI Messaging App</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigate-effortlessly-the-best-5-chrome-addons-for-downloading-fb-videos-for-2024/"><u>Navigate Effortlessly The Best 5 Chrome Addons for Downloading FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/propel-your-presence-on-facebook-mastering-the-art-of-going-live-for-2024/"><u>Propel Your Presence on Facebook Mastering the Art of Going Live for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/real-time-photo-editing-on-the-go-cropping-techniques-for-2024/"><u>Real-Time Photo Editing On-the-Go Cropping Techniques for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/samsung-galaxy-xcover-6-pro-tactical-edition-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy XCover 6 Pro Tactical Edition Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://win-help.techidaily.com/yl-computings-elegant-sayori-themes-premium-backdrop-graphics-and-walls/"><u>YL Computing's Elegant Sayori Themes: Premium Backdrop Graphics & Walls</u></a></li>
 </ul></div>
 
