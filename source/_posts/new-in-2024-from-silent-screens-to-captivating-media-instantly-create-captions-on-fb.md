@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Silent Screens to Captivating Media  Instantly Create Captions on FB\""
-date: 2025-02-01T20:04:41.382Z
-updated: 2025-02-07T21:17:50.392Z
+date: 2025-02-10T17:12:04.173Z
+updated: 2025-02-17T20:32:07.291Z
 tags:
   - ai video
   - ai facebook
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 
 You might have seen so many videos that contain captions and assist users to understand content with ease even if audio is turned off. Such types of videos are common on Facebook as well as on Facebook Live Streaming app. You will be glad to know that Facebook has recently launched an advanced automatic captioning tool for Facebook Pages in US and it works for free. But this feature is not yet added to Facebook Profiles, reason being the Facebook pages and profiles use follow large number of feature based differences. If you love to stream videos so often on Facebook Pages then probably you must be searching hard for the caption and subtitle creation option as it allows easy customization. Don’t worry! The article below can provide you complete information to add captions on your Facebook videos:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Create Subtitles and Captions for Facebook Video
 
 Here are a few simple steps to get things done:
@@ -34,10 +38,6 @@ Here are a few simple steps to get things done:
 Step 1: First of all, you need to move to your video library. In case if you find this library is empty, then you can add videos to it from your personal device. Simply use the upload button to get your video to which you wish to add subtitles or captions.
 
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
 
@@ -53,10 +53,6 @@ SRT caption files are usually supported by almost all popular media players and 
 
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
 * Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
 
@@ -65,6 +61,10 @@ SRT caption files are usually supported by almost all popular media players and 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
 
@@ -78,25 +78,21 @@ It is convenient to create captions in Facebook with the automatic generate tool
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are few simple to follow steps
 
 #### Step 1: Import your desired Video File
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
@@ -110,10 +106,14 @@ Once you have finished the text based editing task then hit the Export option av
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -132,22 +132,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-fb-cover-videos-demystified-what-everyone-should-know/"><u>[New] In 2024, FB Cover Videos Demystified What Everyone Should Know</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-guide-sharing-melodies-in-facebook-narratives/"><u>[New] In 2024, Guide Sharing Melodies in Facebook Narratives</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-seamless-searches-the-updated-guide-for-finding-youtube-on-fb-for-2024/"><u>[New] Seamless Searches The Updated Guide for Finding YouTube on FB for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-securely-save-fb-high-definition/"><u>[New] Securely Save FB High Definition</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unlock-potential-the-15-best-tools-for-transforming-fb-revenue/"><u>[Updated] 2024 Approved Unlock Potential The 15 Best Tools for Transforming FB Revenue</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlocking-facebooks-full-potential-4-sharing-techniques/"><u>[Updated] In 2024, Unlocking Facebook's Full Potential 4 Sharing Techniques</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-webs-frontier-leading-browsers-for-screen-recording/"><u>[Updated] In 2024, Web's Frontier Leading Browsers for Screen Recording</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-radiant-spectrum-enhancer/"><u>[Updated] Radiant Spectrum Enhancer</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-top-notch-mac-visual-archiver-for-2024/"><u>[Updated] Top-Notch Mac Visual Archiver for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easily-update-or-install-focusrite-scarlett-2i4-audio-drivers-for-optimal-performance-in-windows/"><u>Easily Update or Install Focusrite Scarlett 2I4 Audio Drivers for Optimal Performance in Windows</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/guide-verifying-your-pcs-power-unit-tech-insights-by-yl-computing/"><u>Guide: Verifying Your PC's Power Unit - Tech Insights by YL Computing</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-infinix-note-30-vip-racing-edition-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Infinix Note 30 VIP Racing Edition Phone that is Locked?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-stepwise-approach-to-resolve-facebook-story-errors/"><u>In 2024, Stepwise Approach to Resolve Facebook Story Errors</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/securing-your-anonymity-during-instagrams-live-feature/"><u>Securing Your Anonymity During Instagram's Live Feature</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/time-travel-on-fb-accessing-historical-posts/"><u>Time Travel on FB Accessing Historical Posts</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unmatched-visual-quality-in-the-best-4k-panels-ranked-1-10-for-2024/"><u>Unmatched Visual Quality in the Best 4K Panels, Ranked #1-10 for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/weighing-up-early-access-games-value/"><u>Weighing Up Early Access Games' Value</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-convert-fb-video-to-downloadable-mp3-for-2024/"><u>[New] Convert FB Video to Downloadable MP3 for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-ultimate-process-to-update-your-videos-cover-images/"><u>[New] In 2024, The Ultimate Process to Update Your Videos' Cover Images</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-20-best-free-platforms-for-youtube-channel-beginners-for-2024/"><u>[Updated] 20 Best Free Platforms for YouTube Channel Beginners for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-cutting-edge-obs-use-in-android-broadcasting/"><u>[Updated] Cutting-Edge OBS Use in Android Broadcasting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-lightning-fast-windowed-image-viewer/"><u>[Updated] In 2024, Lightning-Fast Windowed Image Viewer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigating-social-feeds-with-panoramic-content-a-guide-for-iosandroid-users/"><u>[Updated] In 2024, Navigating Social Feeds with Panoramic Content A Guide for iOS/Android Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-slick-facebook-downloaders-top-8-free-and-easy-online-accessories/"><u>2024 Approved Slick Facebook Downloaders Top 8 Free & Easy Online Accessories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-tackling-photo-mismatch-on-fb-conversation-screen/"><u>2024 Approved Tackling Photo Mismatch on FB Conversation Screen</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/advanced-techniques-for-bio-linking-on-tiktok-for-2024/"><u>Advanced Techniques for Bio Linking on TikTok for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/dissecting-the-appeal-of-cozy-indie-games/"><u>Dissecting the Appeal of Cozy Indie Games</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-efficiently-access-your-facebook-lite-videos-with-these-top-apps-of-2023/"><u>In 2024, Efficiently Access Your Facebook Lite Videos with These Top Apps of 2023</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-infinix-smart-8-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Infinix Smart 8 Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/integrating-social-networks-sharing-fb-videos-on-whatsapp/"><u>Integrating Social Networks Sharing FB Videos on WhatsApp</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-intel-wireless-ac-9560-network-card-driver-downloads-improve-connectivity-now/"><u>Latest Intel Wireless AC 9560 Network Card Driver Downloads - Improve Connectivity Now</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/snapshots-snatcher-app-for-2024/"><u>Snapshots Snatcher App for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/strategizing-against-the-phantom-follower-phenomenon/"><u>Strategizing Against the Phantom Follower Phenomenon</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1721955708309-turn-by-turn-navigation/"><u>Turn-by-Turn Navigation</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-windows-11s-virtual-potential-with-hyper-v/"><u>Unlock Windows 11'S Virtual Potential with Hyper-V</u></a></li>
 </ul></div>
 
