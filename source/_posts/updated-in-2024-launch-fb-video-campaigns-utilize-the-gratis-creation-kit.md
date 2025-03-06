@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Launch FB Video Campaigns  Utilize the Gratis Creation Kit\""
-date: 2025-02-05T17:09:54.828Z
-updated: 2025-02-08T05:42:36.206Z
+date: 2025-03-03T13:58:03.789Z
+updated: 2025-03-05T21:05:17.440Z
 tags:
   - ai video
   - ai facebook
@@ -36,10 +36,6 @@ If you have little to no experience with video ads, don’t feel stressed. We’
 Wondershare Filmora is one of the [best video editing software](https://tools.techidaily.com/wondershare/filmora/download/) for making and editing social media videos sharing on YouTube, Facebook, or Instagram. It features lots of effects, transitions, templates and elements for creating video with fun. You can create videos in different aspect ratio such as 1:1, 9:16, 16:9, 4:3 or [customize the aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) as you like.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Well, although other social media platforms are gaining popularity, Facebook remains the top of the pops, and has [over 1.5 billion daily users](https://newsroom.fb.com/company-info/). Whatever your reason for needing a video ad, you can’t go wrong broadcasting it to this kind of audience.
 
@@ -98,10 +94,6 @@ Once you’ve begun to create your vid, you’ll find a button under the **Media
 
 ![add Facebook ads image assets ](https://images.wondershare.com/filmora/article-images/add-image-assets.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When adding images to media, remember to choose images that are the same size and orientation. This will make your life easier and your ad look more appealing!
 
 Also, it would be helpful to check the [image specs](https://www.facebook.com/business/ads-guide/image) and [video specs](https://www.facebook.com/business/ads-guide/video) before uploading.
@@ -142,10 +134,6 @@ You can also add your own logo, and if you’re feeling inspired or want to conv
 
 ![video creation kit  stickers ](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
 ![add text on video creation kit   ](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
@@ -153,10 +141,6 @@ You can also **add text** on this screen and adjust the text color, font and pos
 Once you click on **Use Video**, and it will start creating it for you in the background.
 
 You’ll be sent back to the original page where you can add text and links, and once you click on **Confirm**, your video ad will be ready!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Tips & Tricks to Consider when creating video ads for Facebook
 
@@ -193,10 +177,6 @@ As we said before, Facebook has billions daily users, and here are just a few re
 
 No matter what your business, video is a tool you should be taking advantage of, and with stats like these, Facebook is a great place to start getting your video ads out there!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What Could You Use the Creation Kit For?
 
 Whatever the purpose of your video, you’ll find the Facebook Video Creation Kit to be quite useful for you. You can create your ad using video footage, or simply add some photos for a slideshow effect.
@@ -204,10 +184,6 @@ Whatever the purpose of your video, you’ll find the Facebook Video Creation Ki
 This is great for **promoting products and services, introducing new businesses or ideas, or simply sharing something cool** that you’ve created with your friends. Not only does it showcase your photos or products, you’ll be able to add your **own text, links**, and **info to promote** your stuff exactly the way you want to!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -232,16 +208,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-comparing-vsdc-to-best-screen-recording-software/"><u>[New] Comparing VSDC to Best Screen Recording Software</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-photographys-color-transformation-secrets/"><u>[New] In 2024, Photography's Color Transformation Secrets</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-experience-the-next-wave-watching-fb-live-on-roku/"><u>[Updated] Experience the Next Wave Watching FB Live on Roku</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-2023-fb-live-stream-mp4-conversion-tool/"><u>[Updated] In 2024, 2023 FB Live Stream MP4 Conversion Tool</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/1716483956115-updated-in-2024-how-to-join-someones-live-on-tiktok-as-a-guest/"><u>[Updated] In 2024, How to Join Someone’s Live on TikTok as a Guest</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-step-by-step-instructions-for-fb-live-broadcasts/"><u>[Updated] In 2024, Step-by-Step Instructions for FB Live Broadcasts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-essential-guide-to-understanding-facebook-metrics/"><u>[Updated] The Essential Guide to Understanding Facebook Metrics</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-maximize-offline-fb-usage-with-free-downloaders/"><u>2024 Approved Maximize Offline FB Usage with Free Downloaders</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/accelerating-insights-optimal-chatgpt-utilization-in-macos/"><u>Accelerating Insights: Optimal ChatGPT Utilization in macOS</u></a></li>
-<li><a href="https://win-best.techidaily.com/enhancing-memory-and-expanding-hard-drive-expert-advice-on-upgrading-your-computer-with-yl-software-solutions/"><u>Enhancing Memory & Expanding Hard Drive: Expert Advice on Upgrading Your Computer with YL Software Solutions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-apple-iphone-11-pro-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, iSpoofer is not working On Apple iPhone 11 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-fb-vids-to-mp4-downloader-efficient-and-effective/"><u>[New] 2024 Approved FB Vids to MP4 Downloader – Efficient & Effective</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-ultimate-guide-exploring-master-recorders-features/"><u>[New] In 2024, Ultimate Guide Exploring Master Recorder's Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-a-compreayers-guide-to-growth-updating-youtube-metadata/"><u>[Updated] 2024 Approved A Compreayer's Guide to Growth Updating YouTube Metadata</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-earnings-expertise-for-youtube-creators-fb-insights-and-tactics-for-2024/"><u>[Updated] Earnings Expertise for YouTube Creators FB Insights and Tactics for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-master-the-art-of-garnering-more-facebook-fans-for-2024/"><u>[Updated] Master the Art of Garnering More Facebook Fans for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tactics-for-increasing-campaign-efficiency-with-smart-hashtag-usage-on-fb-for-2024/"><u>[Updated] Tactics for Increasing Campaign Efficiency with Smart Hashtag Usage on FB for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-inconsistent-exports-securing-smooth-srt-outputs/"><u>2024 Approved From Inconsistent Exports Securing Smooth SRT Outputs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-premier-accessible-stopwatches/"><u>2024 Approved Premier Accessible Stopwatches</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elite-streamers-choice-for-secure-downloads-8/"><u>Elite Streamer’s Choice for Secure Downloads 8</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-asus-rog-phone-7-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Asus ROG Phone 7 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-on-the-go-lut-mastery-for-picture-and-film-enhancement/"><u>In 2024, On-The-Go LUT Mastery for Picture & Film Enhancement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-revamp-chrome-browsing-sharper-social-media-videos/"><u>In 2024, Revamp Chrome Browsing Sharper Social Media Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-revolutionize-traffic-flows-with-innovative-facebook-video-tactics/"><u>In 2024, Revolutionize Traffic Flows with Innovative Facebook Video Tactics</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-play-40c-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor Play 40C Device</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-20-unrestricted-zero-cost-pubg-snapshits/"><u>Top 20 Unrestricted, Zero-Cost PUBG Snapshits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unraveling-friends-pixels-speed-up-searches-for-2024/"><u>Unraveling Friends' Pixels Speed Up Searches for 2024</u></a></li>
 </ul></div>
 

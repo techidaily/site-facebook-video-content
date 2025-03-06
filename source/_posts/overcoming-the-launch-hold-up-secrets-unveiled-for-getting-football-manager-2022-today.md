@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Launch Hold-Up: Secrets Unveiled For Getting Football Manager 2022 Today"
-date: 2025-02-16T17:01:20.256Z
-updated: 2025-02-17T18:28:11.430Z
+date: 2025-03-05T05:23:54.790Z
+updated: 2025-03-06T13:31:21.072Z
 tags:
   - win11
   - win10
@@ -35,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 ### Fix 1\. Check your PC specs
 
  Make sure you’re playing Football Manager 2022 in a 64-bit processor and operating system. If you’re on a 32-bit system, it’s recommended to upgrade your system and perhaps your device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2\. Add an exception to your antivirus
 
@@ -81,16 +77,8 @@ After updating your drivers, restart your PC and test the gameplay.
 2) Go to LIBRARY, right-click on Football Manager 2022 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3) Go to **LOCAL FILES** and click **Verify integrity of game files…**
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once complete, launch the game to check if your game is working again.
 
@@ -106,10 +94,6 @@ Once complete, launch the game to check if your game is working again.
 
  3) Navigate to **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2022** and then delete the**Caches** and**Preferences** folder.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 6\. Run the game executable file as admin
 
  If you can’t launch Football Manager 2022 after following the steps above, you may want to run this executable game file directly to see if this helps.
@@ -117,10 +101,6 @@ Once complete, launch the game to check if your game is working again.
  1) Right-click **Football Manager 2021** from the game list and click **Properties** .
 
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  2) Select **Local Files** and then**Browse local files** .
 
@@ -134,10 +114,6 @@ Once complete, launch the game to check if your game is working again.
 
  1) Right-click on Football Manager 2021 and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  2) In the **GENERAL** tab, uncheck **Enable the Steam Overlay while in-game** and type **\-windowed** under **LAUNCH OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/2021-05-10_17-39-55.jpg)
@@ -170,17 +146,9 @@ Once complete, launch the game to check if your game is working again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) You’ll see the summary of detected issues on your PC. Click **START REPAIR** and all the issues will be fixed automatically. (You’ll need to purchase the full version. It comes with a 60-day Money-Back Guarantee so you can refund anytime if Fortect doesn’t fix your problem).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Option 2 – Manually
 
@@ -261,19 +229,16 @@ Feel free to drop us a line if you have any suggestions or questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-scribing-success-engaging-examples-for-podcasts/"><u>[New] 2024 Approved Scribing Success Engaging Examples for Podcasts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-harnessing-tools-for-fb-content-extraction/"><u>[New] In 2024, Harnessing Tools for FB Content Extraction</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-recover-missing-social-media-icon-in-facebook-watch/"><u>[Updated] In 2024, Recover Missing Social Media Icon in Facebook Watch</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-social-media-marketing-essential-24-trend-alerts/"><u>[Updated] Mastering Social Media Marketing Essential '24 Trend Alerts</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-adding-time-bound-elements-to-your-obs-productions/"><u>2024 Approved Adding Time-Bound Elements to Your OBS Productions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fb-mp3-extractor-tool/"><u>2024 Approved FB Mp3 Extractor Tool</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/cyber-health-solutions-for-modern-medicine-for-2024/"><u>Cyber-Health Solutions for Modern Medicine for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-advice-on-overcoming-latency-problems-while-playing-outriders-online/"><u>Expert Advice on Overcoming Latency Problems While Playing Outriders Online</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/guia-completa-para-rescatar-archivos-borrados-o-desaparecidos-en-windows-10-y-11/"><u>Guía Completa Para Rescatar Archivos Borrados O Desaparecidos en Windows 10 Y 11</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-25-pioneers-reshaping-social-media-landscapes/"><u>In 2024, 25 Pioneers Reshaping Social Media Landscapes</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-sharing-your-private-youtube-snippets-via-email-for-2024/"><u>The Ultimate Guide Sharing Your Private YouTube Snippets via Email for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/the-updated-user-manual-for-navigating-facebook-for-2024/"><u>The Updated User Manual for Navigating Facebook for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-perfect-pitches-made-simple-installing-and-utilizing-autotune-with-audacity/"><u>Updated In 2024, Perfect Pitches Made Simple Installing and Utilizing Autotune with Audacity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-mastering-narratives-the-science-and-art-of-crafting-memorable-fb-stories/"><u>[New] 2024 Approved Mastering Narratives The Science and Art of Crafting Memorable FB Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-elite-architects-best-of-breed-instragram-hlv-artisans/"><u>[New] In 2024, Elite Architects Best-of-Breed Instragram HLV Artisans</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quick-humor-crafting-the-meme-text-genrator-way/"><u>[New] Quick Humor Crafting The Meme Text Gen'rator Way</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-passive-page-peeps-to-paying-patrons-facebook-monetization-magic-for-2024/"><u>[Updated] From Passive Page Peeps to Paying Patrons Facebook Monetization Magic for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigate-through-group-sharing-options-on-messenger-for-2024/"><u>[Updated] Navigate Through Group Sharing Options on Messenger for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>2024 Approved Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-unveiling-the-premier-android-emulators-for-ps2-games/"><u>2024 Approved Unveiling the Premier Android Emulators for PS2 Games</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-t2-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo T2 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-infinix-smart-8-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Infinix Smart 8 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-cubefit-terramat-for-active-standing-solutions-at-work/"><u>The Ultimate Review: CubeFit TerraMat for Active Standing Solutions at Work</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unveiling-the-protection-of-your-files-on-a-samsung-t7-solid-state-drive-via-encryption-explained/"><u>Unveiling the Protection of Your Files on a Samsung T7 Solid State Drive via Encryption Explained</u></a></li>
 </ul></div>
 

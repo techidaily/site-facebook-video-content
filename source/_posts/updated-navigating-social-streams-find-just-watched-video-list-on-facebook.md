@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating Social Streams  Find Just-Watched Video List on Facebook\""
-date: 2025-02-12T19:54:34.031Z
-updated: 2025-02-17T19:49:26.699Z
+date: 2025-03-05T09:23:31.525Z
+updated: 2025-03-06T02:46:16.411Z
 tags:
   - ai video
   - ai facebook
@@ -53,10 +53,6 @@ This means that you cannot access your watch history using someone else's Facebo
 * On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
 * This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Find Recently Watched Videos on Facebook App?
 
 Facebook application is one of the most common media to watch Facebook videos. That's why we will be mentioning the way to find recently watched videos through the Facebook app. Just like the web version, the process here is simple.
@@ -82,17 +78,9 @@ It's an outstanding tool that helps you make stunning videos for Facebook. You c
 
 Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Frequently Asked Questions (FAQS)
 
 In the FAQ section, we will cover some of the questions or problems that may arise while finding recently watched videos on Facebook. Thus, if you are dealing with them, follow the steps given below for a quick fix:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Find the Watch Later Videos on Facebook?
 
@@ -232,10 +220,6 @@ Keep note that your watch history is accessible by you only. However, if you are
 
 ![delete watch history on facebook](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Within the Categories, look for "Videos you've watched."
 * From there, you can delete the videos one-by-one or clear the complete watch history.
 
@@ -259,10 +243,6 @@ The videos suggested on Facebook appear because of liked pages and video popular
 
 * Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 So, that's how you can find watched videos on Facebook. The steps are pretty easy and an absolute life-saver. Whenever it feels like you missed a video, these steps will ensure that you find them easily. For your convenience, we have mentioned the process for both the Facebook application and desktop. Make sure to select the method as per the mode you use. Hopefully, the above steps will solve your problem in an easy and efficient manner.
@@ -280,10 +260,6 @@ Regardless of when you have watched the video, there is a way to access it again
 Part 1: [How Can I Find Facebook Watched Videos on Desktop or Web?](#step1)
 
 Part 2: [How to Find Recently Watched Videos on Facebook App?](#step2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. How Can I Find Facebook Watched Videos on Desktop or Web?
 
@@ -325,10 +301,6 @@ It's an outstanding tool that helps you make stunning videos for Facebook. You c
 ![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
 
 Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Frequently Asked Questions (FAQS)
 
@@ -375,10 +347,6 @@ Some people may wonder whether anyone else can see what they watch on Facebook. 
 
 * **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How Does Facebook Decide the Suggested Videos?
 
 The videos suggested on Facebook appear because of liked pages and video popularity. You can customize the same through the below steps:
@@ -386,10 +354,6 @@ The videos suggested on Facebook appear because of liked pages and video popular
 * Go to the left menu and click on "Watch" from your News Feed.
 
 * Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -421,10 +385,6 @@ This means that you cannot access your watch history using someone else's Facebo
 * After that, click on More. It's located below the Comments.
 
 ![facebook watched videos on the web](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
 * This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
@@ -534,20 +494,20 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harnessing-youtubes-power-for-maximum-earnings-via-adsense/"><u>[New] 2024 Approved Harnessing YouTube's Power for Maximum Earnings via AdSense</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-propel-your-youtube-presence-with-google-analytics-skills/"><u>[New] 2024 Approved Propel Your YouTube Presence with Google Analytics Skills</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-top-10-compact-drones-current-market-leaders-for-2024/"><u>[New] Top 10 Compact Drones Current Market Leaders for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unraveling-the-purpose-behind-facebooks-blue-icon/"><u>[Updated] 2024 Approved Unraveling the Purpose Behind Facebook's Blue Icon</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-best-practices-for-hash-tags-in-fb-marketing-campaigns-for-2024/"><u>[Updated] Best Practices for Hash Tags in FB Marketing Campaigns for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-ignite-passion-a-selection-of-10-invigorating-films/"><u>[Updated] Ignite Passion A Selection of 10 Invigorating Films</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-expert-strategies-for-configuring-and-assessing-fbs-instream-ads/"><u>[Updated] In 2024, Expert Strategies for Configuring and Assessing FB's Instream Ads</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-add-link-to-facebook-story-for-free/"><u>[Updated] In 2024, How to Add Link to Facebook Story for Free?</u></a></li>
-<li><a href="https://win-premium.techidaily.com/1728465479391-seagate/"><u>難關面前：什麼方式可以使Seagate硬碟重新開機？</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/apple-watch-ultra-essentials-now-available-again-non-apple-brand-exclusive-reveal-on-zdnet/"><u>Apple Watch Ultra Essentials Now Available Again - Non-Apple Brand Exclusive Reveal on ZDNet!</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/crafting-engaging-facebook-reels-the-making-process-explained/"><u>Crafting Engaging Facebook Reels The Making Process Explained</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-reset-and-start-screen-drivers-correctly-on-win10/"><u>How to Reset and Start Screen Drivers Correctly on Win10</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebook-ad-evolution-the-hottest-trends-to-watch/"><u>In 2024, Facebook Ad Evolution The Hottest Trends to Watch</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-ultimate-chrome-selection-5-pioneers-in-fb-video-download/"><u>In 2024, The Ultimate Chrome Selection 5 Pioneers in FB Video Download</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-new-era-of-editing-unveiled-groundbreaking-capabilities-in-final-cut-pro-for-ipad-spell-success-for-creatives/"><u>The New Era of Editing Unveiled: Groundbreaking Capabilities in Final Cut Pro for iPad Spell Success for Creatives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-leading-with-visuals-setting-up-premium-cover-videos-on-fb/"><u>[New] 2024 Approved Leading With Visuals Setting Up Premium Cover Videos on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-troubleshooting-stalled-video-sending-on-iphone-and-androids-messenger/"><u>[New] 2024 Approved Troubleshooting Stalled Video Sending on iPhone and Android's Messenger</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-the-smart-shoppers-guide-to-camcorder-choices-in-winter/"><u>[New] In 2024, The Smart Shopper's Guide to Camcorder Choices in Winter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-integrated-approach-to-post-videos-on-twittertumblr-for-2024/"><u>[New] Integrated Approach to Post Videos on Twitter/Tumblr for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-art-of-crafting-captivating-facebook-stories/"><u>[Updated] 2024 Approved The Art of Crafting Captivating Facebook Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-ad-videos-made-easy-utilize-free-video-making-kit/"><u>[Updated] FB Ad Videos Made Easy Utilize Free Video-Making Kit</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-exploring-beyond-manycam-enhanced-alternatives/"><u>[Updated] In 2024, Exploring Beyond ManyCam Enhanced Alternatives?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastering-youtube-shorts-for-profit-essential-requirements-and-potential-earnings/"><u>[Updated] In 2024, Mastering Youtube Shorts for Profit Essential Requirements and Potential Earnings</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-software-guide-for-tempo-alteration/"><u>[Updated] Ultimate Software Guide for Tempo Alteration</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-expert-fb-video-sharing-tactics-for-desktop-and-handheld-devices/"><u>2024 Approved Expert FB Video Sharing Tactics for Desktop and Handheld Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-elevate-your-social-media-reach-fb-ad-mastery-techniques/"><u>In 2024, Elevate Your Social Media Reach FB Ad Mastery Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-c65-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Poco C65 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-iphone-xs-max-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From iPhone XS Max? 5 Tips You Must Know</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-rated-android-apps-for-high-quality-lossless-video-compression/"><u>Top Rated Android Apps for High-Quality Lossless Video Compression</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-adjust-video-playback-speed-in-camtasia/"><u>Updated In 2024, Adjust Video Playback Speed in Camtasia</u></a></li>
 </ul></div>
 

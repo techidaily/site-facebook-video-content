@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Recall Facebook's Older Episodes with Your Computer & Phone"
-date: 2025-02-06T03:26:43.030Z
-updated: 2025-02-07T22:53:16.343Z
+date: 2025-02-27T08:48:57.869Z
+updated: 2025-03-06T12:11:48.161Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -59,10 +55,6 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -76,10 +68,6 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -98,10 +86,6 @@ If your friend has selected the **highlights** option, which is a star emoji on 
 People make a **series of highlights** and name them accordingly. If the story is about a wedding, people can name those stories’ **wedding highlights**. So, click on the highlight you want to view.
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
@@ -141,10 +125,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -160,14 +140,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-maximizing-ad-performance-with-engaging-fb-animation-strategies/"><u>[New] Maximizing Ad Performance with Engaging FB Animation Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-hash-tags-boosting-gameplay-vids/"><u>[Updated] 2024 Approved Top Hash Tags Boosting Gameplay Vids</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-broadcast-your-previous-video-a-guide-to-live-streaming-on-facebook/"><u>[Updated] Broadcast Your Previous Video A Guide to Live-Streaming on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-the-minefield-suddenly-banned-videos-on-social-media/"><u>[Updated] Navigating the Minefield Suddenly Banned Videos on Social Media</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-sync-up-with-successful-facebook-feeds-for-2024/"><u>[Updated] Sync Up with Successful Facebook Feeds for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unmatched-camera-and-recording-app-selection-on-iphones-and-androids/"><u>[Updated] Unmatched Camera & Recording App Selection on iPhones and Androids</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/device-unlock-samsung-galaxy-a15-4g-by-drfone-android-unlock-android-unlock/"><u>Device unlock Samsung Galaxy A15 4G</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-crafting-a-scintillating-trailer-tale/"><u>In 2024, Crafting A Scintillating Trailer Tale</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/uncharted-territory-in-facebooks-meme-landscape-for-2024/"><u>Uncharted Territory in Facebook's Meme Landscape for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-effortless-facebook-live-four-strategies-to-record-successfully/"><u>[New] Effortless Facebook Live Four Strategies to Record Successfully</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-hacking-halted-swift-steps-to-recover-your-fb-account/"><u>[New] In 2024, Hacking Halted Swift Steps to Recover Your FB Account</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-speedy-social-snooping-techniques-for-fb-users/"><u>[New] In 2024, Speedy Social Snooping Techniques for FB Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-swiftly-upgrade-your-videos-with-professional-level-fb-subtitle-making/"><u>[New] In 2024, Swiftly Upgrade Your Videos with Professional-Level FB Subtitle Making</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-stop-the-mute-add-sound-to-tweeted-clips-for-2024/"><u>[New] Stop the Mute Add Sound to Tweeted Clips for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-convert-facebook-to-mp4-hack-for-quick-access/"><u>[Updated] 2024 Approved Convert Facebook to MP4 – Hack for Quick Access</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-securing-your-stake-in-youtubes-financial-future/"><u>[Updated] In 2024, Securing Your Stake in YouTube's Financial Future</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-updated-compilation-prime-top-10-android-apps-for-facebook-video-download-for-2024/"><u>[Updated] Updated Compilation Prime Top 10 Android Apps for Facebook Video Download for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-visual-virtuosity-mastering-the-craft-of-photographic-enhancement/"><u>2024 Approved Visual Virtuosity Mastering the Craft of Photographic Enhancement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/bridging-the-time-gap-in-social-storytelling-on-fb-pcmobile/"><u>Bridging the Time Gap in Social Storytelling on FB, PC/Mobile</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/chill-to-perfection-get-the-best-liquid-freezer-ii-aio-cooler-from-arctic-for-an-unbelievable-bargain-at-only-74-dont-miss-out/"><u>Chill to Perfection: Get the Best Liquid Freezer II AIO Cooler From Arctic for an Unbelievable Bargain at Only $74 — Don't Miss Out</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/experience-superior-sound-and-accessibility-save-24-on-the-latest-airpods-pro-2-with-hearing-aid-features-insider-deal-available-now-at-zdnet/"><u>Experience Superior Sound and Accessibility: Save 24% on the Latest AirPods Pro 2 with Hearing Aid Features, Insider Deal Available Now at ZDNET!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-13-mini-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset iPhone 13 mini to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-engineer-your-fofacebook-experience/"><u>In 2024, Engineer Your FOFacebook Experience</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unveiling-facebooks-forgotten-archive-easy-guide-for-devices/"><u>In 2024, Unveiling Facebook's Forgotten Archive Easy Guide for Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/prime-picks-best-photo-displayers-for-2024/"><u>Prime Picks Best Photo Displayers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/king-the-secrets-of-profitability-in-youtube-shorts-for-2024/"><u>Unlocking the Secrets of Profitability in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-unveiling-dynamic-volume-control-mastering-audio-ducking-techniques/"><u>Updated 2024 Approved Unveiling Dynamic Volume Control Mastering Audio Ducking Techniques</u></a></li>
 </ul></div>
 

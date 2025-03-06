@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Elite 5  Facebook's Novel Innovations Spotlighted for 2024\""
-date: 2025-02-16T17:14:33.421Z
-updated: 2025-02-17T17:28:47.539Z
+date: 2025-03-01T15:13:42.940Z
+updated: 2025-03-05T23:23:13.779Z
 tags:
   - ai video
   - ai facebook
@@ -29,10 +29,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -42,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
  If you want to download this recently updated Facebook 360 app for your Gear VR then simply open Oculus app on your device and initiate search for Facebook 360 app. You can also visit official site of Oculus to get started.
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Messenger Day – The Snapchat Way
 
@@ -61,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Advertising Capabilities
 
  If you are a publisher or use Facebook for business promotions then here is great news for you all. This recent update of Facebook has revolutionized your advertising capabilities and now your brand can avail maximum exposure within minimum time. Here are few interesting things that you can do now:
@@ -74,19 +62,11 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,17 +83,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2023-play-facebook-videos-on-tv-in-2024/"><u>[New] 2023 | Play Facebook Videos on TV, In 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-elite-mac-gif-recorders-top-picks-list/"><u>[New] Elite Mac GIF Recorders Top Picks List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-expert-4-movie-collection-fb-for-2024/"><u>[New] Expert 4 Movie Collection FB for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-understanding-and-controlling-safaris-pip-feature/"><u>[New] Understanding and Controlling Safari's PIP Feature</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facebook-story-fundamentals-every-beginners-guide-to-go-to-tips/"><u>[Updated] 2024 Approved Facebook Story Fundamentals Every Beginner's Guide to Go-To Tips</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-fix-chrome-error-with-fb-videos-for-2024/"><u>[Updated] Fix Chrome Error with FB Videos for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-mastering-low-light-captures-on-your-iphone/"><u>[Updated] Mastering Low-Light Captures on Your IPhone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-secrets-revealed-saving-video-chats-from-facebook-messenger-for-2024/"><u>[Updated] Secrets Revealed Saving Video Chats From Facebook Messenger for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/dhcp-communication-errors-addressed-what-to-do-when-your-server-wont-respond/"><u>DHCP Communication Errors Addressed: What To Do When Your Server Won't Respond</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimal-storage-solutions-the-leading-10-gopro-housings/"><u>Optimal Storage Solutions - The Leading 10 GoPro Housings</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/spotlight-on-snapchat-utilization-strategies/"><u>Spotlight on Snapchat Utilization Strategies</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-insiders-secret-to-viral-tiktok-edits/"><u>The Insider's Secret to Viral TikTok Edits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-perceiving-beyond-understanding-ars-impact/"><u>[New] 2024 Approved Perceiving Beyond Understanding AR's Impact</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-modern-broadcasters-guide-to-iphone-and-android-streaming/"><u>[New] In 2024, The Modern Broadcaster's Guide to iPhone and Android Streaming</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023-how-to-fix-live-video-interrupted-on-facebook/"><u>[Updated] 2023 | How to Fix Live Video Interrupted on Facebook?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-overcome-instagrams-story-upload-issues/"><u>[Updated] In 2024, Overcome Instagram's Story Upload Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-dynamic-decibels-the-best-background-sounds-for-yt-shorts/"><u>2024 Approved Dynamic Decibels The Best Background Sounds for YT Shorts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-whats-fresh-with-facebook-latest-info-here/"><u>2024 Approved What’s Fresh with Facebook? Latest Info Here</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-your-storytelling-10-prime-text-tricks-in-cinematography/"><u>Elevate Your Storytelling 10 Prime Text Tricks in Cinematography</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-picks-top-gaming-consoles-dominating-2024/"><u>Expert Picks: Top Gaming Consoles Dominating 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-infinix-smart-8-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Infinix Smart 8 in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-discover-unlimited-stories-free-extensions-and-mobile-marvels/"><u>In 2024, Discover Unlimited Stories – FREE Extensions & Mobile Marvels</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-iphone-7-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass iPhone 7 Passcode Easily Video Inside</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-locations-to-find-rich-text-enhancements/"><u>In 2024, Prime Locations to Find Rich Text Enhancements</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/maximizing-hd-playback-on-social-media-fb-for-2024/"><u>Maximizing HD Playback on Social Media (FB) for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/online-free-tool-convert-your-videos-from-flv-format-to-wma-with-ease-using-movavi/"><u>Online FREE Tool: Convert Your Videos From FLV Format to WMA with Ease Using Movavi</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-oppo-find-n3-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Oppo Find N3</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-enigma-of-missing-video-suggestions-in-your-feed/"><u>The Enigma of Missing Video Suggestions in Your Feed</u></a></li>
 </ul></div>
 

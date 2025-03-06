@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Start Your Journey to Savvy Social Analytics on Facebook"
-date: 2025-02-10T20:21:26.586Z
-updated: 2025-02-17T16:30:12.681Z
+date: 2025-02-27T21:50:43.321Z
+updated: 2025-03-06T04:05:44.650Z
 tags:
   - ai video
   - ai facebook
@@ -41,19 +41,11 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
@@ -85,14 +77,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
@@ -109,10 +93,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -124,10 +104,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -152,24 +128,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-explore-template-treasures-to-craft-unique-corporate-emblems/"><u>[New] Explore Template Treasures to Craft Unique Corporate Emblems</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-facebook-fanfare-unveiled-android-and-iphones-most-liked-apps-for-2024/"><u>[New] Facebook Fanfare Unveiled Android & iPhone's Most Liked Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-fix-chrome-non-playing-androidios-videos/"><u>[New] Fix Chrome Non-Playing Android/iOS Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-from-zero-to-hero-how-to-triumph-with-10-powerful-fb-strategies/"><u>[New] From Zero to Hero How to Triumph with 10 Powerful FB Strategies</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-from-watching-to-archiving-a-comprehensive-screencast-of-streamed-video/"><u>[New] In 2024, From Watching to Archiving A Comprehensive Screencast of Streamed Video</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-path-to-retrospective-facebook-content-mobile-plus-laptop/"><u>[Updated] 2024 Approved The Path to Retrospective Facebook Content (Mobile + Laptop)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-effortless-fb-stream-setup-using-obs-on-laptops-mac-and-pc/"><u>[Updated] Effortless FB Stream Setup Using OBS on Laptops, Mac & PC</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-view-access-for-groups-shared-stuff-for-2024/"><u>[Updated] Mastering View Access for Group's Shared Stuff for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-swift-fixes-to-rectify-non-sending-videos-on-the-social-networking-platform-iphoneandroid/"><u>2024 Approved Swift Fixes to Rectify Non-Sending Videos on the Social Networking Platform iPhone/Android</u></a></li>
-<li><a href="https://article-tips.techidaily.com/are-earnings-associated-with-good-and-service-analysis-in-2024/"><u>Are Earnings Associated with Good and Service Analysis, In 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebook-favoritism-at-your-fingertips-the-top-8-app-list/"><u>Facebook Favoritism at Your Fingertips The Top 8 App List</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-fish-out-the-frame-underwater-shooting-secrets-with-a-gopro/"><u>In 2024, Fish Out the Frame Underwater Shooting Secrets with a GoPro</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-leveraging-visuals-for-profile-dominance/"><u>In 2024, Leveraging Visuals for Profile Dominance</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-rapid-routines-for-presentation-saving/"><u>In 2024, Rapid Routines for Presentation Saving</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/"><u>In 2024, Swiftly Move Data Fast and Reliable Methods to Direct Files Onto Your Computer</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723204118936-laptop-power-issues-heres-how-to-get-the-battery-charging-fast/"><u>Laptop Power Issues? Here’s How to Get the Battery Charging Fast!</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/the-art-of-changing-meeting-screens-on-microsoft-teams-for-2024/"><u>The Art of Changing Meeting Screens on Microsoft Teams for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/the-art-of-facebook-video-coverage-standout-tips-and-tricks-for-2024/"><u>The Art of Facebook Video Coverage Standout Tips & Tricks for 2024</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/luchshie-specialisty-po-seo-v-kardiffe-dlya-204-goda-obzor-s-pomoshyu-seo-powersuite/"><u>Лучшие Специалисты По SEO В Кардиффе Для 2^04 Года: Обзор С Помощью SEO PowerSuite</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-12-facebook-marketing-tips-for-business-beginners-and-pros/"><u>[New] 2024 Approved 12 Facebook Marketing Tips for Business (Beginners and Pros)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-exclusive-no-fee-fb-visual-content-craftsman/"><u>[Updated] Exclusive No-Fee FB Visual Content Craftsman</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-do-i-access-the-full-range-of-shared-media-on-messenger/"><u>[Updated] How Do I Access the Full Range of Shared Media on Messenger?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-downloadsave-instagram-reels-video-in-2-ways-for-2024/"><u>[Updated] How to Download/Save Instagram Reels Video in 2 Ways for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-capture-and-store-every-sound-on-pc-download-x-recorder/"><u>[Updated] In 2024, Capture & Store Every Sound on PC - Download X-Recorder</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-virtual-interaction-at-its-peak-facebooks-guide-to-screenshare-success/"><u>[Updated] Virtual Interaction at Its Peak Facebook's Guide to Screenshare Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-video-production-7-best-free-sounds-for-editors/"><u>2024 Approved Enhance Video Production - 7 Best Free Sounds for Editors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/dispelling-illusions-yourself-not-an-impostor-on-fb-for-2024/"><u>Dispelling Illusions Yourself, Not An Impostor on FB for 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/how-to-pause-your-icloud-backup-and-sync-processes-for-macos-users-addressing-three-frequent-situations/"><u>How to Pause Your iCloud Backup and Sync Processes for macOS Users: Addressing Three Frequent Situations</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-beat-the-curve-top-facebook-ad-strategies/"><u>In 2024, Beat the Curve Top Facebook Ad Strategies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-a-superior-livestream-with-top-providers/"><u>In 2024, Crafting a Superior Livestream with Top Providers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-the-best-online-tools-for-vhs-photo-upgrading-for-2024/"><u>Navigating the Best Online Tools for VHS Photo Upgrading for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/propel-your-video-writes-the-ai-way/"><u>Propel Your Video' Writes The AI Way</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-facebook-and-its-common-issues/"><u>Unlocking the Secrets of Facebook & Its Common Issues</u></a></li>
 </ul></div>
 

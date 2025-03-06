@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Start with Simple  Understanding Facebook Metrics for Newbies for 2024\""
-date: 2025-02-12T16:57:09.129Z
-updated: 2025-02-17T20:18:10.258Z
+date: 2025-03-04T00:27:36.996Z
+updated: 2025-03-06T15:07:58.534Z
 tags:
   - ai video
   - ai facebook
@@ -35,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 * [**Part 2: Where to Find Facebook Insights**](#part2)
 * [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Insights
 
  A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
@@ -53,19 +49,11 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -76,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -127,15 +111,7 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -152,24 +128,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-vids-excellence-the-top-20-techniques/"><u>[New] 2024 Approved Facebook Vids Excellence The Top 20 Techniques</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-step-by-step-process-to-perfect-your-fb-reel-skills/"><u>[New] 2024 Approved Step-by-Step Process to Perfect Your FB Reel Skills</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-exploring-entertainment-youtubes-integration-with-fb/"><u>[New] In 2024, Exploring Entertainment YouTube's Integration with FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-stop-ff-videos-from-not-rendering-on-android/"><u>[New] In 2024, Stop FF Videos From Not Rendering on Android</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-precision-meetings-sharpen-your-screens-in-msteam-for-2024/"><u>[New] Precision Meetings Sharpen Your Screens in MSTEAM for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-fbs-topest-latest-perks-for-2024/"><u>[New] Unveiling FB's Topest Latest Perks for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-capturing-and-keeping-your-social-media-moments/"><u>[Updated] 2024 Approved Capturing and Keeping Your Social Media Moments</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-a-musical-guide-to-enhancing-slides-with-tunes/"><u>2024 Approved A Musical Guide to Enhancing Slides with Tunes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-streamers-guide-sharing-your-twitch-channel-on-fb/"><u>2024 Approved Streamer's Guide Sharing Your Twitch Channel on FB</u></a></li>
-<li><a href="https://win11.techidaily.com/alter-display-angle-in-windows-settings/"><u>Alter Display Angle in Windows Settings</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/auditory-aesthetics-weaving-melodies-into-your-feed/"><u>Auditory Aesthetics Weaving Melodies Into Your Feed</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/deploy-low-cost-locally-executed-chatgpt-clone-on-pc/"><u>Deploy Low-Cost, Locally Executed ChatGPT Clone on PC</u></a></li>
-<li><a href="https://discover-data.techidaily.com/hp-stream-11boot/"><u>HP Stream 11における「Bootデバイス未検出」エラーの修正手順</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-asus-rog-phone-7-ultimate-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Asus ROG Phone 7 Ultimate is off? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-immersive-illusions-how-vr-transforms-media-consumption/"><u>In 2024, Immersive Illusions How VR Transforms Media Consumption</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pawsome-tech-revealed-the-ultimate-guide-to-the-best-dog-cam-with-furbo/"><u>Pawsome Tech Revealed – The Ultimate Guide to The Best Dog Cam with Furbo</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/reclaim-your-vanished-youtube-success-with-these-key-12-steps-for-fb-2023/"><u>Reclaim Your Vanished YouTube Success with These Key 12 Steps for FB, 2023</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/transform-your-social-feed-to-full-screen/"><u>Transform Your Social Feed to Full Screen</u></a></li>
-<li><a href="https://win-docs.techidaily.com/understanding-amazonaws-virus-and-eradication-steps-a-comprehensive-guide-by-malwarefox/"><u>Understanding Amazonaws Virus & Eradication Steps – A Comprehensive Guide by MalwareFox</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-best-affordable-tools-the-10-free-screen-sharing-platforms/"><u>[New] 2024 Approved Best Affordable Tools The 10 Free Screen Sharing Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-friends-sharing-seeking-complete-viewability-via-smschat-services/"><u>[New] 2024 Approved Friends’ Sharing Seeking Complete Viewability via SMS/Chat Services</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-elevate-your-gopro-footage-live-streaming-on-facebook-and-periscope-for-2024/"><u>[New] Elevate Your Gopro Footage Live Streaming on Facebook and Periscope for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fixing-failed-video-uploads-on-facebook-live-features-for-2024/"><u>[New] Fixing Failed Video Uploads on Facebook Live Features for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-use-dslr-for-facebook-live-on-your-pc-in-2024/"><u>[New] How to Use DSLR for Facebook Live on Your PC, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-engaging-youtube-video-layouts/"><u>[New] In 2024, Crafting Engaging YouTube Video Layouts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-a-comprehensive-approach-to-live-video-on-websites/"><u>[Updated] 2024 Approved A Comprehensive Approach to Live Video on Websites</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-economical-audio-devices-for-vloggers-on-a-budget/"><u>[Updated] 2024 Approved Economical Audio Devices for Vloggers on a Budget</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-insightful-advice-for-an-unhindered-instagram-experience/"><u>2024 Approved Insightful Advice for an Unhindered Instagram Experience</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/come-ripristinare-i-dati-e-le-parti-corrosi-su-windows-11/"><u>Come Ripristinare I Dati E Le Parti Corrosi Su Windows 11</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/comparative-analysis-thermalrights-frozen-notte-vs-aqua-elite-erly-best-aio-coolers-for-budget-builds-under-65/"><u>Comparative Analysis: Thermalright's Frozen Notte Vs. Aqua Elite Erly - Best AIO Coolers for Budget Builds Under $65</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-unique-characteristics-home-theater-systems-versus-stereo-receivers/"><u>Exploring the Unique Characteristics: Home Theater Systems Versus Stereo Receivers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-online-converter-transforming-aac-audio-files-into-m4r-format-with-ease-movavi/"><u>Free Online Converter: Transforming AAC Audio Files Into M4R Format with Ease - Movavi</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlock-professional-techniques-for-coloring-gopro-videos-for-2024/"><u>Unlock Professional Techniques for Coloring GoPro Videos for 2024</u></a></li>
 </ul></div>
 

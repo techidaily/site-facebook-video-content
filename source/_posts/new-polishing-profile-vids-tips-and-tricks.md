@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Polishing Profile Vids  Tips and Tricks\""
-date: 2025-02-04T04:43:58.872Z
-updated: 2025-02-07T19:33:16.439Z
+date: 2025-03-05T01:10:32.158Z
+updated: 2025-03-06T03:40:01.810Z
 tags:
   - ai video
   - ai facebook
@@ -47,17 +47,9 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
 ![filmora elements](https://images.wondershare.com/filmora/article-images/elements-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * First you need to hit the Elements tab in the tool bar and then choose the elements you want to use and drag them to the PIP track. For instance here I am selecting Element Emoji 8.
 
 ![filmora elements emoji](https://images.wondershare.com/filmora/article-images/elements-emoji.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Now you need to double click the above mentioned element on the timeline and then choose an animated effect for the Emoji effect. Now hit the OK button. One can also choose to hit the Advanced button for editing the Mask and Green Screen effect from the PIP edit.
 
@@ -67,17 +59,9 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
 ![emoji size adjustment](https://images.wondershare.com/filmora/article-images/emoji-size-adjustment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * The result can be checked by hitting the Play button from the Preview window. If you are satisfied with the result you can move on to the next step.
 
 ![emoji element preview](https://images.wondershare.com/filmora/article-images/emoji-preview.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Note: It needs to be noted here that you will be able to zoom in and zoom out the timeline so as to view all the clips in the timeline with clarity. In case the duration of the video is lengthy then you can alter the duration of the still photos or cut some of the clips from the video footage. In order to use other effects like overlays and filters you just need to depend on Filmora.
 
@@ -109,10 +93,6 @@ thumbnail: https://www.lifewire.com/thmb/2Aa764tjX1NFcD4JF6PZxX7qCqM=/400x300/fi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -128,18 +108,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-deep-insight-into-seamless-photo-and-video-upload-in-win11-for-2024/"><u>[New] Deep Insight Into Seamless Photo & Video Upload in Win11 for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-easily-create-captions-and-subtitles-for-facebook-videos-for-2024/"><u>[New] How to Easily Create Captions and Subtitles for Facebook Videos for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-master-the-art-of-attraction-secrets-to-viral-tiktok-unboxing-content/"><u>[New] Master the Art of Attraction Secrets to Viral TikTok Unboxing Content</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-cutting-edge-approaches-share-youtube-content-on-facebook/"><u>[Updated] 2024 Approved Cutting-Edge Approaches Share YouTube Content on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facilitating-tiktok-videos-transmission-to-facebook-friends/"><u>[Updated] 2024 Approved Facilitating TikTok Videos' Transmission to Facebook Friends</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-seamless-experience-with-best-rated-android-devices-for-playstation-2-games/"><u>[Updated] 2024 Approved Seamless Experience with Best-Rated Android Devices for PlayStation 2 Games</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-expert-strategies-for-configuring-and-assessing-fbs-instream-ads-for-2024/"><u>[Updated] Expert Strategies for Configuring and Assessing FB's Instream Ads for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-professional-photogridding-services-to-polish-your-art/"><u>2024 Approved Professional Photogridding Services to Polish Your Art</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-vivo-y36i-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Vivo Y36i Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-on-apple-iphone-13-mini-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out On Apple iPhone 13 mini How to Bypass?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-activation-lock-from-apple-iphone-13-4-easy-ways-by-drfone-ios/"><u>In 2024, Bypass Activation Lock From Apple iPhone 13 - 4 Easy Ways</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-simple-steps-for-looped-iphone-videos/"><u>In 2024, Simple Steps for Looped iPhone Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-premier-selection-top-8-fb-film-extractors/"><u>In 2024, The Premier Selection Top 8 FB Film Extractors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-eliminating-iphoneandroid-issues-with-fb-message-video-sharing/"><u>[New] In 2024, Eliminating iPhone/Android Issues with FB Message Video Sharing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unleash-your-stories-gratis-facebook-enhancers-online-and-on-the-go-for-2024/"><u>[New] Unleash Your Stories Gratis, Facebook Enhancers Online & On-The-Go for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-breaking-down-the-basics-of-effective-timelapse-creation-using-gopro-studio/"><u>[Updated] Breaking Down the Basics of Effective Timelapse Creation Using GoPro Studio</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-exploring-iphoneutility-mirror-photo-mastery-tips/"><u>[Updated] In 2024, Exploring iPhone'utility Mirror Photo Mastery Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-restoring-hidden-watch-icon-for-optimal-experience-for-2024/"><u>[Updated] Restoring Hidden Watch Icon for Optimal Experience for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-premier-ios-devices-to-play-psp-games-in-high-fidelity-2023-edition/"><u>2024 Approved Premier iOS Devices to Play PSP Games in High Fidelity, 2023 Edition</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-solving-the-issue-of-spinning-videos-on-instagram/"><u>2024 Approved Solving the Issue of Spinning Videos on Instagram</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-xiaomi-redmi-note-12r-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Xiaomi Redmi Note 12R?</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209420268-fix-computer-keeps-going-to-sleep-issue-easily/"><u>Fix Computer Keeps Going to Sleep Issue. Easily!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-e-identity-enhancement-drawing-your-playful-iconography/"><u>In 2024, E-Identity Enhancement Drawing Your Playful Iconography</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/techniques-to-exceed-gpts-textual-boundary/"><u>Techniques to Exceed GPT's Textual Boundary</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Video Aesthetics  Incorporating LC and BB in Facebook Posts\""
-date: 2025-02-03T00:52:34.679Z
-updated: 2025-02-08T03:42:56.924Z
+date: 2025-03-02T08:46:17.366Z
+updated: 2025-03-05T21:15:48.812Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Want to have a try? Come on!
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
@@ -57,17 +53,9 @@ This method is suitable for users whose source videos are not in square format (
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
@@ -80,10 +68,6 @@ And you can also go to the **Elements** tab, and add some creative elements such
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
@@ -102,10 +86,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
@@ -114,10 +94,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
@@ -125,10 +101,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## To Sum up
 
@@ -153,19 +125,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-comprehensive-guide-to-cross-posting-youtube-video-on-fb-for-2024/"><u>[New] Comprehensive Guide to Cross-Posting YouTube Video on FB for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-enhance-teamwork-and-efficiency-8-must-have-task-apps/"><u>[New] Enhance Teamwork & Efficiency 8 Must-Have Task Apps</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-secure-every-moment-on-fb-with-these-video-downloader-tools/"><u>[New] In 2024, Secure Every Moment on FB with These Video Downloader Tools</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-enhance-social-media-reach-on-facebook-using-proven-seo-methods/"><u>[Updated] 2024 Approved Enhance Social Media Reach on Facebook Using Proven SEO Methods</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-leading-ladies-of-livestreams-top-10-female-youtubers-unveiled/"><u>[Updated] Leading Ladies of Livestreams Top 10 Female YouTubers Unveiled</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-reacting-to-self-viewer-errors-on-popular-social-networks-for-2024/"><u>[Updated] Reacting to Self-Viewer Errors on Popular Social Networks for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone/"><u>2024 Approved Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fusing-data-and-design-for-dynamic-fb-video-campaigns/"><u>2024 Approved Fusing Data & Design for Dynamic FB Video Campaigns</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-streamline-video-production-with-free-music/"><u>2024 Approved Streamline Video Production with Free Music</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-future-of-virtuality-top-tier-oculus-rift-reviews/"><u>2024 Approved The Future of Virtuality Top-Tier Oculus Rift Reviews</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-the-best-video-player-apps-for-idevices-top-10/"><u>2024 Approved Unveiling the Best Video Player Apps for iDevices (Top 10)</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/conquering-the-sign-in-snag-with-chatgpt/"><u>Conquering the Sign-In Snag with ChatGPT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descobrir-gritos-de-saudade-em-portugues-compendio-valioso/"><u>Descobrir Gritos De Saudade Em Português - Compêndio Valioso</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-examine-groups-collaborative-media-on-messenger/"><u>[New] Examine Group's Collaborative Media on Messenger</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-discover-top-tier-ps3-games-on-your-pc-today/"><u>[New] In 2024, Discover Top-Tier PS3 Games on Your PC Today</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-buzz-factor-creating-catch-all-content-for-facebook/"><u>[New] In 2024, The Buzz Factor Creating Catch-All Content for Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-maximizing-engagement-with-dual-screen-broadcasting-techniques-in-facebook/"><u>[New] Maximizing Engagement with Dual-Screen Broadcasting Techniques in Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-spin-and-share-easy-iphone-filmmaking-techniques/"><u>[Updated] In 2024, Spin and Share Easy iPhone Filmmaking Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-oppo-a58-4g-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Oppo A58 4G</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/exclusions-de-dossiers-dans-la-fonction-de-synchronisation-donedrive-comment-faire/"><u>Exclusions De Dossiers Dans La Fonction De Synchronisation D'OneDrive - Comment Faire ?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-soundbanks-access-anytime-anywhere-for-2024/"><u>FB Soundbanks Access Anytime, Anywhere for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/find-what-youve-just-watched-on-fb-quick-and-easy-for-2024/"><u>Find What You've Just Watched on FB Quick & Easy for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-gist-to-gui-running-chatgpt-in-windows/"><u>From Gist to GUI: Running ChatGPT in Windows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ideal-chipset-selection-for-uhd-rendering-for-2024/"><u>Ideal Chipset Selection for UHD Rendering for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-vivo-v30-lite-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Vivo V30 Lite 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/infinix-note-30-5g-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Infinix Note 30 5G support - Turn Off Screen Lock.</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/instant-replay-efficient-methods-for-downloading-lives/"><u>Instant Replay Efficient Methods for Downloading Lives</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/is-it-time-to-switch-to-an-rtx-gpu-pros-and-cons/"><u>Is It Time to Switch to an RTX GPU: Pros and Cons</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-list-9-superior-emulators-for-steam-decks/"><u>The Ultimate List: 9 Superior Emulators for Steam Decks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unwrap-these-8-trending-gems-from-youtubes-big-brother-for-2024/"><u>Unwrap These 8 Trending Gems From YouTube's Big Brother for 2024</u></a></li>
 </ul></div>
 

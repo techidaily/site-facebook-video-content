@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Retro Social Media Revelations  Mastering Outdated FB Functionality for 2024\""
-date: 2025-02-13T21:54:11.179Z
-updated: 2025-02-17T21:49:13.856Z
+date: 2025-03-04T19:36:44.995Z
+updated: 2025-03-05T16:58:48.548Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -59,10 +55,6 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -76,10 +68,6 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -98,10 +86,6 @@ If your friend has selected the **highlights** option, which is a star emoji on 
 People make a **series of highlights** and name them accordingly. If the story is about a wedding, people can name those stories’ **wedding highlights**. So, click on the highlight you want to view.
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
@@ -141,10 +125,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -160,22 +140,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-craft-engaging-narratives-for-facebook-reels/"><u>[New] How to Craft Engaging Narratives for Facebook Reels</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-master-class-in-laptop-screenrec-software-use/"><u>[New] In 2024, Master Class in Laptop ScreenRec Software Use</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-strategies-to-mute-facebook-ads-on-videos/"><u>[New] In 2024, Strategies to Mute Facebook Ads on Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-ultimate-guide-for-broadcasting-gopro-videos-to-periscope-and-facebook/"><u>[New] In 2024, The Ultimate Guide for Broadcasting GoPro Videos to Periscope & Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigating-2023-a-social-media-userayers-handbook-for-fb-videos/"><u>[New] Navigating 2023 A Social Media User’ayer's Handbook for FB Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-superior-tools-for-watching-fb-videos-for-2024/"><u>[New] Superior Tools for Watching FB Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-pursuit-for-full-viewable-content-from-friends-on-direct-chat-platforms/"><u>[Updated] 2024 Approved Pursuit for Full Viewable Content From Friends on Direct Chat Platforms</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-novice-to-pro-creating-metaverse-laughter/"><u>[Updated] From Novice to Pro Creating Metaverse Laughter</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-unlock-kinemasters-full-potential-techniques-and-10plus-superior-online-services-for-2024/"><u>[Updated] Unlock KineMaster's Full Potential Techniques & 10+ Superior Online Services for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-huawei-p60-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/data-exposure-threats-from-custom-ai-systems-how-to-stay-protected-with-chatgpt/"><u>Data Exposure Threats From Custom AI Systems - How to Stay Protected with ChatGPT</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/enabling-instant-access-to-youtube-videos-in-your-facebook-browsing/"><u>Enabling Instant Access to YouTube Videos in Your Facebook Browsing</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/navigating-video-visibility-barriers-in-social-networking/"><u>Navigating Video Visibility Barriers in Social Networking</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329740-9791280027092-sfrutta-lattimo/"><u>Sfrutta l'attimo | Free Book</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-huawei-nova-y91-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Huawei Nova Y91 Location | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/understanding-palworld-fundamentals/"><u>Understanding PalWorld Fundamentals</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-alternative-to-cyberlink-a-comparative-study-of-recording-software/"><u>[New] 2024 Approved Alternative to Cyberlink A Comparative Study of Recording Software</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-regain-control-recovering-after-a-facebook-breach/"><u>[New] 2024 Approved Regain Control Recovering After a Facebook Breach</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-optimize-facebook-seo-with-10-surefire-ways-for-2024/"><u>[New] How to Optimize Facebook SEO with 10 Surefire Ways for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-smartphones-meet-virtual-worlds-top-10-headsets/"><u>[Updated] In 2024, Smartphones Meet Virtual Worlds - Top 10 Headsets</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-slow-motion-cameras-ranked/"><u>2024 Approved Best Slow-Motion Cameras Ranked</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-downloading-and-archiving-facebook-gifs-a-unified-approach/"><u>2024 Approved Downloading and Archiving Facebook GIFs A Unified Approach</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-how-to-screen-record-skype-with-obs/"><u>2024 Approved How to Screen Record Skype with OBS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-stop-video-buffering-during-streaming/"><u>2024 Approved Stop Video Buffering During Streaming</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bezplaceni-preskocit-za-25-nejlepsich-programu-prezentaci-v-roce-2024/"><u>Bezplacení: Přeskočit Za 25 Nejlepších Programů Prezentácí v Roce 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-repairing-the-sennheiser-game-one-mic-issue/"><u>Diagnosing and Repairing the Sennheiser Game One Mic Issue</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-guide-to-securely-copying-youtube-music-tracks-safely/"><u>In 2024, Guide to Securely Copying YouTube Music Tracks Safely</u></a></li>
 </ul></div>
 

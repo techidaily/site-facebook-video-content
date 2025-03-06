@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering FB Video Promos  Access Free Video Toolkit\""
-date: 2025-02-16T21:26:15.351Z
-updated: 2025-02-17T21:44:42.852Z
+date: 2025-02-27T21:52:20.276Z
+updated: 2025-03-06T05:44:27.519Z
 tags:
   - ai video
   - ai facebook
@@ -51,10 +51,6 @@ You’ll need to start in [Ads Manager](https://www.facebook.com/business/help/2
 
 ![where to find Facebook Ads Manager ](https://images.wondershare.com/filmora/article-images/facebook-ads-manager.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Click on the   **Ads**  tab, and the **Create** button to get started. You can’t miss it - it’s **bright green**! You’ll be asked if you want to choose Guided Creation or Quick Creation. Either way is pretty easy to do, and you can experiment with both when you begin to see which works best for you.
 
 ![Facebook Campaign Creation Guide Types ](https://images.wondershare.com/filmora/article-images/how-do-you-want-to-create-ad-campaigns.jpg)
@@ -85,10 +81,6 @@ Once you’ve gone through the initial info, you need to choose a format for you
 * Collection group for Fullscreen Mobile Experience
 
 ![create Facebook ads - choose format ](https://images.wondershare.com/filmora/article-images/create-ad-choose-format.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Note: if you’ve enabled the Dynamic Creative option under Conversion in Ad Set tab, you’ll see the Single Image or Video format option only, since the Dynamic Creative allows you to upload individual images and headlines and generate combination automatically. Here, we’ll choose Single Image or Video format to show the next steps. Once you’ve got the hang of it, you can experiment with the other two.
 
@@ -146,10 +138,6 @@ You can also **add text** on this screen and adjust the text color, font and pos
 
 ![add text on video creation kit   ](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you click on **Use Video**, and it will start creating it for you in the background.
 
 You’ll be sent back to the original page where you can add text and links, and once you click on **Confirm**, your video ad will be ready!
@@ -197,14 +185,6 @@ This is great for **promoting products and services, introducing new businesses 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 If you aren’t busy creating your own video ad right now, you’re missing out! Facebook is a fantastic platform, and video is an amazing tool for reaching those millions of people online. If the stats haven’t convinced you, just give it a try - you should notice the difference in engagement immediately.
@@ -212,10 +192,6 @@ If you aren’t busy creating your own video ad right now, you’re missing out!
 Video has become the go-to tool for advertising, and using the Facebook Video Creation Kit is a quick, easy, and quite fun way to put together something appealing and inviting, even if you know nothing about video editing. What are you waiting for? Head over to your Facebook page and try it out!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -232,24 +208,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-find-facebook-recently-watched-videos-in-2024/"><u>[New] How to Find Facebook Recently Watched Videos, In 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nleash-video-potential-key-tactics-for-backlink-creation-for-2024/"><u>[New] Unleash Video Potential Key Tactics for Backlink Creation for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-experts-choice-aspertronics-for-phones/"><u>[Updated] 2024 Approved Expert's Choice Aspertronics For Phones</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-integrating-your-apple-tv-and-social-media-watch-facebook-now/"><u>[Updated] 2024 Approved Integrating Your Apple TV & Social Media Watch Facebook Now</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-elevating-visual-content-a-guide-to-adding-descriptions-on-instagram-for-2024/"><u>[Updated] Elevating Visual Content A Guide to Adding Descriptions on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-ultimate-watch-list-top-10-music-clips-on-facebook/"><u>[Updated] In 2024, The Ultimate Watch List Top 10 Music Clips on Facebook</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-indicator-of-a-block-no-snapshots-received-for-2024/"><u>[Updated] The Indicator of a Block No Snapshots Received for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-top-15-facebook-strategies-for-maximizing-online-selling-power-for-2024/"><u>[Updated] Top 15 Facebook Strategies for Maximizing Online Selling Power for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-v30-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo V30</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cutting-edge-drones-pairing-perfectly-with-gopros/"><u>Cutting-Edge Drones Pairing Perfectly with GoPros</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-connectivity-configure-dns-on-windows-11/"><u>Enhancing Connectivity: Configure DNS on Windows 11</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/experience-the-thrill-of-march-madness-and-final-four-with-our-live-mens-ncaa-radio-coverage/"><u>Experience the Thrill of March Madness & Final Four with Our Live Men's NCAA Radio Coverage!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-tecno-spark-10-4g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Tecno Spark 10 4G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-2023-fb-live-essentials-watching-made-easy/"><u>In 2024, 2023 FB Live Essentials Watching Made Easy</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-clearing-the-path-for-your-facebook-visuals-to-shine/"><u>In 2024, Clearing the Path for Your Facebook Visuals to Shine</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-top-5-captivating-videos-from-the-world-of-fb/"><u>In 2024, Top 5 Captivating Videos From the World of FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/navigating-through-facebooks-recent-content-policy-shifts-for-2024/"><u>Navigating Through Facebook's Recent Content Policy Shifts for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/streamline-your-life-with-these-5-chrome-tools-for-fb-video-grabs/"><u>Streamline Your Life with These 5 Chrome Tools for FB Video Grabs</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/win1011-no-response-from-epson-printer/"><u>Win10/11, No Response From Epson Printer</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-action-videography-face-off-gopro-and-garmin/"><u>[New] In 2024, Action Videography Face-Off GoPro & Garmin</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-the-secrets-of-facebook-story-filming-and-editing-for-2024/"><u>[New] Unveiling the Secrets of Facebook Story Filming and Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023s-leading-facebook-lite-video-downloader-tools-for-2024/"><u>[Updated] 2023'S Leading Facebook Lite Video Downloader Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-premier-mp4-to-fb-video-transforming-tools-for-2024/"><u>[Updated] Premier MP4 to FB Video Transforming Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tiktok-user-birthday-visualization-pixels-type-elapsed-for-2024/"><u>[Updated] TikTok User Birthday Visualization Pixels, Type, Elapsed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-crafting-an-uninterrupted-viewing-experience-set-up-youtube-autoplay-on-fb/"><u>2024 Approved Crafting an Uninterrupted Viewing Experience Set Up Youtube Autoplay on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlock-fb-livestream-potential-with-recorded-content-know-how/"><u>2024 Approved Unlock FB Livestream Potential with Recorded Content Know-How</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/easy-video-calls-with-googles-hangouts-on-your-android-for-2024/"><u>Easy Video Calls with Google's Hangouts on Your Android for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-net-speeds-for-battlenet-games-on-windows/"><u>Enhancing Net Speeds for Battle.net Games on Windows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-microsofts-hololens-a-hologram-horizon-for-2024/"><u>Exploring Microsoft's HoloLens A Hologram Horizon for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-digital-file-to-physical-disc-mastering-the-art-of-dvd-burning-for-downloaded-series-and-films/"><u>From Digital File to Physical Disc: Mastering the Art of DVD Burning for Downloaded Series and Films</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/perfect-playback-overcoming-mutes-on-linkedin-video-posts-for-2024/"><u>Perfect Playback Overcoming Mutes on LinkedIn Video Posts for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/ranking-the-best-top-6-tools-for-fb-lite-video-downloading-2023-for-2024/"><u>Ranking the Best Top 6 Tools for FB Lite Video Downloading, 2023 for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/thawing-the-digital-impasse-expert-advice-for-loading-failures-during-cold-war-missions-on-gaming-platforms/"><u>Thawing the Digital Impasse: Expert Advice for Loading Failures During Cold War Missions on Gaming Platforms</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-gaming-rigs-of-2/"><u>Top Gaming Rigs of 2</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-ranked-tablets-a-buyers-guide-to-the-finest-apple-ipads/"><u>Top-Ranked Tablets : A Buyer's Guide to the Finest Apple iPads</u></a></li>
 </ul></div>
 

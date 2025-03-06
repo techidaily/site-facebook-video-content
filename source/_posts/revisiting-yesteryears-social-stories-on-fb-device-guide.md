@@ -1,7 +1,7 @@
 ---
 title: "\"Revisiting Yesteryear's Social Stories on FB  Device Guide\""
-date: 2025-02-12T21:44:36.501Z
-updated: 2025-02-17T18:57:00.935Z
+date: 2025-03-04T05:32:38.075Z
+updated: 2025-03-06T01:10:15.178Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -59,10 +55,6 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -76,10 +68,6 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -99,10 +87,6 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -118,10 +102,6 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -160,24 +140,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-chill-out-the-leading-10-calm-games/"><u>[New] 2024 Approved Chill Out The Leading 10 Calm Games</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-fb-download-made-simple-free-and-convenient-options-of-23-online/"><u>[New] In 2024, FB Download Made Simple Free & Convenient Options of '23 Online</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-mastering-fb-status-video-downloads-a-2023-guide/"><u>[New] Mastering FB Status Video Downloads A 2023 Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-bridging-the-gap-between-facebook-videos-and-apple-tv-compatibility-for-2024/"><u>[Updated] Bridging the Gap Between Facebook Videos and Apple TV Compatibility for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-essential-skills-for-harvesting-and-storing-gifs-from-facebooks-feed-for-2024/"><u>[Updated] Essential Skills for Harvesting and Storing GIFs From Facebook's Feed for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-amateurs-to-experts-kinemasters-step-guide/"><u>[Updated] From Amateurs to Experts KineMaster’s Step Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-deciphering-the-meanings-behind-facebooks-status-symbols-a-closer-look-at-the-blues/"><u>[Updated] In 2024, Deciphering the Meanings Behind Facebook's Status Symbols A Closer Look at the Blues</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-lost-opportunities-instant-creative-ban/"><u>[Updated] In 2024, Lost Opportunities Instant Creative Ban</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-top-converter-mp4-to-facebook-social-media-pro-for-2024/"><u>[Updated] Top Converter MP4 to Facebook (Social Media Pro) for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/chromes-pip-magic-for-seamless-video-playback-for-2024/"><u>Chrome's PIP Magic for Seamless Video Playback for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/covert-consumer-of-virtual-diaries-for-2024/"><u>Covert Consumer of Virtual Diaries for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/download-tool-free-and-easy-guide-to-acsm-digital-restrictions-management-drm-stripping/"><u>Download Tool: Free & Easy Guide to ACSM Digital Restrictions Management (DRM) Stripping</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-toms-computer-reviews-the-ultimate-guide/"><u>Exploring Tom's Computer Reviews: The Ultimate Guide</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/how-to-design-youtube-introductory-videos-two-pathways-for-2024/"><u>How to Design YouTube Introductory Videos Two Pathways for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-master-video-transitions-and-effects-using-gopro-studio-protips/"><u>In 2024, Master Video Transitions and Effects Using GoPro Studio ProTips</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/online-oasis-media-mashup-for-2024/"><u>Online Oasis Media Mashup for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/picture-puns-smilesketchers/"><u>Picture Puns SmileSketchers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/arrative-strategies-top-channels-dual-success-formula/"><u>Top Narrative Strategies, Top Channels Dual Success Formula</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/why-everyone-should-embrace-apple-pages-the-ultimate-guide-to-essential-features-and-benefits/"><u>Why Everyone Should Embrace Apple Pages - The Ultimate Guide to Essential Features and Benefits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-composing-channel-overview-teaser-clips-for-2024/"><u>[New] Composing Channel Overview Teaser Clips for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-securely-accessing-your-fb-status-video/"><u>[New] Securely Accessing Your FB Status Video</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-mastering-the-art-of-self-presentation-in-facebook-bios/"><u>[Updated] 2024 Approved Mastering the Art of Self-Presentation in Facebook Bios</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fix-facebook-videos-not-playing-on-androidiphonechrome/"><u>[Updated] Fix Facebook Videos Not Playing on Android/iPhone/Chrome</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-youtubes-no-ad-feature/"><u>[Updated] In 2024, Mastering YouTube's No Ad Feature</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-spark-innovation-with-these-androids-top-graphic-designers/"><u>[Updated] Spark Innovation with These Android's Top Graphic Designers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-your-own-beat-no-cost-fb-version/"><u>[Updated] Your Own Beat, No Cost - FB Version</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pushing-boundaries-with-enhanced-exposure-controls/"><u>2024 Approved Pushing Boundaries with Enhanced Exposure Controls</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-vivo-y78-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Vivo Y78 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/crafting-a-finalized-trashcan-for-inescapable-file-erasure-on-win1011/"><u>Crafting a Finalized Trashcan for Inescapable File Erasure on Win10/11</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-solitude-embracing-a-no-social-media-lifestyle/"><u>Digital Solitude: Embracing a No-Social Media Lifestyle</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/on-screen-keyboard-how-to-get-on-screen-keyboard-in-windows-10-8-7/"><u>On Screen Keyboard - How to Get On-Screen Keyboard in Windows 10, 8, 7</u></a></li>
+<li><a href="https://some-skills.techidaily.com/synopsis-of-vllo-consumer-voices-for-2024/"><u>Synopsis of VLLO Consumer Voices for 2024</u></a></li>
 </ul></div>
 

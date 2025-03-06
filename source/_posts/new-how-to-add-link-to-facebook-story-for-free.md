@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Add Link to Facebook Story for Free?"
-date: 2025-02-15T19:44:11.098Z
-updated: 2025-02-17T16:13:56.453Z
+date: 2025-02-28T01:31:43.699Z
+updated: 2025-03-06T05:35:13.407Z
 tags:
   - ai video
   - ai facebook
@@ -51,23 +51,11 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 ![create Facebook Page story](https://images.wondershare.com/filmora/article-images/create-story-on-facebook-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** You need to type the website name and, on the top, you will see the link icon. Once you are ready with the website name, click on the link icon. Now can choose some buttons based on what kind of link you have shared. For example, shop now, book now, call now, and so on.
 
 ![add link to Facebook Page story](https://images.wondershare.com/filmora/article-images/add-link-to-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And that’s it; your story will be added to Facebook Story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Add Link to Facebook Story Using WhatsApp?
 
@@ -84,10 +72,6 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
 
 **Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Add YouTube Video Link on Facebook Story?
 
@@ -123,10 +107,6 @@ Please note that the swipe option will be visible to your audience only after yo
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Social Media Video Maker and Editor
 
 * Merge your photos into a video with simple clicks.
@@ -143,10 +123,6 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -169,20 +145,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-immerse-in-a-world-of-efficient-notes-with-mematic/"><u>[New] In 2024, Immerse in a World of Efficient Notes with Mematic</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-navigating-small-group-setups-in-zoom/"><u>[New] Navigating Small Group Setups in Zoom</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-tips-for-creating-a-viral-buzz-on-facebook-that-you-should-know/"><u>[New] Tips for Creating a Viral Buzz on Facebook that You Should Know</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-ultimate-roku-guide-to-facebook-live-streams/"><u>[Updated] 2024 Approved The Ultimate Roku Guide to Facebook Live Streams</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-how-to-use-preview-app-on-mac-for-2024/"><u>[Updated] How to Use Preview App on Mac for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-immersive-film-experience-photography-plus-music-for-2024/"><u>[Updated] Immersive Film Experience Photography + Music for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-resolve-fb-live-failure-video-not-posting-for-2024/"><u>[Updated] Resolve FB Live Failure Video Not Posting for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-cutting-edge-techniques-for-captivating-online-advertising/"><u>2024 Approved Cutting-Edge Techniques for Captivating Online Advertising</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/master-your-media-messages-a-guide-to-fb-video-posts/"><u>Master Your Media Messages A Guide to FB Video Posts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/photoshops-stabilization-an-essential-tool-or-overrated-feature-in-2024/"><u>Photoshop's Stabilization An Essential Tool or Overrated Feature, In 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-xiaomi-redmi-note-12-proplus-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi Note 12 Pro+ 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/step-by-step-guide-tweaking-your-monitors-display-preferences-with-yl-computing/"><u>Step-by-Step Guide: Tweaking Your Monitor's Display Preferences with YL Computing</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/topi-tecnologie-di-sincronizzazione-il-programma-per-scambi-dati-direttivi-piu-efficiente/"><u>Topi Tecnologie Di Sincronizzazione: Il Programma Per Scambi Dati Direttivi Più Efficiente</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-determining-if-xbox-online-services-are-unavailable/"><u>Troubleshooting Guide: Determining if Xbox Online Services Are Unavailable</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/troubleshooting-why-arent-your-recommended-fb-videos-displayed-for-2024/"><u>Troubleshooting Why Aren't Your Recommended FB Videos Displayed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigating-the-art-of-film-making-on-facebook/"><u>[New] 2024 Approved Navigating the Art of Film Making on Facebook</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-best-iphone-photo-marker-selection-unveiled/"><u>[New] Best iPhone Photo Marker Selection Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-maximizing-social-sharing-uploading-360-degree-images-on-mobile-platforms/"><u>[New] Maximizing Social Sharing Uploading 360-Degree Images on Mobile Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-essential-steps-to-design-impressive-facebook-slideshows/"><u>[Updated] 2024 Approved Essential Steps to Design Impressive Facebook Slideshows</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-social-media-success-strategies-for-effective-facebook-reel-creation/"><u>[Updated] 2024 Approved Social Media Success Strategies for Effective Facebook Reel Creation</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enhance-user-experience-and-insights-with-our-cutting-edge-cookiebot-powered-solutions/"><u>Enhance User Experience and Insights with Our Cutting-Edge, Cookiebot-Powered Solutions.</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-overcome-the-access-denied-error-during-usb-setup/"><u>How to Overcome the 'Access Denied' Error During USB Setup</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-making-your-twitter-videos-dance-convert-them-into-expressive-animated-gifs/"><u>In 2024, Making Your Twitter Videos Dance Convert Them Into Expressive Animated GIFs</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/top-6-fixes-overcoming-ssd-compatibility-issues-with-windows-11-installation/"><u>Top 6 Fixes: Overcoming SSD Compatibility Issues with Windows 11 Installation</u></a></li>
 </ul></div>
 
